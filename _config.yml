@@ -22,7 +22,7 @@ url: "" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: hiattzhao
 github_username: hiattzhao
 disqus:
-    shortname: 'hiattzhao-github-io'
+    shortname: hiattzhao-github-io
 
 # Build settings
 markdown: kramdown
