@@ -15,3 +15,5 @@ permalink: /photo/
     });
     feed.run();
 </script>
+
+<div id="instafeed"></div>
