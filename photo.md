@@ -5,15 +5,16 @@ permalink: /photo/
 ---
 
 <script type="text/javascript">
-    var feed = new Instafeed({
+    var userFeed = new Instafeed({
         get: 'user',
         userId: 600335747,
+        accessToken: '600335747.ffc0c71.4bbc09de6fb449888cefe5146bd96990',
         sortBy: 'most-recent',
         limit: 60,
         resolution: 'low_resolution',
         clientId: '58d6381baee94f4c9c2d136f843bcc07'
     });
-    feed.run();
+    userFeed.run();
 </script>
 
 <div id="instafeed"></div>
