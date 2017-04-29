@@ -7,7 +7,7 @@ permalink: /photo/
 <script type="text/javascript">
     var feed = new Instafeed({
         get: 'user',
-        userId: 'hiattzhao',
+        userId: 600335747,
         sortBy: 'most-recent',
         limit: 60,
         resolution: 'low_resolution',
