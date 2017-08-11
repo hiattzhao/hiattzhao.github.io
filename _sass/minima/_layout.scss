@@ -2,9 +2,9 @@
  * Site header
  */
 .site-header {
-  border-top: 5px solid $grey-color-dark;
-  border-bottom: 1px solid $grey-color-light;
+  border-bottom: 5px solid $grey-color-dark;
   min-height: 56px;
+  background-color: $header-color;
 
   // Positioning context for the mobile navigation icon
   position: relative;
@@ -93,6 +93,7 @@
 .site-footer {
   border-top: 1px solid $grey-color-light;
   padding: $spacing-unit 0;
+  background-color: $footer-color;
 }
 
 .footer-heading {
@@ -166,7 +167,9 @@
 }
 
 .page-heading {
-  font-size: 20px;
+  font-family: 'Damion', cursive;
+  font-size: 42px;
+  line-height: 1;
 }
 
 .post-list {
@@ -186,6 +189,7 @@
 .post-link {
   display: block;
   font-size: 24px;
+  font-style: italic;
 }
 
 
