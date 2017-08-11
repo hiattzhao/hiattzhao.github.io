@@ -4,7 +4,7 @@
     
     <div class="footer-col-wrapper">
       <div class="footer-col">
-        <p class="rss-subscribe">subscribe <a href="{{ "/feed.xml" | relative_url }}">via RSS</a></p>
+        <p class="rss-subscribe">Subscribe <a href="{{ "/feed.xml" | relative_url }}">via RSS</a></p>
       </div>
 
       <div>
@@ -31,6 +31,12 @@
               
                     {% include icon-twitter.html username=site.twitter_username %}
                 
+            {% endif %}
+
+            {% if site.linkedin_username %}
+            
+                  {% include icon-linkedin.html username=site.linkedin_username %}
+              
             {% endif %}
             
             {% if site.github_username %}
