@@ -1,7 +1,7 @@
 ---
 layout: page
-title: Photo
-permalink: /photo/
+title: Photos
+permalink: /photos/
 ---
 
 <script type="text/javascript">
