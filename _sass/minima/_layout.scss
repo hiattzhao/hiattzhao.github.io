@@ -244,6 +244,7 @@
 
 .about {
   padding: 0 40% 0 0;
+  text-align: justify;
   
   @include media-query($on-laptop) {
     padding: 0;

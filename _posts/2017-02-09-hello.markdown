@@ -1,9 +1,0 @@
----
-layout: post
-title:  "Hello"
-date:   2017-02-09 21:34:56 -0500
-categories: none
-comments: true
-share: true
----
-Hello, this is a test for Disqus
