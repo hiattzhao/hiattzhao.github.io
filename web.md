@@ -4,6 +4,20 @@ title: Web
 permalink: /web/
 ---
 <div class="portfolio">
+    <img src="/assets/images/apps/timer.jpg" alt="timer web app"/>
+    <div class="caption"><p>JavaScript</p>
+    <a href="/assets/apps/timer.html" target="_blank"><i class="fa fa-external-link" aria-hidden="true">&nbsp;</i>Live Site</a>
+    </div>
+</div>
+
+<div class="portfolio">
+    <img src="/assets/images/apps/todolist.jpg" alt="to do list web app"/>
+    <div class="caption"><p>JavaScript</p>
+    <a href="/assets/apps/to-do-list.html" target="_blank"><i class="fa fa-external-link" aria-hidden="true">&nbsp;</i>Live Site</a>
+    </div>
+</div>
+
+<div class="portfolio">
     <img src="/assets/images/websites/2015dbsa-600.jpg" alt="depression bipolar support alliance of lehigh valley website"/>
     <div class="caption"><p>WordPress</p>
     <a href="http://www.dbsa-lv.org/" target="_blank"><i class="fa fa-external-link" aria-hidden="true">&nbsp;</i>Live Site</a>
@@ -12,7 +26,7 @@ permalink: /web/
 
 <div class="portfolio">
     <img src="/assets/images/websites/2014HiattZhaoPhoto-600.jpg" alt="hiatt zhao photography website 2014"/>
-    <div class="caption"><p>HTML, CSS, JavaScript</p></div>
+    <div class="caption"><p>HTML, CSS, jQuery</p></div>
 </div>
 
 <div class="portfolio">
