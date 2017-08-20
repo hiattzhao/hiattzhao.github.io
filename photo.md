@@ -8,7 +8,7 @@ permalink: /photo/
     var feed = new Instafeed({
         get: 'user',
         userId: 600335747,
-        accessToken: '600335747.3a81a9f.b008968479e144f0ba9e045de3d17be2',
+        accessToken: '600335747.58d6381.a910a108ab8f44b388d658959ec3307d',
         sortBy: 'most-recent',
         limit: 60,
         resolution: 'low_resolution',
