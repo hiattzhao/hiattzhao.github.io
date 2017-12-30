@@ -6,14 +6,14 @@ comments: true
 ---
 I've been interested in learning some new CSS frameworks such as [Material Design][material design]{:target="_blank"} but then I came across CSS Grid and found a couple of awesome resources. CSS Grid is baked right into CSS so it's not framework dependent. It's also much easier to build a photo layout or any other type of grids, such as a wrapper container for webpages.
 
-The best resource I found is this [interactive tutorial]. It only takes about 30 minutes to learn most of what you need. 
+The best resource I found is this [interactive tutorial]{:target="_blank"}. It only takes about 30 minutes to learn most of what you need. 
 
 A few good reads are:
-- [How to make your HTML responsive by adding a single line of CSS]
-- [How to prototype websites quickly with CSS Grid]
-- [Learn CSS Grid in 5 Minutes]
+- [How to make your HTML responsive by adding a single line of CSS]{:target="_blank"}
+- [How to prototype websites quickly with CSS Grid]{:target="_blank"}
+- [Learn CSS Grid in 5 Minutes]{:target="_blank"}
 
-If you want to learn the difference between CSS Grid and Flexbox, read [The ultimate CSS battle: Grid vs Flexbox].
+If you want to learn the difference between CSS Grid and Flexbox, read [The ultimate CSS battle: Grid vs Flexbox]{:target="_blank"}.
 
 [material design]: https://material.angularjs.org/latest/
 [interactive tutorial]: https://scrimba.com/g/gR8PTE

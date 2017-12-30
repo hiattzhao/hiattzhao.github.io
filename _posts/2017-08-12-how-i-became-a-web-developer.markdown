@@ -4,7 +4,7 @@ title:  "How I Became a Web Developer"
 date:   2017-08-12
 comments: true
 ---
-This website, built with [Jekyll][jekyll] and hosted on [GitHub Pages][github], marks another milestone in my web development endeavor. I learned something on the web and did my research to figure things out, a skill that is essential to a web developer.
+This website, built with [Jekyll][jekyll]{:target="_blank"} and hosted on [GitHub Pages][github]{:target="_blank"}, marks another milestone in my web development endeavor. I learned something on the web and did my research to figure things out, a skill that is essential to a web developer.
 
 I have been a professional web developer for exactly 11 months. I currently work at a small technology company that's been around since 1979. However, how I arrived at my current position is not a typical straight path.
 
@@ -14,13 +14,13 @@ It wasn’t until college I applied to a web design job with my chemistry profes
 
 Shortly after college, I decided to pursue photography. It wasn’t long until I realized I needed a website to showcase my photographs. I designed my portfolio website from the ground up with HTML, CSS, JavaScript, and used a jQuery plugin to make the photo gallery.
 
-My interest in web design grew as I was working on more personal projects. For example, I started learning [Processing][processing], a computer language based on Java but designed for digital artists and beginning programmers. I decided to go back to school and learn more about computer science and web design, something that I wanted to do since my mistake of not taking that computer science class in high school.
+My interest in web design grew as I was working on more personal projects. For example, I started learning [Processing][processing]{:target="_blank"}, a computer language based on Java but designed for digital artists and beginning programmers. I decided to go back to school and learn more about computer science and web design, something that I wanted to do since my mistake of not taking that computer science class in high school.
 
 I ended up taking ten computer science and web development classes at the local community college between 2011 and 2013. I learned C++, Java, Oracle, MySQL, and PHP. I polished up on my HTML, CSS skills and I learned more about JavaScript, a language that requires continuous learning since there are so many frameworks built around it.
 
 My photography website lasted for a few years until I realized I wanted to support mobile and have a blog. I was interested in WordPress since that is very popular so I changed my website to WordPress a few years ago.
 
-As the market for web development grew, and programming in general, I began to learn on websites such as [codecademy.com][codecademy] and [freeCodeCamp.org][freeCodeCamp]. Last year, after getting an account at [lynda.com][lynda], I spent a couple of intense months learning everything I can about web development. Soon after, I landed my first web development position.
+As the market for web development grew, and programming in general, I began to learn on websites such as [codecademy.com][codecademy]{:target="_blank"} and [freeCodeCamp.org][freeCodeCamp]{:target="_blank"}. Last year, after getting an account at [lynda.com][lynda]{:target="_blank"}, I spent a couple of intense months learning everything I can about web development. Soon after, I landed my first web development position.
 
 My view on life is that you should do all the things that are interesting to you before you go on to the next life. So if you think web design and development is interesting, you too can do what I did. The best advice I can give to any person who is starting out in the web development field is to start somewhere. The web is your friend and Google is the best place to ask questions. Even though it had taken me 15 years since I first learned web design to getting hired, I feel learning is a life long skill and there’s no time to practice that skill than now. 
 
