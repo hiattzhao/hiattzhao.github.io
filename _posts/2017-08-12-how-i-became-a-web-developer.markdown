@@ -20,7 +20,7 @@ I ended up taking ten computer science and web development classes at the local 
 
 My photography website lasted for a few years until I realized I wanted to support mobile and have a blog. I was interested in WordPress since that is very popular so I changed my website to WordPress a few years ago.
 
-As the market for web development grew, and programming in general, I began to learn on websites such as [codecademy.com][codecademy]{:target="_blank"} and [freeCodeCamp.org][freeCodeCamp]{:target="_blank"}. Last year, after getting an account at [lynda.com][lynda]{:target="_blank"}, I spent a couple of intense months learning everything I can about web development. Soon after, I landed my first web development position.
+As the market for web development grew, and programming in general, I began to learn on websites such as [codecademy.com][codecademy]{:target="_blank"} and [freeCodeCamp.org][freeCodeCamp]{:target="_blank"}. Last year, after getting an account at [Lynda.com][lynda]{:target="_blank"}, I spent a couple of intense months learning everything I can about web development. Soon after, I landed my first web development position.
 
 My view on life is that you should do all the things that are interesting to you before you go on to the next life. So if you think web design and development is interesting, you too can do what I did. The best advice I can give to any person who is starting out in the web development field is to start somewhere. The web is your friend and Google is the best place to ask questions. Even though it had taken me 15 years since I first learned web design to getting hired, I feel learning is a life long skill and there’s no time to practice that skill than now. 
 
