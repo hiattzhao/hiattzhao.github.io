@@ -4,7 +4,7 @@ title:  "CSS Grid Resources"
 date:   2017-12-29
 comments: true
 ---
-I've been interested in learning some new CSS frameworks such as [Material Design][material design] but then I came across CSS Grid and found a couple of awesome resources. CSS Grid is baked right into CSS so it's not framework dependent. It's also much easier to build a photo layout or any other type of grids, such as a wrapper container for webpages.
+I've been interested in learning some new CSS frameworks such as [Material Design][material design]{:target="_blank"} but then I came across CSS Grid and found a couple of awesome resources. CSS Grid is baked right into CSS so it's not framework dependent. It's also much easier to build a photo layout or any other type of grids, such as a wrapper container for webpages.
 
 The best resource I found is this [interactive tutorial]. It only takes about 30 minutes to learn most of what you need. 
 
