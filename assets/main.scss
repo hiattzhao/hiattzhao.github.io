@@ -43,6 +43,22 @@ $on-laptop:        800px;
 // Import partials from the `minima` theme.
 @import "minima";
 
+#instafeed {
+    display: grid;
+    grid-template-columns: repeat(auto-fit, minmax(200px, 1fr));
+    grid-auto-rows: 100%;
+    grid-gap: 50px;
+    justify-content: space-around;
+    align-content: center;
+    justify-items: center;
+    align-items: center;
+}
+
+#instafeed a img {
+    border: 10px solid white;
+    box-shadow: 0px 0px 25px 1px #999;
+}
+/*
 #instafeed a img {
     border: 10px solid white;
     box-shadow: 0px 0px 25px 1px #999;
@@ -57,7 +73,7 @@ $on-laptop:        800px;
         width: 90%;
     }
 }
-
+*/
 .portfolio {
     position: relative;
     margin-bottom: 10%;
