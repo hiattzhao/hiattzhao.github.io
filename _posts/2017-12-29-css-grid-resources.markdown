@@ -15,6 +15,8 @@ A few good reads are:
 
 If you want to learn the difference between CSS Grid and Flexbox, read [The ultimate CSS battle: Grid vs Flexbox]{:target="_blank"}.
 
+The photo layout of this website is now updated with CSS Grid. Nothing better than applying what you learned.
+
 [material design]: https://material.angularjs.org/latest/
 [interactive tutorial]: https://scrimba.com/g/gR8PTE
 [How to make your HTML responsive by adding a single line of CSS]: https://medium.freecodecamp.org/how-to-make-your-html-responsive-by-adding-a-single-line-of-css-2a62de81e431
