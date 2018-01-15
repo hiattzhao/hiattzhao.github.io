@@ -4,6 +4,16 @@ title: Web
 permalink: /web/
 ---
 <div class="portfolio">
+    <img src="/assets/images/websites/2017-CAF-600censored.jpg" alt="CAF"/>
+    <div class="caption"><p>AngularJS, Bootstrap</p></div>
+</div>
+
+<div class="portfolio">
+    <img src="/assets/images/websites/2016AE_Inbox-600censored.jpg" alt="AE Inbox"/>
+    <div class="caption"><p>AngularJS, Bootstrap, Oracle</p></div>
+</div>
+
+<div class="portfolio">
     <img src="/assets/images/apps/timer.jpg" alt="timer web app"/>
     <div class="caption"><p>JavaScript</p>
     <a href="/assets/apps/timer.html" target="_blank"><i class="fa fa-external-link" aria-hidden="true">&nbsp;</i>Live Site</a>
@@ -34,6 +44,7 @@ permalink: /web/
     <div class="caption"><p>PHP, MySQL</p></div>
 </div>
 
+<!--
 <div class="portfolio">
     <img src="/assets/images/websites/2012nlhs-600.jpg" alt="northern lehigh historical society website"/>
     <div class="caption"><p>HTML, CSS, jQuery</p>
@@ -50,3 +61,4 @@ permalink: /web/
     <img src="/assets/images/websites/2009HarvestField-600.jpg" alt="harvest field web design"/>
     <div class="caption"><p>HTML, CSS</p></div>
 </div>
+-->
