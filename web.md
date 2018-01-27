@@ -14,6 +14,13 @@ permalink: /web/
 </div>
 
 <div class="portfolio">
+    <img src="/assets/images/apps/quote-generator.png" alt="quote generator web app"/>
+    <div class="caption"><p>jQuery, API</p>
+    <a href="/assets/apps/quote-generator.html" target="_blank"><i class="fa fa-external-link" aria-hidden="true">&nbsp;</i>Live Site</a>
+    </div>
+</div>
+
+<div class="portfolio">
     <img src="/assets/images/apps/timer.jpg" alt="timer web app"/>
     <div class="caption"><p>JavaScript</p>
     <a href="/assets/apps/timer.html" target="_blank"><i class="fa fa-external-link" aria-hidden="true">&nbsp;</i>Live Site</a>
@@ -22,7 +29,7 @@ permalink: /web/
 
 <div class="portfolio">
     <img src="/assets/images/apps/todolist.jpg" alt="to do list web app"/>
-    <div class="caption"><p>JavaScript</p>
+    <div class="caption"><p>JavaScript, API</p>
     <a href="/assets/apps/to-do-list.html" target="_blank"><i class="fa fa-external-link" aria-hidden="true">&nbsp;</i>Live Site</a>
     </div>
 </div>
