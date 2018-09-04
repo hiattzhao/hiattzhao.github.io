@@ -316,6 +316,10 @@ ul.social li.linkedin a:hover {
   color: rgb(59,89,152);
 }
 
+ul.social li.github a:hover {
+  color: rgb(251,126,42);
+}
+
 ul.social li.vimeo a:hover {
   color: rgb(68,85,102);
 }
