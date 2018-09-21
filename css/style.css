@@ -212,12 +212,37 @@ header .inbody .navbar-brand span.subhead {
 }
 
 .portfolio {
-  position: relative;
   margin-bottom: 10%;
   padding: 0 1em 0 1em;
+  perspective: 1000px;
 }
 
-.portfolio > img {
+.portfolio:hover .flipper, .portfolio.hover .flipper {
+  transform: rotateY(180deg);
+}
+
+.flipper {
+	transition: 0.5s;
+	transform-style: preserve-3d;
+	position: relative;
+}
+
+.front, .back {
+	backface-visibility: hidden;
+	position: absolute;
+	top: 0;
+	left: 0;
+}
+
+.front {
+  z-index: 2;
+}
+
+.back {
+  transform: rotateY(180deg);
+}
+
+.front > img {
   box-shadow: 0px 0px 20px 0px rgba(179,179,179,1);
   border: 5px solid white;
   width: 100%;
