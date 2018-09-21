@@ -212,13 +212,17 @@ header .inbody .navbar-brand span.subhead {
 }
 
 .portfolio {
-  margin-bottom: 10%;
   padding: 0 1em 0 1em;
   perspective: 1000px;
 }
 
 .portfolio:hover .flipper, .portfolio.hover .flipper {
   transform: rotateY(180deg);
+}
+
+.portfolio, .front, .back {
+	width: 500px;
+	height: 375px;
 }
 
 .flipper {
@@ -248,12 +252,16 @@ header .inbody .navbar-brand span.subhead {
   width: 100%;
 }
 
+.back > p {
+  padding: 2em;
+}
+
 .caption {
   background: rgba(0,0,0,0.5);
   color: white;
   position: absolute;
-  bottom: 0;
-  margin: 0 auto;
+  top: 0;
+  right: 0;
   text-align: left;
   padding: 0 1em 0 1em;
 }
@@ -261,21 +269,6 @@ header .inbody .navbar-brand span.subhead {
 .caption > p {
   margin: 0;
   padding: 0;
-}
-
-.caption > a:link {
-  color: #fff;
-  font-size: 0.6em;
-}
-
-.caption > a:hover,
-.caption > a:focus {
-  color: #873002;
-  text-decoration: none;
-}
-
-.caption > a:visited {
-  color: #fff;
 }
 
 /**  Page -- Photography **/
