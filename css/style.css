@@ -212,7 +212,6 @@ header .inbody .navbar-brand span.subhead {
 }
 
 .portfolio {
-  padding: 0 1em 0 1em;
   perspective: 1000px;
 }
 
@@ -235,7 +234,7 @@ header .inbody .navbar-brand span.subhead {
 	backface-visibility: hidden;
 	position: absolute;
 	top: 0;
-	left: 0;
+  left: 0;
 }
 
 .front {
