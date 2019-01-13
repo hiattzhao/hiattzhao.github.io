@@ -297,9 +297,6 @@ header .inbody .navbar-brand span.subhead {
 }
 
 /**  Page -- Contact **/
-#email {
-  text-align: center;
-}
 
 ul.social {
   display: block;
@@ -316,6 +313,10 @@ ul.social li {
 
 ul.social li a{
   color: #666;
+}
+
+ul.social li.email a:hover {
+  color: rgb(2, 135, 128);
 }
 
 ul.social li.facebook a:hover {
