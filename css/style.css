@@ -277,6 +277,10 @@ header .inbody .navbar-brand span.subhead {
   height:800px;
 }
 
+.galleria-info-link {
+  display: none;
+}
+
 /**  Page -- About **/
 
 #about {
