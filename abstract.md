@@ -1,7 +1,7 @@
 ---
 layout: page
-title: Architecture Reflections
-permalink: /architecture-reflections/
+title: Abstract
+permalink: /abstract/
 ---
 <div id="galleria"></div>
 
