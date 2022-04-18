@@ -37,6 +37,18 @@
         padding: 10px;
         text-align: center;
       }
+      @media (min-width: 1000px) {
+        .container {
+          margin: auto;
+          width: 50%;
+        }
+      }
+      /* Larger than mobile */
+      @media (max-width: 479px) {
+        h1 {
+          font-size: 3em;
+        }
+      }
     </style>
   </head>
   <body onload="draw();">
