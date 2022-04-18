@@ -33,7 +33,7 @@
     <style>
       #container {
         margin: auto;
-        width: 50%;
+        width: 100%;
         padding: 10px;
         text-align: center;
       }
@@ -58,7 +58,9 @@
         <span id="days"></span> days (<span id="percent"></span>%) has passed
         this year
       </h3>
-      <svg id="svg" width="600" height="600"></svg>
+      <div id="pie">
+        <svg id="svg" width="600" height="600"></svg>
+      </div>
     </div>
     <script>
       function draw() {
@@ -154,8 +156,8 @@
           var percentLeft = 100 - Number(percent);
           var data = [{ value: Number(percent) }, { value: percentLeft }];
           var centerX = 300;
-          var centerY = 300;
-          var radius = 250;
+          var centerY = 150;
+          var radius = 150;
           var color = ["#8CC152", "#3BAFDA"];
 
           var arr = Pie(centerX, centerY, radius, data);
