@@ -42,7 +42,11 @@
       /* Larger than mobile */
       @media (max-width: 479px) {
         #container {
-          width: 300px;
+          width: 400px;
+        }
+        #svg {
+          width: 80%;
+          background-color: aqua;
         }
       }
     </style>
@@ -152,7 +156,7 @@
           var data = [{ value: Number(percent) }, { value: percentLeft }];
           var centerX = window.innerWidth < 500 ? 150 : 300;
           var centerY = 150;
-          var radius = window.innerWidth < 500 ? 120 : 150;
+          var radius = 150;
           var color = ["#8CC152", "#3BAFDA"];
 
           var arr = Pie(centerX, centerY, radius, data);
