@@ -62,9 +62,9 @@
           now.getMonth(),
           now.getDate()
         );
-        document.getElementById("days").innerHTML = Math.ceil(
-          (currentDate - currentNewYear) / 8.64e7
-        );
+
+        var days = Math.ceil((currentDate - currentNewYear) / 8.64e7);
+        document.getElementById("days").innerHTML = days;
 
         function days_of_a_year(year) {
           return isLeapYear(year) ? 366 : 365;
@@ -75,8 +75,7 @@
         }
 
         var percent = (
-          (days_of_a_year(now.getFullYear() - now.getFullYear()) /
-            now.getFullYear()) *
+          (days / days_of_a_year(now.getFullYear())) *
           100
         ).toFixed(2);
 
@@ -141,7 +140,7 @@
 
         // USAGE
         (function (svg) {
-          var percentLeft = 100 - Number(percent);
+          var percentLeft = Number((100 - Number(percent)).toFixed(2));
           var data = [{ value: Number(percent) }, { value: percentLeft }];
           var centerX = 300;
           var centerY = 150;
