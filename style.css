@@ -87,6 +87,17 @@ h4 > span {
     border-radius: 3px;
 }
 
+.links {
+    display: flex;
+    justify-content: flex-end;
+    gap: 5px;
+}
+
+.links span {
+    width: 20px;
+}
+
+
 footer {
     text-align: center;
     background-color:lightslategrey;
