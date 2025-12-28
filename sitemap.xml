@@ -25,61 +25,73 @@
     <priority>0.7</priority>
   </url>
   <url>
-    <loc>https://hiattzhao.github.io/images/favicon.png</loc>
+    <loc>https://hiattzhao.github.io/hiattzhao.github.io</loc>
     <lastmod>2025-12-28</lastmod>
     <changefreq>monthly</changefreq>
     <priority>0.7</priority>
   </url>
   <url>
-    <loc>https://hiattzhao.github.io/style.css</loc>
+    <loc>https://hiattzhao.github.io/html-boilerplate</loc>
+    <lastmod>2025-12-28</lastmod>
+    <changefreq>monthly</changefreq>
+    <priority>0.7</priority>
+  </url>
+  <url>
+    <loc>https://hiattzhao.github.io/landing-page</loc>
+    <lastmod>2025-12-28</lastmod>
+    <changefreq>monthly</changefreq>
+    <priority>0.7</priority>
+  </url>
+  <url>
+    <loc>https://hiattzhao.github.io/library-app</loc>
+    <lastmod>2025-12-28</lastmod>
+    <changefreq>monthly</changefreq>
+    <priority>0.7</priority>
+  </url>
+  <url>
+    <loc>https://hiattzhao.github.io/life-in-weeks</loc>
+    <lastmod>2025-12-28</lastmod>
+    <changefreq>monthly</changefreq>
+    <priority>0.7</priority>
+  </url>
+  <url>
+    <loc>https://hiattzhao.github.io/odin-links-and-images</loc>
+    <lastmod>2025-12-28</lastmod>
+    <changefreq>monthly</changefreq>
+    <priority>0.7</priority>
+  </url>
+  <url>
+    <loc>https://hiattzhao.github.io/odin-recipes</loc>
+    <lastmod>2025-12-28</lastmod>
+    <changefreq>monthly</changefreq>
+    <priority>0.7</priority>
+  </url>
+  <url>
+    <loc>https://hiattzhao.github.io/photos-portfolio</loc>
+    <lastmod>2025-12-28</lastmod>
+    <changefreq>monthly</changefreq>
+    <priority>0.7</priority>
+  </url>
+  <url>
+    <loc>https://hiattzhao.github.io/rock-paper-scissors</loc>
+    <lastmod>2025-12-28</lastmod>
+    <changefreq>monthly</changefreq>
+    <priority>0.7</priority>
+  </url>
+  <url>
+    <loc>https://hiattzhao.github.io/signup-form</loc>
+    <lastmod>2025-12-28</lastmod>
+    <changefreq>monthly</changefreq>
+    <priority>0.7</priority>
+  </url>
+  <url>
+    <loc>https://hiattzhao.github.io/tuxtechrepair</loc>
     <lastmod>2025-12-28</lastmod>
     <changefreq>monthly</changefreq>
     <priority>0.7</priority>
   </url>
   <url>
     <loc>https://hiattzhao.github.io/webdev-photo-portfolio</loc>
-    <lastmod>2025-12-28</lastmod>
-    <changefreq>monthly</changefreq>
-    <priority>0.7</priority>
-  </url>
-  <url>
-    <loc>https://hiattzhao.github.io/webdev-photo-portfolio/apps/corona_virus_cases.html</loc>
-    <lastmod>2025-12-28</lastmod>
-    <changefreq>monthly</changefreq>
-    <priority>0.7</priority>
-  </url>
-  <url>
-    <loc>https://hiattzhao.github.io/webdev-photo-portfolio/apps/godcoin/index.html</loc>
-    <lastmod>2025-12-28</lastmod>
-    <changefreq>monthly</changefreq>
-    <priority>0.7</priority>
-  </url>
-  <url>
-    <loc>https://hiattzhao.github.io/webdev-photo-portfolio/apps/meme-generator</loc>
-    <lastmod>2025-12-28</lastmod>
-    <changefreq>monthly</changefreq>
-    <priority>0.7</priority>
-  </url>
-  <url>
-    <loc>https://hiattzhao.github.io/webdev-photo-portfolio/apps/time-alive</loc>
-    <lastmod>2025-12-28</lastmod>
-    <changefreq>monthly</changefreq>
-    <priority>0.7</priority>
-  </url>
-  <url>
-    <loc>https://hiattzhao.github.io/webdev-photo-portfolio/apps/timer.html</loc>
-    <lastmod>2025-12-28</lastmod>
-    <changefreq>monthly</changefreq>
-    <priority>0.7</priority>
-  </url>
-  <url>
-    <loc>https://hiattzhao.github.io/webdev-photo-portfolio/apps/to-do-list.html</loc>
-    <lastmod>2025-12-28</lastmod>
-    <changefreq>monthly</changefreq>
-    <priority>0.7</priority>
-  </url>
-  <url>
-    <loc>https://hiattzhao.github.io/webdev-photo-portfolio/apps/year-clock</loc>
     <lastmod>2025-12-28</lastmod>
     <changefreq>monthly</changefreq>
     <priority>0.7</priority>
