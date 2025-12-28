@@ -188,3 +188,80 @@ footer p {
     font-weight: bold;
 }
 
+
+/* Responsive adjustments */
+@media (max-width: 900px) {
+    header {
+        padding: 40px 24px 30px 24px;
+    }
+    header div {
+        width: 220px;
+    }
+    h1 {
+        font-size: 2.1em;
+    }
+    h3 {
+        font-size: 1.6em;
+    }
+    .card {
+        width: calc(50% - 1rem);
+        box-shadow: 0px 0px 6px 4px rgba(122,122,122,0.8);
+    }
+}
+
+@media (max-width: 600px) {
+    /* Stack cards vertically, full-width on small screens */
+    section .cards {
+        flex-direction: column;
+        align-items: center;
+        gap: 1rem;
+    }
+    .card {
+        width: calc(100% - 2rem);
+        max-width: 560px;
+        box-shadow: 0 2px 6px rgba(0,0,0,0.12);
+        padding: 12px;
+    }
+    .card img {
+        border-radius: 3px;
+        width: 100%;
+        height: auto;
+    }
+    h1 {
+        font-size: 1.6em;
+    }
+    header p {
+        font-size: 1em;
+    }
+    header div {
+        width: 140px;
+    }
+    header img {
+        max-width: 140px;
+    }
+    .links {
+        justify-content: flex-start;
+    }
+    .tags {
+        flex-wrap: wrap;
+        gap: 6px;
+    }
+    ul {
+        gap: 12px;
+    }
+    ul li img {
+        width: 36px;
+    }
+    footer {
+        padding-top: 24px;
+        padding-bottom: 28px;
+    }
+    footer p {
+        padding-top: 16px;
+        font-size: 0.9em;
+    }
+    .skip-link {
+        padding: 6px 8px;
+    }
+}
+
