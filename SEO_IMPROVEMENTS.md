@@ -37,6 +37,14 @@
 - ✅ Added `width="300" height="300"` attributes to header image (prevents layout shift)
 - ✅ Added `height: auto;` to `.card img` for responsive images
 - ✅ All images have descriptive alt text
+- ✅ Added `width="300" height="300"` attributes to header image (prevents layout shift)
+- ✅ Added `height: auto;` to `.card img` for responsive images
+- ✅ **Enhanced all image alt text** with descriptive, SEO-friendly descriptions including:
+  - Project purpose and context
+  - Technology stack (where relevant)
+  - Function or type of application
+  - Examples: "TuxTechRepair.org - Computer and electronics refurbishment non-profit", "Etch-A-Sketch - Interactive web-based colorful drawing application"
+  - 30+ images updated with meaningful descriptions
 
 ### 6. **Performance Optimization**
 
