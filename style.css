@@ -3,10 +3,17 @@ body {
     font-family: Arial, Helvetica, sans-serif;
     color: #333;
     box-sizing: border-box;
+    line-height: 1.6;
 }
 
 h1, h2, h3, h4, h5, h6 {
     text-align: center;
+    margin-top: 0;
+}
+
+h1 {
+    font-size: 2.5em;
+    margin-bottom: 0.2em;
 }
 
 h2 {
@@ -17,6 +24,7 @@ h2 {
 h3 {
     font-size: xx-large;
     color: darkslategrey;
+    margin-top: 0;
 }
 
 header {
@@ -35,6 +43,14 @@ header img {
     border-radius: 50%;
     border: 5px solid #fff;
     width: 100%;
+    max-width: 300px;
+    height: auto;
+}
+
+header p {
+    font-size: 1.2em;
+    margin: 10px 0;
+    color: #e0e0e0;
 }
 
 main {
@@ -69,6 +85,8 @@ section .cards {
 .card img {
     border-radius: 3px;
     width: 100%;
+    height: auto;
+    max-width: 100%;
 }
 
 h4 > span {
@@ -115,10 +133,33 @@ h4 > span {
 a {
     text-decoration: none;
     color: darkslategrey;
+    transition: text-decoration 0.2s ease;
 }
 
 a:hover {
-    text-decoration:underline;
+    text-decoration: underline;
+}
+
+a:focus {
+    outline: 2px solid #FF8C00;
+    outline-offset: 2px;
+    border-radius: 2px;
+}
+
+/* Skip to main content link for accessibility */
+.skip-link {
+    position: absolute;
+    top: -40px;
+    left: 0;
+    background: darkslategrey;
+    color: white;
+    padding: 8px;
+    text-decoration: none;
+    z-index: 100;
+}
+
+.skip-link:focus {
+    top: 0;
 }
 
 footer {
