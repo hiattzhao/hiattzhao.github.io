@@ -46,6 +46,9 @@
   <meta name="twitter:image" content="https://hiattzhao.github.io/images/hiatt.jpg" />
 
   <!-- Performance Optimization -->
+  <link rel="preconnect" href="https://fonts.googleapis.com" />
+  <link rel="preconnect" href="https://fonts.gstatic.com" crossorigin />
+  <link href="https://fonts.googleapis.com/css2?family=Outfit:wght@300;400;600;800&display=swap" rel="stylesheet" />
   <link rel="preconnect" href="https://www.googletagmanager.com" />
   <link rel="dns-prefetch" href="https://www.google-analytics.com" />
 
@@ -54,27 +57,38 @@
 
 <body>
   <a href="#main-content" class="skip-link">Skip to main content</a>
-  <header>
-    <div>
+  <button class="theme-toggle" id="theme-toggle" aria-label="Toggle dark mode">
+    <svg viewBox="0 0 24 24" id="theme-icon">
+      <path
+        d="M12 3c-4.97 0-9 4.03-9 9s4.03 9 9 9 9-4.03 9-9c0-.46-.04-.92-.1-1.36-.98 1.37-2.58 2.26-4.4 2.26-3.03 0-5.5-2.47-5.5-5.5 0-1.82.89-3.42 2.26-4.4-.44-.06-.9-.1-1.36-.1z" />
+    </svg>
+  </button>
+  <header class="hero">
+    <div class="profile-ring">
       <img src="images/hiatt.jpg" alt="Hiatt Zhao portrait" width="300" height="300" />
     </div>
-    <h1>Hiatt Zhao</h1>
-    <p>Application Engineer & Web Developer</p>
+    <div class="hero-content">
+      <h1>Hiatt Zhao</h1>
+      <p class="subtitle">Application Engineer & Web Developer</p>
+      <p class="tagline">Crafting high-performance applications with modern aesthetics.</p>
+    </div>
   </header>
   <main id="main-content">
     <section>
-      <h3>Professional</h3>
+      <h3>Portfolio</h3>
       <div class="cards">
         <div class="card">
           <img src="images/professional/2025TuxTechRepair.png"
-            alt="TuxTechRepair.org - Computer and electronics refurbishment non-profit" width="600px" />
+            alt="TuxTechRepair.org - Computer and electronics refurbishment non-profit" />
           <h4>TuxTechRepair.org <span>2025 to Present</span></h4>
           <p>
             Started a computer/electronics refurbish non-profit to help the community get
             access to affordable technology while reducing electronic waste.
           </p>
           <div class="tags">
-            <span>Vibe Coding</span>
+            <span>HTML</span>
+            <span>CSS</span>
+            <span>JavaScript</span>
           </div>
           <div class="links">
             <span><a href="https://tuxtechrepair.org" title="View Site"><img src="images/icons/view.svg"
@@ -85,7 +99,7 @@
         </div>
         <div class="card">
           <img src="images/professional/2019CRD.jpg"
-            alt="Charles River Investment Management Solution software interface" width="600px" />
+            alt="Charles River Investment Management Solution software interface" />
           <h4>Charles River IMS <span>2019 to 2023</span></h4>
           <p>
             As a member of the CRD team, I supported Charles River Investment
@@ -205,11 +219,7 @@
                   alt="View Site" /></a></span>
           </div>
         </div>
-      </div>
-    </section>
-    <section>
-      <h3>Personal</h3>
-      <div class="cards">
+
         <div class="card">
           <img src="images/personal/2018Blogger.jpg" alt="Travel Blog - Journey documentation and travel experiences" />
           <h4>Travel Blog <span>2018 to Present</span></h4>
@@ -245,7 +255,8 @@
           </div>
         </div>
         <div class="card">
-          <img src="images/personal/2023PhotoSmugmug.png" alt="Photography Website - Abstract architecture reflection shop" />
+          <img src="images/personal/2023PhotoSmugmug.png"
+            alt="Photography Website - Abstract architecture reflection shop" />
           <h4>Photography Website <span>2024</span></h4>
           <p>
             I used Smugmug CMS to create an online shop for my abstract
@@ -304,257 +315,6 @@
         </div>
       </div>
     </section>
-    <section>
-      <h3>Projects</h3>
-      <div class="cards">
-        <div class="card">
-          <img src="images/projects/2024Pandas.png"
-            alt="Data Analysis - Investment correlation analysis using Python and Pandas" />
-          <h4>Data Analysis <span>2024</span></h4>
-          <p>
-            I used Python and Pandas to analyze various investments and
-            compared their correlations, along with expected returns versus
-            risk.
-          </p>
-          <div class="tags">
-            <span>Python</span>
-            <span>Pandas</span>
-          </div>
-          <div class="links">
-            <span><a href="https://github.com/hiattzhao/fintech" title="View Code"><img src="images/icons/code.svg"
-                  alt="View Code" /></a></span>
-          </div>
-        </div>
-        <div class="card">
-          <img src="images/projects/2024EtchASketch.png"
-            alt="Etch-A-Sketch - Interactive web-based colorful drawing application" />
-          <h4>Etch-A-Sketch <span>2024</span></h4>
-          <p>A colorful Etch-A-Sketch on the web</p>
-          <div class="tags">
-            <span>HTML</span>
-            <span>CSS</span>
-            <span>JavaScript</span>
-          </div>
-          <div class="links">
-            <span><a href="https://hiattzhao.github.io/etch-a-sketch" title="View Site"><img src="images/icons/view.svg"
-                  alt="View Site" /></a></span>
-            <span><a href="https://github.com/hiattzhao/etch-a-sketch" title="View Code"><img
-                  src="images/icons/code.svg" alt="View Code" /></a></span>
-          </div>
-        </div>
-        <div class="card">
-          <img src="images/projects/2024Calculator.png"
-            alt="Calculator - Web-based arithmetic calculator application" />
-          <h4>Calculator <span>2024</span></h4>
-          <p>A simple calculator</p>
-          <div class="tags">
-            <span>HTML</span>
-            <span>CSS</span>
-            <span>JavaScript</span>
-          </div>
-          <div class="links">
-            <span><a href="https://hiattzhao.github.io/calculator" title="View Site"><img src="images/icons/view.svg"
-                  alt="View Site" /></a></span>
-            <span><a href="https://github.com/hiattzhao/calculator" title="View Code"><img src="images/icons/code.svg"
-                  alt="View Code" /></a></span>
-          </div>
-        </div>
-        <div class="card">
-          <img src="images/projects/2021TemperatureSensor.jpg"
-            alt="Temperature Sensor - Arduino-based temperature measurement hardware project" />
-          <h4>Temperature Sensor <span>2021</span></h4>
-          <p>I created a temperature sensor using Arduino.</p>
-          <div class="tags">
-            <span>Arduino</span>
-          </div>
-        </div>
-        <div class="card">
-          <img src="images/projects/2021Godcoin.jpg" alt="Godcoin - Satirical cryptocurrency parody web application" />
-          <h4>Godcoin <span>2021</span></h4>
-          <p>A spoof on crypto</p>
-          <div class="tags">
-            <span>HTML</span>
-            <span>CSS</span>
-            <span>JavaScript</span>
-          </div>
-          <div class="links">
-            <span><a href="https://hiattzhao.github.io/webdev-photo-portfolio/apps/godcoin/index.html"
-                title="View Site"><img src="images/icons/view.svg" alt="View Site" /></a></span>
-            <span><a href="https://github.com/hiattzhao/webdev-photo-portfolio/tree/main/apps/godcoin"
-                title="View Code"><img src="images/icons/code.svg" alt="View Code" /></a></span>
-          </div>
-        </div>
-        <div class="card">
-          <img src="images/projects/2021TimeAlive.png"
-            alt="Time Alive - Personal age and time-elapsed calculator in weeks and days" />
-          <h4>Time Alive <span>2021</span></h4>
-          <p>See how long I'm alive</p>
-          <div class="tags">
-            <span>HTML</span>
-            <span>CSS</span>
-            <span>JavaScript</span>
-          </div>
-          <div class="links">
-            <span><a href="https://hiattzhao.github.io/webdev-photo-portfolio/apps/time-alive" title="View Site"><img
-                  src="images/icons/view.svg" alt="View Site" /></a></span>
-            <span><a href="https://github.com/hiattzhao/webdev-photo-portfolio/blob/main/apps/time-alive.html"
-                title="View Code"><img src="images/icons/code.svg" alt="View Code" /></a></span>
-          </div>
-        </div>
-        <div class="card">
-          <img src="images/projects/2021YearClock.png"
-            alt="Year Clock - Visual representation of time progression throughout the year" />
-          <h4>Year Clock <span>2021</span></h4>
-          <p>See how long time has passed in a year</p>
-          <div class="tags">
-            <span>HTML</span>
-            <span>CSS</span>
-            <span>JavaScript</span>
-          </div>
-          <div class="links">
-            <span><a href="https://hiattzhao.github.io/webdev-photo-portfolio/apps/year-clock" title="View Site"><img
-                  src="images/icons/view.svg" alt="View Site" /></a></span>
-            <span><a href="https://github.com/hiattzhao/webdev-photo-portfolio/blob/main/apps/year-clock.html"
-                title="View Code"><img src="images/icons/code.svg" alt="View Code" /></a></span>
-          </div>
-        </div>
-        <div class="card">
-          <img src="images/projects/2021MemeGenerator.png"
-            alt="Meme Generator - Text overlay utility for creating memes from images" />
-          <h4>Meme Generator <span>2021</span></h4>
-          <p>Overlays text on an image</p>
-          <div class="tags">
-            <span>HTML</span>
-            <span>CSS</span>
-            <span>JavaScript</span>
-          </div>
-          <div class="links">
-            <span><a href="https://hiattzhao.github.io/webdev-photo-portfolio/apps/meme-generator"
-                title="View Site"><img src="images/icons/view.svg" alt="View Site" /></a></span>
-            <span><a href="https://github.com/hiattzhao/webdev-photo-portfolio/blob/main/apps/meme-generator.html"
-                title="View Code"><img src="images/icons/code.svg" alt="View Code" /></a></span>
-          </div>
-        </div>
-        <div class="card">
-          <img src="images/projects/2020CovidMap.jpg"
-            alt="Covid Map - Geographic visualization of COVID-19 severity data" />
-          <h4>Covid Map <span>2020</span></h4>
-          <p>
-            I wanted to visualize the severity of Covid so I created a map
-            using Python.
-          </p>
-          <div class="tags">
-            <span>Python</span>
-            <span>HTML</span>
-          </div>
-          <div class="links">
-            <span><a href="https://hiattzhao.github.io/webdev-photo-portfolio/apps/corona_virus_cases.html"
-                title="View Site"><img src="images/icons/view.svg" alt="View Site" /></a></span>
-            <span><a href="https://github.com/hiattzhao/python-crash-course/tree/master/data_visualization/coronavirus"
-                title="View Code"><img src="images/icons/code.svg" alt="View Code" /></a></span>
-          </div>
-        </div>
-        <div class="card">
-          <img src="images/projects/2018PoolApp.jpg"
-            alt="Pool App - Billiards game scoring application built with React" />
-          <h4>Pool App <span>2018</span></h4>
-          <p>
-            I wanted to learn React so I created a scoring app for playing
-            pool.
-          </p>
-          <div class="tags">
-            <span>HTML</span>
-            <span>CSS</span>
-            <span>React</span>
-          </div>
-          <div class="links">
-            <span><a href="https://github.com/hiattzhao/webdev-photo-portfolio/tree/main/apps/pool-app"
-                title="View Code"><img src="images/icons/code.svg" alt="View Code" /></a></span>
-          </div>
-        </div>
-        <div class="card">
-          <img src="images/projects/2016TodoList.jpg"
-            alt="To Do List - Task management application for organizing daily tasks" />
-          <h4>To Do List <span>2016</span></h4>
-          <p>A simple To Do List app</p>
-          <div class="tags">
-            <span>HTML</span>
-            <span>CSS</span>
-            <span>JavaScript</span>
-          </div>
-          <div class="links">
-            <span><a href="https://hiattzhao.github.io/webdev-photo-portfolio/apps/to-do-list.html"
-                title="View Site"><img src="images/icons/view.svg" alt="View Site" /></a></span>
-            <span><a href="https://github.com/hiattzhao/webdev-photo-portfolio/blob/main/apps/to-do-list.html"
-                title="View Code"><img src="images/icons/code.svg" alt="View Code" /></a></span>
-          </div>
-        </div>
-        <div class="card">
-          <img src="images/projects/2016Timer.jpg" alt="Timer - Countdown and interval timer application" />
-          <h4>Timer <span>2016</span></h4>
-          <p>A simple timer</p>
-          <div class="tags">
-            <span>HTML</span>
-            <span>CSS</span>
-            <span>JavaScript</span>
-          </div>
-          <div class="links">
-            <span><a href="https://hiattzhao.github.io/webdev-photo-portfolio/apps/timer.html" title="View Site"><img
-                  src="images/icons/view.svg" alt="View Site" /></a></span>
-            <span><a href="https://github.com/hiattzhao/webdev-photo-portfolio/blob/main/apps/timer.html"
-                title="View Code"><img src="images/icons/code.svg" alt="View Code" /></a></span>
-          </div>
-        </div>
-        <div class="card">
-          <img src="images/projects/2014GoogleCoder.png"
-            alt="Google Coder - Raspberry Pi setup guide for web development platform" />
-          <h4>Google Coder <span>2014</span></h4>
-          <p>
-            I used a Raspberry Pi to set up the Google Coder web app and
-            created instructions for others to use.
-          </p>
-          <div class="tags">
-            <span>Raspberry Pi</span>
-          </div>
-          <div class="links">
-            <span><a href="https://www.instructables.com/Install-Google-Coder-on-Raspberry-Pi-using-Mac-OSX/"
-                title="View Site"><img src="images/icons/view.svg" alt="View Site" /></a></span>
-          </div>
-        </div>
-        <div class="card">
-          <img src="images/projects/2014Blogpy.png" alt="Blogpy - Static blog generator Raspberry Pi setup guide" />
-          <h4>Blogpy <span>2014</span></h4>
-          <p>
-            I used a Raspberry Pi to set up a static blog generator called
-            Blogpy and created instructions for others to use.
-          </p>
-          <div class="tags">
-            <span>Raspberry Pi</span>
-          </div>
-          <div class="links">
-            <span><a href="https://www.instructables.com/How-to-Set-Up-Blogpy-on-Raspberry-Pi/" title="View Site"><img
-                  src="images/icons/view.svg" alt="View Site" /></a></span>
-          </div>
-        </div>
-        <div class="card">
-          <img src="images/projects/2009HarvestField.jpg"
-            alt="Harvest Field - Community recycling coordination web form platform" />
-          <h4>Harvest Field <span>2009</span></h4>
-          <p>A web form that helped neighbors to recycle.</p>
-          <div class="tags">
-            <span>HTML</span>
-            <span>CSS</span>
-            <span>JavaScript</span>
-          </div>
-          <div class="links">
-            <span><a href="https://hiattzhao.github.io/harvest-field/" title="View Site"><img
-                  src="images/icons/view.svg" alt="View Site" /></a></span>
-            <span><a href="https://github.com/hiattzhao/harvest-field" title="View Code"><img
-                  src="images/icons/code.svg" alt="View Code" /></a></span>
-          </div>
-        </div>
-      </div>
-    </section>
   </main>
   <footer role="contentinfo">
     <nav role="navigation" aria-label="Social media links">
@@ -581,7 +341,7 @@
         </li>
       </ul>
     </nav>
-    <p>&copy; 2024-2025 Hiatt Zhao. All rights reserved.</p>
+    <p>&copy; 2012-2026 Hiatt Zhao. All rights reserved.</p>
   </footer>
 
   <!-- JSON-LD Structured Data -->
@@ -604,8 +364,34 @@
         "https://facebook.com/hiattzhao",
         "https://hiattzhao.com"
       ]
-    }
     </script>
+  <script>
+    const themeToggle = document.getElementById('theme-toggle');
+    const themeIcon = document.getElementById('theme-icon');
+    const root = document.documentElement;
+
+    // Load saved theme
+    const savedTheme = localStorage.getItem('theme') || 'dark';
+    root.setAttribute('data-theme', savedTheme);
+    updateIcon(savedTheme);
+
+    themeToggle.addEventListener('click', () => {
+      const currentTheme = root.getAttribute('data-theme');
+      const newTheme = currentTheme === 'dark' ? 'light' : 'dark';
+
+      root.setAttribute('data-theme', newTheme);
+      localStorage.setItem('theme', newTheme);
+      updateIcon(newTheme);
+    });
+
+    function updateIcon(theme) {
+      if (theme === 'dark') {
+        themeIcon.innerHTML = '<path d="M12 3c-4.97 0-9 4.03-9 9s4.03 9 9 9 9-4.03 9-9c0-.46-.04-.92-.1-1.36-.98 1.37-2.58 2.26-4.4 2.26-3.03 0-5.5-2.47-5.5-5.5 0-1.82.89-3.42 2.26-4.4-.44-.06-.9-.1-1.36-.1z" />';
+      } else {
+        themeIcon.innerHTML = '<path d="M12 7c-2.76 0-5 2.24-5 5s2.24 5 5 5 5-2.24 5-5-2.24-5-5-5zM2 13h2c.55 0 1-.45 1-1s-.45-1-1-1H2c-.55 0-1 .45-1 1s.45 1 1 1zm18 0h2c.55 0 1-.45 1-1s-.45-1-1-1h-2c-.55 0-1 .45-1 1s.45 1 1 1zM11 2v2c0 .55.45 1 1 1s1-.45 1-1V2c0-.55-.45-1-1-1s-1 .45-1 1zm0 18v2c0 .55.45 1 1 1s1-.45 1-1v-2c0-.55-.45-1-1-1s-1 .45-1 1zM5.99 4.58c-.39-.39-1.03-.39-1.41 0s-.39 1.03 0 1.41l1.06 1.06c.39.39 1.03.39 1.41 0s.39-1.03 0-1.41L5.99 4.58zm12.37 12.37c-.39-.39-1.03-.39-1.41 0s-.39 1.03 0 1.41l1.06 1.06c.39.39 1.03.39 1.41 0s.39-1.03 0-1.41l-1.06-1.06zm1.06-10.96c.39-.39.39-1.03 0-1.41s-1.03-.39-1.41 0l-1.06 1.06c-.39.39-.39 1.03 0 1.41s1.03.39 1.41 0l1.06-1.06zM7.05 18.36c.39-.39.39-1.03 0-1.41s-1.03-.39-1.41 0l-1.06 1.06c-.39.39-.39 1.03 0 1.41s1.03.39 1.41 0l1.06-1.06z" />';
+      }
+    }
+  </script>
 </body>
 
 </html>
