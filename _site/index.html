@@ -219,7 +219,19 @@ SimpleJekyllSearch({
 
     <div class="footer-col-wrapper"></div>
     <div style="margin-top: 20px; text-align: center; font-style: italic;">
-      Last updated: August 7, 2026
+      Last updated:
+      <script>
+        const today = new Date();
+        const year = today.getFullYear();
+        // Months are 0-11; add 1 and pad with a leading zero if needed
+        // Get full name (e.g., "August")
+        const fullMonth = today.toLocaleString('default', { month: 'long' });
+        const day = String(today.getDate());
+
+        const formattedDate = `${fullMonth} ${day}, ${year}`;
+        console.log(formattedDate); // Output: "August 15, 2023"
+        document.write(formattedDate);
+      </script>
     </div>
   </div>
 
