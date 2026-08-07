@@ -1,0 +1,97 @@
+---
+layout: page
+title: travelog
+permalink:
+---
+
+<h1>Travelog</h1>
+
+<!-- in support of search functionality -->
+
+<!-- HTML elements for search -->
+<input type="text" id="search-input" placeholder="Search blog posts...">
+<ul id="results-container"></ul>
+
+<!-- include the actual script -->
+<script src="https://unpkg.com/simple-jekyll-search@latest/dest/simple-jekyll-search.min.js"></script>
+
+<!-- call the search script based on values in search input field -->
+<script>
+  SimpleJekyllSearch({
+    searchInput: document.getElementById('search-input'),
+    resultsContainer: document.getElementById('results-container'),
+    json: '/search.json'
+  })
+</script>
+
+<ul>
+  {% for post in paginator.posts %}
+  <li>
+    <span class="post-date">{{ post.date | date: "%Y-%m-%d:" }}</span>
+    <a href="{{ post.url | relative_url }}">{{ post.title }}</a>
+  </li>
+  {% endfor %}
+</ul>
+
+{% if paginator.total_pages > 1 %}
+
+<div class="pagination">
+  {% if paginator.previous_page %}
+  <a href="{{ paginator.previous_page_path | relative_url }}">&laquo; Prev</a>
+  {% else %}
+  <span>&laquo; Prev</span>
+  {% endif %}
+
+  {% for page in (1..paginator.total_pages) %}
+  {% if page == paginator.page %}
+  <em>{{ page }}</em>
+  {% elsif page == 1 %}
+  <a href="{{ site.paginate_path | relative_url | replace: 'page:num/', '' }}">{{ page }}</a>
+  {% else %}
+  <a href="{{ site.paginate_path | relative_url | replace: ':num', page }}">{{ page }}</a>
+  {% endif %}
+  {% endfor %}
+
+  {% if paginator.next_page %}
+  <a href="{{ paginator.next_page_path | relative_url }}">Next &raquo;</a>
+  {% else %}
+  <span>Next &raquo;</span>
+  {% endif %}
+
+</div>
+{% endif %}
+
+<style>
+  #search-input {
+    display: block;
+    width: min(100%, 480px);
+    margin: 1.5rem auto 1rem;
+    padding: 0.85rem 1rem;
+    font-size: 1rem;
+    border: 1px solid #d1d5db;
+    border-radius: 999px;
+    box-shadow: 0 2px 8px rgba(0, 0, 0, 0.06);
+    box-sizing: border-box;
+  }
+
+  @media (max-width: 600px) {
+    #search-input {
+      width: 100%;
+      margin-left: 0;
+      margin-right: 0;
+    }
+
+    #results-container {
+      width: 100%;
+      padding: 0;
+    }
+  }
+
+  .pagination {
+    display: flex;
+    justify-content: center;
+    gap: 0.75rem;
+    flex-wrap: wrap;
+    margin: 1.5rem 0;
+  }
+</style>
