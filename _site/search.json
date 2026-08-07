@@ -4,9 +4,9 @@
       "title"    : "Welcome to My Travelog!",
       "category" : "",
       "tags"     : "planning, central america, south america",
-      "url"      : "/2027%20travel/2026/08/07/welcome-to-my-blog.html",
+      "url"      : "/2027%20travel/2026/08/07/welcome-to-my-travelog.html",
       "date"     : "2026-08-07 00:00:00 +0200",
-	  "content"  : "<h1 id=\"introduction\">Introduction</h1>\n\n<p>Hello world! This is my first blog post built with <strong>Jekyll</strong> and Markdown. Jekyll parses this text file and automatically compiles it into a static HTML page.</p>\n\n<h2 id=\"formatting-options\">Formatting Options</h2>\n\n<p>You can easily format your text using normal Markdown syntax:</p>\n\n<ul>\n  <li><strong>Bold text</strong> for emphasis</li>\n  <li><em>Italics</em> for subtle highlights</li>\n  <li><code class=\"language-plaintext highlighter-rouge\">Inline code block</code> for code snippets</li>\n</ul>\n\n<h3 id=\"code-snippet-example\">Code Snippet Example</h3>\n\n<p>You can display styled code snippets using regular backticks or Liquid tags:</p>\n\n<div class=\"language-javascript highlighter-rouge\"><div class=\"highlight\"><pre class=\"highlight\"><code><span class=\"c1\">// Simple javascript alert</span>\n<span class=\"nx\">console</span><span class=\"p\">.</span><span class=\"nf\">log</span><span class=\"p\">(</span><span class=\"dl\">\"</span><span class=\"s2\">Hello from Jekyll!</span><span class=\"dl\">\"</span><span class=\"p\">);</span>\n</code></pre></div></div>\n\n<h3 id=\"adding-images\">Adding Images</h3>\n\n<p>To add an image, reference your local assets folder:</p>\n\n<p><img src=\"/assets/photos/self.jpg\" alt=\"Blog Banner Image\" title=\"Banner View\" /></p>\n\n<blockquote>\n  <p>“Static sites are fast, secure, and incredibly easy to maintain using standard Markdown workflows.” — Jekyll Fan</p>\n</blockquote>\n"
+	  "content"  : "<h2 id=\"this-travelog-is-coming-after-my-current-bike-tour-in-europe-eta-january-2027\">This travelog is coming after my current bike tour in Europe. ETA January 2027!</h2>\n"
     } 
   
 ]
