@@ -6,4 +6,4 @@ categories: []
 tags: []
 ---
 
-## This travelog is coming after my current bike tour in Europe. ETA January 2027!
+This travelog is coming after my current bike tour in Europe. ETA January 2027!
