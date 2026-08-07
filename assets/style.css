@@ -1,0 +1,170 @@
+/* Gallery width */
+#galleria {
+  height:800px;
+}
+
+#special {
+  display: block;
+  margin: 0 auto 10px auto;
+  width: 50%;
+  border-radius: 10px;
+}
+
+#portrait {
+  display: block;
+  margin: 0 auto;
+  width: 50%;
+  border-radius: 50%;
+}
+
+.site-nav {
+  z-index:  2147483647;
+}
+
+.home, .post, #bio {
+  max-width: -webkit-calc(900px - (30px * 2));
+  max-width: calc(900px - (30px * 2));
+  margin-right: auto;
+  margin-left: auto;
+  padding-right: 30px;
+  padding-left: 30px
+}
+
+#bio h2, #bio p{
+  padding-top: 1em;
+}
+
+hr {
+  width: 75%;
+  text-align: center;
+  margin-top: 2em;
+  margin-bottom: 1.5em;
+}
+
+.center {
+  text-align: center;
+}
+
+.contact {
+  text-align: center;
+}
+
+.social_icons {
+  text-align: center;
+  font-size: 2em;
+}
+
+.social_icons a {
+  padding-right: 0.5em;
+}
+
+h1, h2 {
+  text-align: center;
+}
+
+/* Don't show the "I am a ..." titles */
+.title {
+  display: none;
+}
+
+/* Don't show the "more info" links */
+.galleria-info-link {
+  display: none;
+}
+
+form {
+  max-width: 600px;
+  margin: 1.5em auto 0;
+  text-align: left;
+}
+
+form label {
+  display: block;
+  margin-top: 1em;
+  font-size: 0.95em;
+}
+
+form input,
+form textarea {
+  width: 100%;
+  margin-top: 0.35em;
+  padding: 0.6em 0;
+  border: 0;
+  border-bottom: 1px solid #ccc;
+  background: transparent;
+  color: inherit;
+  font: inherit;
+  box-sizing: border-box;
+}
+
+form textarea {
+  min-height: 110px;
+  resize: vertical;
+}
+
+form input:focus,
+form textarea:focus {
+  outline: none;
+  border-bottom-color: #111;
+}
+
+form button {
+  display: block;
+  margin: 1em auto 0;
+  padding: 0.6em 1.2em;
+  border: 1px solid #111;
+  background: #fff;
+  color: #111;
+  font: inherit;
+  cursor: pointer;
+}
+
+form button:hover {
+  background: #f5f5f5;
+}
+
+/* Dropdown Navigation System for Sublinks */
+.dropdown-wrapper {
+  position: relative;
+  display: inline-block;
+}
+
+.dropdown-toggle {
+  cursor: pointer;
+}
+
+.dropdown-menu {
+  display: none;
+  position: absolute;
+  background-color: #fff;
+  min-width: 100px;
+  box-shadow: 0px 8px 16px 0px rgba(0,0,0,0.1);
+  z-index: 9999;
+  border: 1px solid #e8e8e8;
+  border-radius: 4px;
+}
+
+.dropdown-menu .page-link {
+  display: block;
+  padding: 8px 16px;
+  margin-left: 0 !important;
+}
+
+/* Open dropdown on hover */
+.dropdown-wrapper:hover .dropdown-menu {
+  display: block;
+} 
+
+
+
+@media screen and (max-width: 768px) {
+  #galleria {
+    height: calc(100vh - 120px);
+    max-height: 700px;
+  }
+
+  /* Sublinks on hover */
+  .site-nav .page-link:not(:last-child) {
+        margin-left: 0;
+  }
+}
