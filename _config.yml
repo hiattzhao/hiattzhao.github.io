@@ -20,9 +20,9 @@
 
 title: Hiatt Zhao
 email: hiattzhao@gmail.com
-description: photos
+description: portfolio of hiatt zhao
 baseurl: "" # the subpath of your site, e.g. /blog
-url: "https://photos.hiattzhao.com"
+url: "https://hiattzhao.com"
 twitter_username: hiattzhao
 github_username: hiattzhao
 disqus:
@@ -55,8 +55,8 @@ plugins:
 #   - vendor/gems/
 #   - vendor/ruby/
 header_pages:
-  # - travelog.markdown
-  - abstract.markdown
-  - nature.markdown
-  - travel.markdown
-  - cv.markdown
+# - travelog.markdown
+# - abstract.markdown
+# - nature.markdown
+# - travel.markdown
+# - cv.markdown
