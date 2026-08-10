@@ -4,6 +4,7 @@ layout: post
 date: 2026-06-03
 ---
 
+
 Yesterday around noon, I landed in Wrocław, Poland. For some reason, the public transit feature in Google Maps couldn’t show the bus routes from the airport. Luckily, I got on the 106 bus that took me to Magda’s neighborhood. I ended up getting some lunch and relaxed at the local library and the nearby playground before meeting Magda around 5 PM.
 
 Magda stored my bicycle and the panniers in the basement of her apartment building since late September of last year. I’m very grateful for that.
@@ -26,29 +27,29 @@ As for my route, I’ll mainly follow the EuroVelo routes to Athens, Greece, via
 
 Lastly, for some riding statistics from last year. I cycled a total of 4339 miles from King of Prussia, PA, USA, to Wrocław, Poland, in 147 days, including rest days. So my average is 29.5 miles per day. If I don’t include the rest days I’m guessing my average is about 40 miles per day.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBSoIAeVTCM1goc-va0Dz4G0144JNM-bYwbXN8s2583yKFlraD851RFXIZ4ACDi4RzTRPY44yqk011eYd0T63tEF-sV32mcqUvkXUDA4fbqrQmMfzhdwm89l_cANhJRY3MfVqY1CU0FIIGlSB_gTY4TOmETzLPWUMkSHR6c_777DsE6C_otD6zvu87P4Y/w640-h480/PXL_20260603_082114704.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBSoIAeVTCM1goc-va0Dz4G0144JNM-bYwbXN8s2583yKFlraD851RFXIZ4ACDi4RzTRPY44yqk011eYd0T63tEF-sV32mcqUvkXUDA4fbqrQmMfzhdwm89l_cANhJRY3MfVqY1CU0FIIGlSB_gTY4TOmETzLPWUMkSHR6c_777DsE6C_otD6zvu87P4Y/s4624/PXL_20260603_082114704.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBSoIAeVTCM1goc-va0Dz4G0144JNM-bYwbXN8s2583yKFlraD851RFXIZ4ACDi4RzTRPY44yqk011eYd0T63tEF-sV32mcqUvkXUDA4fbqrQmMfzhdwm89l_cANhJRY3MfVqY1CU0FIIGlSB_gTY4TOmETzLPWUMkSHR6c_777DsE6C_otD6zvu87P4Y/w640-h480/PXL_20260603_082114704.jpg)
 *Cool sidewalk sculptures in Wrocław that I haven't seen before.*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjr1iS4vMTXK5lYWzkAcNz5gjseDMACGQ1eLlN7S4LwH3_gPB45oTKjpgEn8bdcAYs2JOBYZ1thQMfUH5UitG4aYz13vBkBmfR0GNkZ133mDKK4Nr6Hyxq8anNFzlkrvnl_YBRK2zsLO81_EwF8_cR_CSOIs_RZS7-dk5ZlCUwGEkDv7S2j0z3IJZg9vJ4/w480-h640/PXL_20260603_085817236.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjr1iS4vMTXK5lYWzkAcNz5gjseDMACGQ1eLlN7S4LwH3_gPB45oTKjpgEn8bdcAYs2JOBYZ1thQMfUH5UitG4aYz13vBkBmfR0GNkZ133mDKK4Nr6Hyxq8anNFzlkrvnl_YBRK2zsLO81_EwF8_cR_CSOIs_RZS7-dk5ZlCUwGEkDv7S2j0z3IJZg9vJ4/s4624/PXL_20260603_085817236.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjr1iS4vMTXK5lYWzkAcNz5gjseDMACGQ1eLlN7S4LwH3_gPB45oTKjpgEn8bdcAYs2JOBYZ1thQMfUH5UitG4aYz13vBkBmfR0GNkZ133mDKK4Nr6Hyxq8anNFzlkrvnl_YBRK2zsLO81_EwF8_cR_CSOIs_RZS7-dk5ZlCUwGEkDv7S2j0z3IJZg9vJ4/w480-h640/PXL_20260603_085817236.jpg)
 *I'm welcomed by more gnomes.*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilbYclQ4mmZ8Eb7fnlQdYdkPg-M6PaaDfQQzMUpfGbXuPTcHSsNsod_d-iYMj-uOZmZh-FfXXA8T3q5wrVq9JC1cs6WBunVm9_w-kCZ6tOO1evDcBwo56n7VVfV2Iryjp-Rp8spwwbLKJfxiYgsRaNGDoEd4um1ObE8Klb_efilqOB6B9XHJUpXGFUGdg/w480-h640/PXL_20260603_100437598.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilbYclQ4mmZ8Eb7fnlQdYdkPg-M6PaaDfQQzMUpfGbXuPTcHSsNsod_d-iYMj-uOZmZh-FfXXA8T3q5wrVq9JC1cs6WBunVm9_w-kCZ6tOO1evDcBwo56n7VVfV2Iryjp-Rp8spwwbLKJfxiYgsRaNGDoEd4um1ObE8Klb_efilqOB6B9XHJUpXGFUGdg/s4624/PXL_20260603_100437598.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilbYclQ4mmZ8Eb7fnlQdYdkPg-M6PaaDfQQzMUpfGbXuPTcHSsNsod_d-iYMj-uOZmZh-FfXXA8T3q5wrVq9JC1cs6WBunVm9_w-kCZ6tOO1evDcBwo56n7VVfV2Iryjp-Rp8spwwbLKJfxiYgsRaNGDoEd4um1ObE8Klb_efilqOB6B9XHJUpXGFUGdg/w480-h640/PXL_20260603_100437598.jpg)
 *The hostel feels comfy.*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikUiAz7p5vQ4W8wVO_2JSMW57AdfCxo9ch4GkeAHlVLZ_mMUAAten3royfLKTCrOSktQsRitt8rtk_Gww2AsfCyGOfMBwxB6BI-wW6sJ-Mev8Yt1rqPYJmmoTbpMJAmVnj1LqZcVLYWzrpYOkqmGnexqjEXxutlT6B2LegwQ8UP0EmtTy1gTF4xkLKLbg/w640-h480/PXL_20260603_114323202.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikUiAz7p5vQ4W8wVO_2JSMW57AdfCxo9ch4GkeAHlVLZ_mMUAAten3royfLKTCrOSktQsRitt8rtk_Gww2AsfCyGOfMBwxB6BI-wW6sJ-Mev8Yt1rqPYJmmoTbpMJAmVnj1LqZcVLYWzrpYOkqmGnexqjEXxutlT6B2LegwQ8UP0EmtTy1gTF4xkLKLbg/s4624/PXL_20260603_114323202.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikUiAz7p5vQ4W8wVO_2JSMW57AdfCxo9ch4GkeAHlVLZ_mMUAAten3royfLKTCrOSktQsRitt8rtk_Gww2AsfCyGOfMBwxB6BI-wW6sJ-Mev8Yt1rqPYJmmoTbpMJAmVnj1LqZcVLYWzrpYOkqmGnexqjEXxutlT6B2LegwQ8UP0EmtTy1gTF4xkLKLbg/w640-h480/PXL_20260603_114323202.jpg)
 *Markets at the city square*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhILEBVEedk-oMwiID5IN-yzp8dyEbgLrx7eaize77ktnTHi7W1LvHxEkG9o3cq-bmDBrjrSlAKIgyxpZSmCLG8LwGJjArJ4FwskLsxg3hz8m0BCTo4FCHYMjOCZtf0-N_y1rn2qnTTZe_PvE8_jr92zu6RNbHldhfzWLd00sDwRocmyTDgo0Sog7AK4O0/w640-h480/PXL_20260603_120008734.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhILEBVEedk-oMwiID5IN-yzp8dyEbgLrx7eaize77ktnTHi7W1LvHxEkG9o3cq-bmDBrjrSlAKIgyxpZSmCLG8LwGJjArJ4FwskLsxg3hz8m0BCTo4FCHYMjOCZtf0-N_y1rn2qnTTZe_PvE8_jr92zu6RNbHldhfzWLd00sDwRocmyTDgo0Sog7AK4O0/s4624/PXL_20260603_120008734.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhILEBVEedk-oMwiID5IN-yzp8dyEbgLrx7eaize77ktnTHi7W1LvHxEkG9o3cq-bmDBrjrSlAKIgyxpZSmCLG8LwGJjArJ4FwskLsxg3hz8m0BCTo4FCHYMjOCZtf0-N_y1rn2qnTTZe_PvE8_jr92zu6RNbHldhfzWLd00sDwRocmyTDgo0Sog7AK4O0/w640-h480/PXL_20260603_120008734.jpg)
 *My favorite soup, the Chłodnik, along with Polish cabbage wraps*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiqHsQvR2oj7O_23EuNAqv1tZIeRlXS_VBG3b21r79mS2scFzGEkg3K_0vp-pSpT1HzqM6hHLeANG9t9sr2yIzlZTcUAAxHecnhvft4Awj6awB5IP1OpMJZnB04QlVWcMyEoAGAI5pIUYUCTprsZaL-e7XXNlKZ_QQzPPcUHkT0hqLbX9t03jCICPZR3T8/w640-h480/PXL_20260603_121736262.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiqHsQvR2oj7O_23EuNAqv1tZIeRlXS_VBG3b21r79mS2scFzGEkg3K_0vp-pSpT1HzqM6hHLeANG9t9sr2yIzlZTcUAAxHecnhvft4Awj6awB5IP1OpMJZnB04QlVWcMyEoAGAI5pIUYUCTprsZaL-e7XXNlKZ_QQzPPcUHkT0hqLbX9t03jCICPZR3T8/s4624/PXL_20260603_121736262.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiqHsQvR2oj7O_23EuNAqv1tZIeRlXS_VBG3b21r79mS2scFzGEkg3K_0vp-pSpT1HzqM6hHLeANG9t9sr2yIzlZTcUAAxHecnhvft4Awj6awB5IP1OpMJZnB04QlVWcMyEoAGAI5pIUYUCTprsZaL-e7XXNlKZ_QQzPPcUHkT0hqLbX9t03jCICPZR3T8/w640-h480/PXL_20260603_121736262.jpg)
 *Row houses in the square*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEggzqRq18Dceht2Y8KF0p7Z_2gi0PYC_XW7h3xjVuSbs0GriaFT8o4Yl-1loSHtE5JNReYsUJcBjEtbfiXE4dFfW1hVZwb7ScG6b8Xe-TuqsD7OSrkqqLvK6ttUltx6o3742MiF3gXbaPblIGWNfmIBl7ATniE224BeEFVTJKnorZUarHmlolUa_ZA62LA/w640-h480/PXL_20260603_151642153.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEggzqRq18Dceht2Y8KF0p7Z_2gi0PYC_XW7h3xjVuSbs0GriaFT8o4Yl-1loSHtE5JNReYsUJcBjEtbfiXE4dFfW1hVZwb7ScG6b8Xe-TuqsD7OSrkqqLvK6ttUltx6o3742MiF3gXbaPblIGWNfmIBl7ATniE224BeEFVTJKnorZUarHmlolUa_ZA62LA/s4624/PXL_20260603_151642153.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEggzqRq18Dceht2Y8KF0p7Z_2gi0PYC_XW7h3xjVuSbs0GriaFT8o4Yl-1loSHtE5JNReYsUJcBjEtbfiXE4dFfW1hVZwb7ScG6b8Xe-TuqsD7OSrkqqLvK6ttUltx6o3742MiF3gXbaPblIGWNfmIBl7ATniE224BeEFVTJKnorZUarHmlolUa_ZA62LA/w640-h480/PXL_20260603_151642153.jpg)
 *Get ready for a new cycling adventure!*

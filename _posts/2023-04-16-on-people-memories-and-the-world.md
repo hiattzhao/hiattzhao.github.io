@@ -4,6 +4,7 @@ layout: post
 date: 2023-04-16
 ---
 
+
 The best part of being alive is to be with other people. Maybe it’s just me being a lonely cyclist on the road, but I think there’s some truth to that.
 
 I’ve been on the road for 28 days and I’ve yet to meet another long distance cyclist going in the same direction. In 2018, I met Crispin on my 25th day of cycling across America. This time, I wish I could meet another companion. I’m also about half way down to Florida. Since I started so early, I doubt that I’ll meet someone on the road, but we shall see.

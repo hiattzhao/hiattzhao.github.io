@@ -46,7 +46,7 @@ p > img {
   border-radius: 10px;
 }
 
-img + em, a + em {
+img + em {
   display: block;
   text-align: center;
   font-size: 0.85rem;

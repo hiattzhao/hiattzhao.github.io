@@ -4,6 +4,7 @@ layout: post
 date: 2024-03-16
 ---
 
+
 I ended up staying in Kuala Lumpur longer since I felt a bit lazy. I didn’t do much in the Travelogue Guest House except meeting Venki, a traveler from India. We had dinner together at a subpar restaurant on Jalan Alor Food Street. I didn’t do any more sightseeing or exploring in Bukit Bintang since it’s a shopping district.
 
 After I checked out of Travelogue Guest House, I booked an apartment in Summer Suites KLCC, the same complex as the first hostel that I stayed. The price was $27 per night. It’s a good deal since I’m renting a whole apartment. That price won’t even get me a hostel in Singapore since its cost is $35 per night.
@@ -26,57 +27,57 @@ Today, I’m just chilling in the apartment again. There is access to a swimming
 
 I really like the relaxed pace here in KL. I feel like I’m settling down again and feel lazy about transporting myself to the next destination. Since I bought a plane ticket to Phuket, Thailand, from George Town on March 31, I have to get going next Wednesday if I want to enjoy Cameron Highlands and Ipoh. But right now, I just want to relax and chill.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBY_CMs9mOlgzxWp9_jXHPElebdr9d7MEtGyswA5jhHtGJPmWusXuvdnQGrKPyKUCB76Fo9dAWDt63hnW-LuANkN891WLrjyH7NTDO279dL5iBYwVcXfTRffM8aUSiYfLQy2lPXg4QEpkeidlBYe5lDnubtyqqsL5kCoFrCyH62FSihF16tuii55Bg5GE/w640-h480/20240310_202253.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBY_CMs9mOlgzxWp9_jXHPElebdr9d7MEtGyswA5jhHtGJPmWusXuvdnQGrKPyKUCB76Fo9dAWDt63hnW-LuANkN891WLrjyH7NTDO279dL5iBYwVcXfTRffM8aUSiYfLQy2lPXg4QEpkeidlBYe5lDnubtyqqsL5kCoFrCyH62FSihF16tuii55Bg5GE/s4032/20240310_202253.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBY_CMs9mOlgzxWp9_jXHPElebdr9d7MEtGyswA5jhHtGJPmWusXuvdnQGrKPyKUCB76Fo9dAWDt63hnW-LuANkN891WLrjyH7NTDO279dL5iBYwVcXfTRffM8aUSiYfLQy2lPXg4QEpkeidlBYe5lDnubtyqqsL5kCoFrCyH62FSihF16tuii55Bg5GE/w640-h480/20240310_202253.jpg)
 *Jalan Alor Food Street*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgAU9tK7_U-dHcVflXEzzJUOWLjUkWFEednoywuuw0MeJOLNAHDUQTBUpFyy7XhEZgd33P18Rv7Y_heYj04oumMb7TYGqWMGwqKYCYYEwecAVClgWUfvNDMsfs6Y5NrqASfUwtwQsZUXwY13xbFkVmss8edCULXuluFBxTGb15lDqFhEsI7JTe1FJmvIYg/w640-h480/20240312_081658.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgAU9tK7_U-dHcVflXEzzJUOWLjUkWFEednoywuuw0MeJOLNAHDUQTBUpFyy7XhEZgd33P18Rv7Y_heYj04oumMb7TYGqWMGwqKYCYYEwecAVClgWUfvNDMsfs6Y5NrqASfUwtwQsZUXwY13xbFkVmss8edCULXuluFBxTGb15lDqFhEsI7JTe1FJmvIYg/s4032/20240312_081658.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgAU9tK7_U-dHcVflXEzzJUOWLjUkWFEednoywuuw0MeJOLNAHDUQTBUpFyy7XhEZgd33P18Rv7Y_heYj04oumMb7TYGqWMGwqKYCYYEwecAVClgWUfvNDMsfs6Y5NrqASfUwtwQsZUXwY13xbFkVmss8edCULXuluFBxTGb15lDqFhEsI7JTe1FJmvIYg/w640-h480/20240312_081658.jpg)
 *Living room in KLCC apartment*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghTrRsytgF1l4MTvkjEsyD9AR7ujDuQDsBzB9O0PAO-fJo00TGfeL4Ta_5oNeCy4CdHMBVGIdm8Z-6zvjYSwy45yBe_ieb9hpMDzQNjp9iOnTLYXLu3uEEKaw6Ey6MY2P4zDjy3Bh-gQYIOF6E1L-yZnvhPMW1s3jDdJzOrQjSA8a8nlUIJysNP1sl8Q8/w640-h480/20240312_081709.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghTrRsytgF1l4MTvkjEsyD9AR7ujDuQDsBzB9O0PAO-fJo00TGfeL4Ta_5oNeCy4CdHMBVGIdm8Z-6zvjYSwy45yBe_ieb9hpMDzQNjp9iOnTLYXLu3uEEKaw6Ey6MY2P4zDjy3Bh-gQYIOF6E1L-yZnvhPMW1s3jDdJzOrQjSA8a8nlUIJysNP1sl8Q8/s4032/20240312_081709.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghTrRsytgF1l4MTvkjEsyD9AR7ujDuQDsBzB9O0PAO-fJo00TGfeL4Ta_5oNeCy4CdHMBVGIdm8Z-6zvjYSwy45yBe_ieb9hpMDzQNjp9iOnTLYXLu3uEEKaw6Ey6MY2P4zDjy3Bh-gQYIOF6E1L-yZnvhPMW1s3jDdJzOrQjSA8a8nlUIJysNP1sl8Q8/w640-h480/20240312_081709.jpg)
 *Dining room in the apartment*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgZs1Fcd_VeZmN9Smn2cmjzs71reDNjfjScUgi2RId1S7PXOoku0H-bm4llPgMW7ttd_MY0SRw-ZMgOmIKPHnS2H1P8gK_3j8VS3-qDhAwe1dawtueftJMGvOdd6MQhcEJqfHUTgbuTmUpzeVRdqi_obkcFlBi2Ob6tDe8QtP1V_N-Z6-3pGpv6HQ6PXgA/w480-h640/20240312_203040.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgZs1Fcd_VeZmN9Smn2cmjzs71reDNjfjScUgi2RId1S7PXOoku0H-bm4llPgMW7ttd_MY0SRw-ZMgOmIKPHnS2H1P8gK_3j8VS3-qDhAwe1dawtueftJMGvOdd6MQhcEJqfHUTgbuTmUpzeVRdqi_obkcFlBi2Ob6tDe8QtP1V_N-Z6-3pGpv6HQ6PXgA/s4032/20240312_203040.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgZs1Fcd_VeZmN9Smn2cmjzs71reDNjfjScUgi2RId1S7PXOoku0H-bm4llPgMW7ttd_MY0SRw-ZMgOmIKPHnS2H1P8gK_3j8VS3-qDhAwe1dawtueftJMGvOdd6MQhcEJqfHUTgbuTmUpzeVRdqi_obkcFlBi2Ob6tDe8QtP1V_N-Z6-3pGpv6HQ6PXgA/w480-h640/20240312_203040.jpg)
 *Petronas Towers at night*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgD5bLlPFp_NP2kRX-q_Xyap4Z_mZUD4gmRsvUUa0ZqPgiQJnWXMoMGN9-oFwJBIYzVJcW-0AacxUOO9b1BTfjYJdGlU_HaD_wB4WiZi6WXyluMDYoBZz-q_HQ0H40agGSk86uZPTcFwOVZ3rhvQbNhIWiFEIu2l3P8MtniNRbdpIJw87mCvX2O7Za9zcc/w640-h480/20240312_205249.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgD5bLlPFp_NP2kRX-q_Xyap4Z_mZUD4gmRsvUUa0ZqPgiQJnWXMoMGN9-oFwJBIYzVJcW-0AacxUOO9b1BTfjYJdGlU_HaD_wB4WiZi6WXyluMDYoBZz-q_HQ0H40agGSk86uZPTcFwOVZ3rhvQbNhIWiFEIu2l3P8MtniNRbdpIJw87mCvX2O7Za9zcc/s4032/20240312_205249.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgD5bLlPFp_NP2kRX-q_Xyap4Z_mZUD4gmRsvUUa0ZqPgiQJnWXMoMGN9-oFwJBIYzVJcW-0AacxUOO9b1BTfjYJdGlU_HaD_wB4WiZi6WXyluMDYoBZz-q_HQ0H40agGSk86uZPTcFwOVZ3rhvQbNhIWiFEIu2l3P8MtniNRbdpIJw87mCvX2O7Za9zcc/w640-h480/20240312_205249.jpg)
 *KLCC Park at night*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhiW8iFMZAd80kvs8bedhd50RASlPZe_KYZKJCIuV2zkz21SyuTJsJzc_TC1uq30YaO8DKL0LVM4LqP923Hm36lv1FWTkAPFsMTFd5iThT9GnTvZaujc9PDtSuUc7rXM_hrQ_-We6mEKwSNfKSBbKslj5n0mRTs6kfs7WOkNhlI65NhypGF90JaLUJaBQ4/w640-h480/20240312_214016.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhiW8iFMZAd80kvs8bedhd50RASlPZe_KYZKJCIuV2zkz21SyuTJsJzc_TC1uq30YaO8DKL0LVM4LqP923Hm36lv1FWTkAPFsMTFd5iThT9GnTvZaujc9PDtSuUc7rXM_hrQ_-We6mEKwSNfKSBbKslj5n0mRTs6kfs7WOkNhlI65NhypGF90JaLUJaBQ4/s4032/20240312_214016.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhiW8iFMZAd80kvs8bedhd50RASlPZe_KYZKJCIuV2zkz21SyuTJsJzc_TC1uq30YaO8DKL0LVM4LqP923Hm36lv1FWTkAPFsMTFd5iThT9GnTvZaujc9PDtSuUc7rXM_hrQ_-We6mEKwSNfKSBbKslj5n0mRTs6kfs7WOkNhlI65NhypGF90JaLUJaBQ4/w640-h480/20240312_214016.jpg)
 *Went outside of the city to get this view.*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEisCfIi_1nqYKuVTudPTFIkUJGLmW-cyS6W6wuvmtiePzK-D2zFxpOa0RbB83NHXGkNY2DuxUTmYtcARkSchW4tjl4vosiIe9VS7KKoK4YiHyEOnxFh1mhm9k64kFgRI6f6FSD_r5yu59DOwqj4eFG-zvr78hJVAfwkfs8C8-Kjuxr9nxoq9cNCqohOlBo/w640-h480/20240314_195930.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEisCfIi_1nqYKuVTudPTFIkUJGLmW-cyS6W6wuvmtiePzK-D2zFxpOa0RbB83NHXGkNY2DuxUTmYtcARkSchW4tjl4vosiIe9VS7KKoK4YiHyEOnxFh1mhm9k64kFgRI6f6FSD_r5yu59DOwqj4eFG-zvr78hJVAfwkfs8C8-Kjuxr9nxoq9cNCqohOlBo/s4032/20240314_195930.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEisCfIi_1nqYKuVTudPTFIkUJGLmW-cyS6W6wuvmtiePzK-D2zFxpOa0RbB83NHXGkNY2DuxUTmYtcARkSchW4tjl4vosiIe9VS7KKoK4YiHyEOnxFh1mhm9k64kFgRI6f6FSD_r5yu59DOwqj4eFG-zvr78hJVAfwkfs8C8-Kjuxr9nxoq9cNCqohOlBo/w640-h480/20240314_195930.jpg)
 *Char Koay Teow*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-Q5Cbw_GltVb_bbOg7E6lRwkrZGiIIwYflS7FHK1l8kE5BhSYwl2hedmgCHXIcjOM9l3di9nTbAey7lASLvvSbIK8oXCSHnyzL8GxZFRlpKeb1xkMRJYv3I-rZ1qMIdxOwamI6bpwjHNh_Xy8f6AeBeeZQVz1lIZvsvMoAG-oGHF4DV2_84uj7bg7rr4/w480-h640/20240315_102530.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-Q5Cbw_GltVb_bbOg7E6lRwkrZGiIIwYflS7FHK1l8kE5BhSYwl2hedmgCHXIcjOM9l3di9nTbAey7lASLvvSbIK8oXCSHnyzL8GxZFRlpKeb1xkMRJYv3I-rZ1qMIdxOwamI6bpwjHNh_Xy8f6AeBeeZQVz1lIZvsvMoAG-oGHF4DV2_84uj7bg7rr4/s4608/20240315_102530.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-Q5Cbw_GltVb_bbOg7E6lRwkrZGiIIwYflS7FHK1l8kE5BhSYwl2hedmgCHXIcjOM9l3di9nTbAey7lASLvvSbIK8oXCSHnyzL8GxZFRlpKeb1xkMRJYv3I-rZ1qMIdxOwamI6bpwjHNh_Xy8f6AeBeeZQVz1lIZvsvMoAG-oGHF4DV2_84uj7bg7rr4/w480-h640/20240315_102530.jpg)
 *Inside the National Art Gallery*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_pZFGkzq5-K6wJGTov3i9KrFeTPbIc7eD0iaNedc3rn7iZ9XmDP3aKucfcrQeMEGIBRaOwL8MCDk2QIu22aKry9N0NI_v1FxOsmae9yzwgeK8MPxSCrmbz9h0kAmwQX2E3E43-fJvzLvV_GwWM1ttTsUcf25VgFuyyYCbJY6M1qWHJkgnfb5FqBDx8S8/w640-h480/20240315_104221.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_pZFGkzq5-K6wJGTov3i9KrFeTPbIc7eD0iaNedc3rn7iZ9XmDP3aKucfcrQeMEGIBRaOwL8MCDk2QIu22aKry9N0NI_v1FxOsmae9yzwgeK8MPxSCrmbz9h0kAmwQX2E3E43-fJvzLvV_GwWM1ttTsUcf25VgFuyyYCbJY6M1qWHJkgnfb5FqBDx8S8/s4032/20240315_104221.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_pZFGkzq5-K6wJGTov3i9KrFeTPbIc7eD0iaNedc3rn7iZ9XmDP3aKucfcrQeMEGIBRaOwL8MCDk2QIu22aKry9N0NI_v1FxOsmae9yzwgeK8MPxSCrmbz9h0kAmwQX2E3E43-fJvzLvV_GwWM1ttTsUcf25VgFuyyYCbJY6M1qWHJkgnfb5FqBDx8S8/w640-h480/20240315_104221.jpg)
 *Love seeing a tricycle in a museum*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiGYknfsXQFQO4Cwo5dHjascB0i6AXwlu2aYUxoNh9HobkrMmqWZhTCYXPt57yvLA6WmRcakG_Y7qYpdfB8fdfyui_VsrQSQynTgxtOAr-VMACCmG1yS35_ySHPNbcF3MuiRbVN-5kYh6cbm5aUbSY0eQOsjKXeEY8i7kG8q3nNkszaXu_RpDUU-2ZWMsQ/w640-h480/20240315_110810.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiGYknfsXQFQO4Cwo5dHjascB0i6AXwlu2aYUxoNh9HobkrMmqWZhTCYXPt57yvLA6WmRcakG_Y7qYpdfB8fdfyui_VsrQSQynTgxtOAr-VMACCmG1yS35_ySHPNbcF3MuiRbVN-5kYh6cbm5aUbSY0eQOsjKXeEY8i7kG8q3nNkszaXu_RpDUU-2ZWMsQ/s4032/20240315_110810.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiGYknfsXQFQO4Cwo5dHjascB0i6AXwlu2aYUxoNh9HobkrMmqWZhTCYXPt57yvLA6WmRcakG_Y7qYpdfB8fdfyui_VsrQSQynTgxtOAr-VMACCmG1yS35_ySHPNbcF3MuiRbVN-5kYh6cbm5aUbSY0eQOsjKXeEY8i7kG8q3nNkszaXu_RpDUU-2ZWMsQ/w640-h480/20240315_110810.jpg)
 *Miriam and Anna*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjYRE0CaWU5FCWxpy74vUKcwIZ7RiIh2hJFyKsjmLJQnGKnp6aXBf3rHNv8MzTvPeK8WHJz9cwanf6rzyOlbRYhKElk0zOB7JiQfvUJvG6TMVo2_HQEtwp_Ud5CNXUo3GHoQjWWAgmYSuXNFhs_4mzgWcgiaELyc5l3gwVnQiQaVInEEUTpk6cT2vKR4As/w640-h480/20240315_111210.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjYRE0CaWU5FCWxpy74vUKcwIZ7RiIh2hJFyKsjmLJQnGKnp6aXBf3rHNv8MzTvPeK8WHJz9cwanf6rzyOlbRYhKElk0zOB7JiQfvUJvG6TMVo2_HQEtwp_Ud5CNXUo3GHoQjWWAgmYSuXNFhs_4mzgWcgiaELyc5l3gwVnQiQaVInEEUTpk6cT2vKR4As/s4032/20240315_111210.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjYRE0CaWU5FCWxpy74vUKcwIZ7RiIh2hJFyKsjmLJQnGKnp6aXBf3rHNv8MzTvPeK8WHJz9cwanf6rzyOlbRYhKElk0zOB7JiQfvUJvG6TMVo2_HQEtwp_Ud5CNXUo3GHoQjWWAgmYSuXNFhs_4mzgWcgiaELyc5l3gwVnQiQaVInEEUTpk6cT2vKR4As/w640-h480/20240315_111210.jpg)
 *Cool flying machines*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg4jKls39-X0nHN3c3bGD0VtDHaHfP0SLpTkEmZpb0oj5kWO0DfFi6H3zFifSNag2aV_XS3h8Ehb4ZvYyKcWVeyPPLEUAdEFXF3eCuP19mPcVxxMTSjBICwmz7onXGQ2_QmYaht6GQi7C52uUb6nBjO1Jw1KkxdFW1Y-Fr4CG7g_SuSZ3Aa5Zg5WUfTK-g/w640-h480/20240315_112200.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg4jKls39-X0nHN3c3bGD0VtDHaHfP0SLpTkEmZpb0oj5kWO0DfFi6H3zFifSNag2aV_XS3h8Ehb4ZvYyKcWVeyPPLEUAdEFXF3eCuP19mPcVxxMTSjBICwmz7onXGQ2_QmYaht6GQi7C52uUb6nBjO1Jw1KkxdFW1Y-Fr4CG7g_SuSZ3Aa5Zg5WUfTK-g/s4032/20240315_112200.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg4jKls39-X0nHN3c3bGD0VtDHaHfP0SLpTkEmZpb0oj5kWO0DfFi6H3zFifSNag2aV_XS3h8Ehb4ZvYyKcWVeyPPLEUAdEFXF3eCuP19mPcVxxMTSjBICwmz7onXGQ2_QmYaht6GQi7C52uUb6nBjO1Jw1KkxdFW1Y-Fr4CG7g_SuSZ3Aa5Zg5WUfTK-g/w640-h480/20240315_112200.jpg)
 *More art*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_7AumABZN4mjHS0VlkNdSpPppFR5XCygH_gcXGzLQaRdDyLq4TOAHjU0ylbO6U1PaxBI1pc2KlBNajtjWR5mE8FRbexsXSopJgK07YzlOTyBH-OdTfaBU4ueH_01q_QUqS3KtbtiUAMsw20NVE9cyth26MF2PYHQd2e3EV-Z1c72TZpVD0SwKXapCYIA/w640-h480/20240315_112620.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_7AumABZN4mjHS0VlkNdSpPppFR5XCygH_gcXGzLQaRdDyLq4TOAHjU0ylbO6U1PaxBI1pc2KlBNajtjWR5mE8FRbexsXSopJgK07YzlOTyBH-OdTfaBU4ueH_01q_QUqS3KtbtiUAMsw20NVE9cyth26MF2PYHQd2e3EV-Z1c72TZpVD0SwKXapCYIA/s4608/20240315_112620.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_7AumABZN4mjHS0VlkNdSpPppFR5XCygH_gcXGzLQaRdDyLq4TOAHjU0ylbO6U1PaxBI1pc2KlBNajtjWR5mE8FRbexsXSopJgK07YzlOTyBH-OdTfaBU4ueH_01q_QUqS3KtbtiUAMsw20NVE9cyth26MF2PYHQd2e3EV-Z1c72TZpVD0SwKXapCYIA/w640-h480/20240315_112620.jpg)
 *The ramp inside the art gallery reminds of the Guggenheim Museum in New York City.*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi42iV3MyEHsUN0B0us123gW20Zof1L8irZU88v0giYLiuP2y7sTdFgotxhyphenhyphenWmDMwvEFttwhgsBRsqIOELOfQhpLda9pO2C9jItr_v0De-J-B2RZakdvIvn14YvMtXcTiAeS11b5xQSLnx7aKQbAYOISIlezxuPm3n_cFX1RR8VvTuIecDOLtguNbd3BVQ/w640-h480/20240315_115408.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi42iV3MyEHsUN0B0us123gW20Zof1L8irZU88v0giYLiuP2y7sTdFgotxhyphenhyphenWmDMwvEFttwhgsBRsqIOELOfQhpLda9pO2C9jItr_v0De-J-B2RZakdvIvn14YvMtXcTiAeS11b5xQSLnx7aKQbAYOISIlezxuPm3n_cFX1RR8VvTuIecDOLtguNbd3BVQ/s4032/20240315_115408.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi42iV3MyEHsUN0B0us123gW20Zof1L8irZU88v0giYLiuP2y7sTdFgotxhyphenhyphenWmDMwvEFttwhgsBRsqIOELOfQhpLda9pO2C9jItr_v0De-J-B2RZakdvIvn14YvMtXcTiAeS11b5xQSLnx7aKQbAYOISIlezxuPm3n_cFX1RR8VvTuIecDOLtguNbd3BVQ/w640-h480/20240315_115408.jpg)
 *Nasi Lemak*

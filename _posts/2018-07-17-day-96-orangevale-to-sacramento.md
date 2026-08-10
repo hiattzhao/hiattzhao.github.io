@@ -4,10 +4,11 @@ layout: post
 date: 2018-07-17
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjN3hEVxR14_CcaLFaLO1AulXpRmAG9mAwFxyPqH1eargbXxXtlqj8VG6BXhk9RN6PGpVw1uUjdm7WxbixSemNcTYyMo7_D6zDg8ebjO9mBHGEemTU-gxMBrhyphenhyphenwCzDyT1-aoRGaiGOdKvI/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjN3hEVxR14_CcaLFaLO1AulXpRmAG9mAwFxyPqH1eargbXxXtlqj8VG6BXhk9RN6PGpVw1uUjdm7WxbixSemNcTYyMo7_D6zDg8ebjO9mBHGEemTU-gxMBrhyphenhyphenwCzDyT1-aoRGaiGOdKvI/s1600/%255BUNSET%255)
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjN3hEVxR14_CcaLFaLO1AulXpRmAG9mAwFxyPqH1eargbXxXtlqj8VG6BXhk9RN6PGpVw1uUjdm7WxbixSemNcTYyMo7_D6zDg8ebjO9mBHGEemTU-gxMBrhyphenhyphenwCzDyT1-aoRGaiGOdKvI/w640-h480/%255BUNSET%255D)
 *On the bike trail to Sacramento*
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgMsaIEpGCFn_wnmkgAvaGpnt1liIwYCRng2pUQpGGjG5kfR3AXpV4oZI7NeM4_w3C5xkCW5SwXhaz5XFbU4nvDLWt_utZbvCbDtGq03zRREQPLMgMhfywgqFTASp6LsaiVUFsSscaDb90/w480-h640/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgMsaIEpGCFn_wnmkgAvaGpnt1liIwYCRng2pUQpGGjG5kfR3AXpV4oZI7NeM4_w3C5xkCW5SwXhaz5XFbU4nvDLWt_utZbvCbDtGq03zRREQPLMgMhfywgqFTASp6LsaiVUFsSscaDb90/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgMsaIEpGCFn_wnmkgAvaGpnt1liIwYCRng2pUQpGGjG5kfR3AXpV4oZI7NeM4_w3C5xkCW5SwXhaz5XFbU4nvDLWt_utZbvCbDtGq03zRREQPLMgMhfywgqFTASp6LsaiVUFsSscaDb90/w480-h640/%255BUNSET%255D)
 *Crossing the mini Golden Gate Bridge*
 
 After about 21 miles, I arrived at Bob's office in downtown Sacramento. When Bob finished his phone call with his client we decided to put my bike in the back of Bob's truck and drive to Bob's house, about 8 miles away.  
@@ -20,5 +21,5 @@ For dinner, I helped Bob make a garden salad. Later, Bob cooked peas, corn, and 
   
 This morning, I woke up before 5. I took a shower and organized a few things. Bob told me he will take me to the Railroad Museum after breakfast since I'll be staying at Bob's house for today as well. I don't know what else is planned, but it doesn't matter. It's nice to wind down as my trip is coming to an end.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjfTGBUVPX5bphAY21geFHYkgidg1cTejGFjiEQI8mSvW7adgIiY9OqTRDCjrX756pdYeM3epubCQMzjYGKyc_0lzRa-3FUiqikFcuwzuVKhrwqZrR95vH7OxjLPN70zu6kUUSm2CdFj-g/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjfTGBUVPX5bphAY21geFHYkgidg1cTejGFjiEQI8mSvW7adgIiY9OqTRDCjrX756pdYeM3epubCQMzjYGKyc_0lzRa-3FUiqikFcuwzuVKhrwqZrR95vH7OxjLPN70zu6kUUSm2CdFj-g/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjfTGBUVPX5bphAY21geFHYkgidg1cTejGFjiEQI8mSvW7adgIiY9OqTRDCjrX756pdYeM3epubCQMzjYGKyc_0lzRa-3FUiqikFcuwzuVKhrwqZrR95vH7OxjLPN70zu6kUUSm2CdFj-g/w640-h480/%255BUNSET%255D)
 *Feeling like home*

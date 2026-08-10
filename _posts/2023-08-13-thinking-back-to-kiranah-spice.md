@@ -4,6 +4,7 @@ layout: post
 date: 2023-08-13
 ---
 
+
 Of all the temples and shrines I've visited in Kyoto I found the most Zen place at a vegetarian restaurant called Kiranah Spice. It's a simple restaurant that's run by just one woman. She's the waitress, the cook, the dishwasher, and the cashier. She seems happy. I can tell by the food. It was made with care and craft. She is the Artist in her restaurant and what she makes is Art. All by herself.
 
 The woman must be happy to serve her customers. She has found something other than work. Maybe it’s her passion or calling to serve a delicious meal. For her, life is in a plate of vegetarian curry over rice, or a simple salad. To me, life is in the details.

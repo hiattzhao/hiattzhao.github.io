@@ -4,6 +4,7 @@ layout: post
 date: 2023-04-08
 ---
 
+
 I’m taking the first of three rest days in Greensboro, NC, at my friend Crispin and his wife Margery’s house. I want to write about some of my thoughts on certain things that happened to me on this trip, mainly from my conversations with people such as Dave and Kathleen, Sarah and Jackie, and Crispin and Margery.
 
 First, on life.

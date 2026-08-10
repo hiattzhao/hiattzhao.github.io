@@ -4,6 +4,7 @@ layout: post
 date: 2021-12-02
 ---
 
+
 Well, according to the frequency of my blog posts in the past couple of months it looks like I have little interest in writing about FIRE and minimalism.
 
 Maybe I'm just being a minimalist for writing less or maybe it's my laziness, I've reached a point where I feel enough has been written and anything else is just excess. My journey to FIRE and minimalism still continues. I'm just at such a passive state where I'm coasting, literally.

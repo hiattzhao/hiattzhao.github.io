@@ -4,7 +4,8 @@ layout: post
 date: 2021-03-11
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEie9gpCP7gDeOOrSk41-ZLlosyRHYBnijB9RBHvEis0bezx-dTYoP5taVded4bzfTh6rsi-dNDiLkMtPKTvvj0zCAG_pGPoTk-1HaiGafiQRhcrSzfxAEBPEqo5fi-NtfAv7ddwNSWIPBc/w640-h405/Screen+Shot+2021-03-10+at+8.33.13+PM.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEie9gpCP7gDeOOrSk41-ZLlosyRHYBnijB9RBHvEis0bezx-dTYoP5taVded4bzfTh6rsi-dNDiLkMtPKTvvj0zCAG_pGPoTk-1HaiGafiQRhcrSzfxAEBPEqo5fi-NtfAv7ddwNSWIPBc/s1852/Screen+Shot+2021-03-10+at+8.33.13+PM.png)
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEie9gpCP7gDeOOrSk41-ZLlosyRHYBnijB9RBHvEis0bezx-dTYoP5taVded4bzfTh6rsi-dNDiLkMtPKTvvj0zCAG_pGPoTk-1HaiGafiQRhcrSzfxAEBPEqo5fi-NtfAv7ddwNSWIPBc/w640-h405/Screen+Shot+2021-03-10+at+8.33.13+PM.png)
 *Forbes Richest in 2020*
 
 One of the things I hate the most is the Forbes richest people list. It makes other people feel shitty about themselves. Also the fact that the list is full of lies. Lies that make you believe money is the end all be all.

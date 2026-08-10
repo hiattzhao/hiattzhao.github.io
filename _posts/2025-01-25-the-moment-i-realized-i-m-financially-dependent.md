@@ -4,6 +4,7 @@ layout: post
 date: 2025-01-25
 ---
 
+
 It has come to my attention that I’m not financially independent. In fact, far from it. I’m 100% financially dependent.
 
 My money is in a check account with a bank. My investments, including retirement accounts, are in a brokerage. Except for about $1000 in cash, I rely on the bank and the brokerage, along with credit card companies, for all my financial activities. It’s these corporations that I’m entrusting my financial assets to. Consequently, I’m at their mercy.

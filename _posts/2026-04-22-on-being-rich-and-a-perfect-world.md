@@ -4,6 +4,7 @@ layout: post
 date: 2026-04-22
 ---
 
+
 I want to write more personal essays when I travel so that I don’t get bored writing purely travel logs. This is my first one in a while…
 
 Today, I watched an YouTube interview video about a Chinese woman who is a billionaire. It made me wonder what would I do if I was a billionaire, or even just a millionaire.

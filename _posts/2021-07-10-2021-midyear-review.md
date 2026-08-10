@@ -4,6 +4,7 @@ layout: post
 date: 2021-07-10
 ---
 
+
 What a year it has been so far! We are in the second half of 2021 already. I want to give an update on my financial standings and discuss some things I want to do in the next six months.
 
 First, I want to congratulate myself on reaching my year-end goal a whole six month early. In December of last year, I set a goal of reach a net worth of $127,500 in a year. I’ve actually reached $130,000 a couple of weeks ago. Compound interest is indeed the eighth wonder of the world! Now, I’ve revised by projected net worth for the future years.

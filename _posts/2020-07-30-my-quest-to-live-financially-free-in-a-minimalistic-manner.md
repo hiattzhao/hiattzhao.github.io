@@ -4,7 +4,8 @@ layout: post
 date: 2020-07-30
 ---
 
-[![The road to financial freedom and minimalism](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiY0H6O8NketpdHyi1-JOkenuB9VscBmSNs3lvIbcZcuGBfM5BqiVUEtOM4_2OZQDtwKQbEl87d48WM7t1fuRetEcNjnQzNBZ_nw75C5YgLbvtpGuBYYvC6gWT3XGOQGY1zEE4EAhE7R9A/w640-h480/IMG_20180608_075919.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiY0H6O8NketpdHyi1-JOkenuB9VscBmSNs3lvIbcZcuGBfM5BqiVUEtOM4_2OZQDtwKQbEl87d48WM7t1fuRetEcNjnQzNBZ_nw75C5YgLbvtpGuBYYvC6gWT3XGOQGY1zEE4EAhE7R9A/s4032/IMG_20180608_075919.jpg)
+
+![The road to financial freedom and minimalism](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiY0H6O8NketpdHyi1-JOkenuB9VscBmSNs3lvIbcZcuGBfM5BqiVUEtOM4_2OZQDtwKQbEl87d48WM7t1fuRetEcNjnQzNBZ_nw75C5YgLbvtpGuBYYvC6gWT3XGOQGY1zEE4EAhE7R9A/w640-h480/IMG_20180608_075919.jpg)
 *The road to financial freedom and minimalism*
 
   

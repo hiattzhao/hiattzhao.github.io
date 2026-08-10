@@ -4,6 +4,7 @@ layout: post
 date: 2024-01-24
 ---
 
+
 It’s my 40th birthday and I’m chilling in the studio apartment that I rented in Manila. It’s more of a subpar hotel room with poor internet and a less-than-ideal bathroom, to say the least.
 
 Nonetheless, I’m celebrating this day in a foreign country, something I’ve always wanted to do at least once in my life.
@@ -28,5 +29,5 @@ Sure, if I didn’t have depression and mania in college my life would have turn
 
 For now, I like to look out the window on the 15th floor of this apartment building and see half of Manila in front of the backlit sun. Just enjoy this moment.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPpfFu8jTOhjAM8rg6Tx7PLbpbrnWCuVJdOiXINRvfXPrPexCbx24lHFtjmvCBw1GYnYvZBt7OsAqruBexpgqLvi0nxywYAAkJUbW36s6LTOxaMv0H4-zC2P70IX4ofS4gUzdEuHWSHFFaTlLxJrs9T8XcVu7330DtdrU9o9EpDIcrid99jlSt-MmvH5g/w640-h480/PXL_20240124_084732863.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPpfFu8jTOhjAM8rg6Tx7PLbpbrnWCuVJdOiXINRvfXPrPexCbx24lHFtjmvCBw1GYnYvZBt7OsAqruBexpgqLvi0nxywYAAkJUbW36s6LTOxaMv0H4-zC2P70IX4ofS4gUzdEuHWSHFFaTlLxJrs9T8XcVu7330DtdrU9o9EpDIcrid99jlSt-MmvH5g/s4032/PXL_20240124_084732863.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPpfFu8jTOhjAM8rg6Tx7PLbpbrnWCuVJdOiXINRvfXPrPexCbx24lHFtjmvCBw1GYnYvZBt7OsAqruBexpgqLvi0nxywYAAkJUbW36s6LTOxaMv0H4-zC2P70IX4ofS4gUzdEuHWSHFFaTlLxJrs9T8XcVu7330DtdrU9o9EpDIcrid99jlSt-MmvH5g/w640-h480/PXL_20240124_084732863.jpg)
 *A view of Manila from my room window*

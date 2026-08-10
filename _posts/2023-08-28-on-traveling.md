@@ -4,6 +4,7 @@ layout: post
 date: 2023-08-28
 ---
 
+
 I think I’ve became accustomed to Japan and thus I was tired of traveling. These past few days I’ve been traveling more intensively. Only staying in a city for a day or two. I think this change of pace has alleviated my boredom. Sometimes, slow travel should be mixed with fast travel for a better experience.
 
 I shouldn’t complain about traveling. Really, I shouldn’t. Traveling is the thing I wanted to do the most in my life. And now I’m finally doing it. I need to live in the moment and enjoy each day since I’ll probably will not be in the same place for a second time. Everyday is a gift and a blessing. Traveling is what makes me happy.

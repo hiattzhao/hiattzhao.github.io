@@ -4,6 +4,7 @@ layout: post
 date: 2023-03-18
 ---
 
+
 A couple of months ago, I was given the challenge of reducing all my possessions into three boxes since my housemate graciously offered to store my things while I’m on my cycling trip, but only three boxes. This morning, I finally sold my Lego sets, which are the last few items I needed to sell to complete this challenge.
 
 I’ve been trying to be a minimalist for a long time and it’s only now that I can truly identify as one. In the last two months, I sold or donated over 100 items, mainly on Facebook Marketplace. I want to document the challenges I had while downsizing and some surprising take-aways.
@@ -36,5 +37,5 @@ I also realized the true meaning of enough, both mentally and materialistically.
 
 Lastly, I’m very grateful to have my housemate to store my things while I’m cycling. And I’m so glad she gave me this challenge two months ago. Now I can cycle in peace. Just two more days until the start of my journey. The next post will be from the road!
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikpUzEbkSv3cq9tSoktB-SKem9raSJBIbK_z2AgJ7u6_NlFISjIC-GdbnxHrv8IFVBCLv7wK098zFN1-DKERWyOAqdS34igzS8LUv35pTbrgmdJzejIEsUtsgCP-av4yjfpq8qVokxB_Z4PSLfFj5e4_t6wjJzAk97KF_ZHF5hQHEYvmHlzlz1VBI0/w480-h640/PXL_20230317_143147036.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikpUzEbkSv3cq9tSoktB-SKem9raSJBIbK_z2AgJ7u6_NlFISjIC-GdbnxHrv8IFVBCLv7wK098zFN1-DKERWyOAqdS34igzS8LUv35pTbrgmdJzejIEsUtsgCP-av4yjfpq8qVokxB_Z4PSLfFj5e4_t6wjJzAk97KF_ZHF5hQHEYvmHlzlz1VBI0/s4032/PXL_20230317_143147036.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikpUzEbkSv3cq9tSoktB-SKem9raSJBIbK_z2AgJ7u6_NlFISjIC-GdbnxHrv8IFVBCLv7wK098zFN1-DKERWyOAqdS34igzS8LUv35pTbrgmdJzejIEsUtsgCP-av4yjfpq8qVokxB_Z4PSLfFj5e4_t6wjJzAk97KF_ZHF5hQHEYvmHlzlz1VBI0/w480-h640/PXL_20230317_143147036.jpg)
 *All my things (except my cycling stuff)!*

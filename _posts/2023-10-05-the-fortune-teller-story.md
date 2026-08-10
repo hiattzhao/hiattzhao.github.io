@@ -4,6 +4,7 @@ layout: post
 date: 2023-10-05
 ---
 
+
 In South Korea, I didn’t have that much of a good time. First, I was in a very poorly maintained hostel in Seoul. I was also rejected by what I thought was a promising first date from Bumble. When I switched to another hostel in Seoul it had a dark ambiance. With the rain, I was feeling down for the last few days.
 
 When I went to Busan, I immediate got sick the first night I was at the hostel. It turned out to be Covid since I lost my sense of smell and taste a few days later. Along with a national Korean “thanksgiving” holiday I couldn’t really go anywhere and felt like crap. The infuriating thing is that the hostel didn’t wash their blankets after each guest leaves. I told the manager about me having Covid and that they don’t wash their blankets. The manager had a hard time believing I had Covid.

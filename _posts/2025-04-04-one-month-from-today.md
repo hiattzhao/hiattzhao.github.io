@@ -4,6 +4,7 @@ layout: post
 date: 2025-04-04
 ---
 
+
 I’ve been waiting to write this post for a while, but first is a recap of the past eleven months or so since I came back from my Asia backpacking trip.
 
 In short, I didn’t do much. I was planning to learn Android programming so I bought a used ThinkPad and installed Linux Mint on it. As it turned out I had little motivation to code an Android app. Then I switched to relearning more web programming by completing the first half of[The Odin Project](https://www.theodinproject.com), however, my motivation hit a wall once again.
@@ -18,11 +19,11 @@ Now, it’s spring time and I feel more energized. I want to take the opportunit
 
 Once I reach Santiago, Chile, I might take a flight to New Zealand and cycle westward on the other side of the world. Or if I have $9000 to spare, I might take a ferry to Antarctica from Ushuaia, Argentina. After that, I might bicycle to Brazil and take a flight to Europe and go east bound to Asia. But I hear the road are very dangerous in Brazil due to large trucks, I’ll have to see when I get near Brazil I guess.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhh6FZfH9uOF_uhzwmheW3dEKBprhkTAix441zFeUhBKaXc4ojz9klvvgRDnCaCaRXDIvsxo7tZCTMfMUE3RdRGTOjEEWbqaoHXsLnW0HZWyBRWc6FvxE4i6en6ja3EhOp49EJOHFjRi7CmXXoXvljUPOFkrCqumMbDAJZgxLNCIi_mlF-gBOIH6oTG-Lw/w514-h640/Americas2.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhh6FZfH9uOF_uhzwmheW3dEKBprhkTAix441zFeUhBKaXc4ojz9klvvgRDnCaCaRXDIvsxo7tZCTMfMUE3RdRGTOjEEWbqaoHXsLnW0HZWyBRWc6FvxE4i6en6ja3EhOp49EJOHFjRi7CmXXoXvljUPOFkrCqumMbDAJZgxLNCIi_mlF-gBOIH6oTG-Lw/s1568/Americas2.png)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhh6FZfH9uOF_uhzwmheW3dEKBprhkTAix441zFeUhBKaXc4ojz9klvvgRDnCaCaRXDIvsxo7tZCTMfMUE3RdRGTOjEEWbqaoHXsLnW0HZWyBRWc6FvxE4i6en6ja3EhOp49EJOHFjRi7CmXXoXvljUPOFkrCqumMbDAJZgxLNCIi_mlF-gBOIH6oTG-Lw/w514-h640/Americas2.png)
 *First half of my world bicycle tour*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgeczqNdSVYDROKtoDDJHEtebR1TbqYSxSo-jmjNXz7GnIXicFomCHDxcW4UJQ743hICP_jA7rshsUwFjeyejxSoeZroLJgxN6yKPNFAnna-OFCkhcKS0EyV688wSQC3tGVFI4ZnXBVX0SNvUgYmGfX5S8HxeUDUvxpjKPce1bXTJOuDdggciGCG8PHtCk/w640-h398/Eurasia.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgeczqNdSVYDROKtoDDJHEtebR1TbqYSxSo-jmjNXz7GnIXicFomCHDxcW4UJQ743hICP_jA7rshsUwFjeyejxSoeZroLJgxN6yKPNFAnna-OFCkhcKS0EyV688wSQC3tGVFI4ZnXBVX0SNvUgYmGfX5S8HxeUDUvxpjKPce1bXTJOuDdggciGCG8PHtCk/s2338/Eurasia.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgeczqNdSVYDROKtoDDJHEtebR1TbqYSxSo-jmjNXz7GnIXicFomCHDxcW4UJQ743hICP_jA7rshsUwFjeyejxSoeZroLJgxN6yKPNFAnna-OFCkhcKS0EyV688wSQC3tGVFI4ZnXBVX0SNvUgYmGfX5S8HxeUDUvxpjKPce1bXTJOuDdggciGCG8PHtCk/w640-h398/Eurasia.jpg)
 *The second half is still unknown. This is an approximation.*
 
   

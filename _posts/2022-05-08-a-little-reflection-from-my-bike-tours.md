@@ -4,6 +4,7 @@ layout: post
 date: 2022-05-08
 ---
 
+
 <p style="font-stretch: normal; line-height: normal; margin: 0px;"><span style="font-family: inherit;">I feel my blog posts are just bicycling logs. They don't tell the reader about my feelings too much. They simply serve as memory placeholders that mark a place and time on my trips. I will try to do better on my next travel blog to include more of my feelings even though it takes more effort and time to write down how I feel in addition to what I did. This post is more about my thoughts on cycling long distances and about life.</span></p>
 <p style="font-stretch: normal; line-height: normal; margin: 0px; min-height: 25px;"><span style="font-family: inherit;"><br /></span></p>
 <p style="font-stretch: normal; line-height: normal; margin: 0px;"><span style="font-family: inherit;">"What is the meaning of life?" I'm sure you have thought about this question at least once in your life. I had given much thought to this question when I was in my twenties. The short answer is "To live a life of meaning." (I stole that line somewhere.) The long answer is that the meaning of life depends on the person, the time, and the place. And it changes throughout one's life. To me, at this moment in my life, I want to experience life by traveling the world. The best way to do that is by bicycling. At about 10 miles per hour, this is the perfect speed to see the world.</span></p>

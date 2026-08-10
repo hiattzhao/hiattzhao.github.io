@@ -4,6 +4,7 @@ layout: post
 date: 2025-07-10
 ---
 
+
 This blog post is somewhat of a rant as I wait for the people to disappear from the beach in Carleton-sur-Mer so I can stealth camp. I don’t know how long people will be here or will they care if I set up my tent on the beach, but I’ve been looking up at the sky for too long and thinking about life.
 
 Today, I rode 54.8 miles to this beach, which is right by the Camping de Carleton-sur-Mer campground. I decided to not pay for a campsite and try stealth camping since I’ve been spending too much money on housing lately. Though I did pay CA$1 for a shower at the campground.
@@ -50,37 +51,37 @@ Addendum:
 
 I just want to add a few things about the road condition in case any future cyclists go through the area. Going through downtown Paspébiac, there are a lot of potholes on the shoulder of the road. I had to be extra careful during the morning rush hour traffic due to the large number of trucks.
 
-I also had lunch at Le Panier à frites in New Richmond where I chatted with a couple of people. One of them was a woman named Melanie who works at the nearby railroad. Upon hearing me talking about my trip to another couple, Melanie requested my contact card from me. I hope she finds my journey interesting.[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhn_aK1chSwKq2GWS4zKcb6LL3Ge9EnIIp2fe2CCWX4EB-98HtfR3WQpvV5RTeE-NnTIA0jkr8DmYmDICtdGuHb84XgYohuqPpjB_-4XYpKDtcW2602WGSRoK3J4Mp1M7uF1As2yfu1qJpufUcLG8yvxw8TYljh1cKhTyRkLLlrqn23lKr4i1bh-pgexc0/w640-h480/PXL_20250709_122822150.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhn_aK1chSwKq2GWS4zKcb6LL3Ge9EnIIp2fe2CCWX4EB-98HtfR3WQpvV5RTeE-NnTIA0jkr8DmYmDICtdGuHb84XgYohuqPpjB_-4XYpKDtcW2602WGSRoK3J4Mp1M7uF1As2yfu1qJpufUcLG8yvxw8TYljh1cKhTyRkLLlrqn23lKr4i1bh-pgexc0/s4624/PXL_20250709_122822150.jpg)
+I also had lunch at Le Panier à frites in New Richmond where I chatted with a couple of people. One of them was a woman named Melanie who works at the nearby railroad. Upon hearing me talking about my trip to another couple, Melanie requested my contact card from me. I hope she finds my journey interesting.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhn_aK1chSwKq2GWS4zKcb6LL3Ge9EnIIp2fe2CCWX4EB-98HtfR3WQpvV5RTeE-NnTIA0jkr8DmYmDICtdGuHb84XgYohuqPpjB_-4XYpKDtcW2602WGSRoK3J4Mp1M7uF1As2yfu1qJpufUcLG8yvxw8TYljh1cKhTyRkLLlrqn23lKr4i1bh-pgexc0/w640-h480/PXL_20250709_122822150.jpg)
 *Love riding by the water*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgbFco4UZiBS_tjmQQ9-SHRKbGV0wOdgzjxQ8Ysxyjw0VW8n8iZcMS2Ug5Elmq2_RFx20Ucdu0nHJEg1TrYZLZzSKxvcL2K6-MLBQ4l_HLv6v8t0Kzpt2YWog6vp38e5coO98jhLtWUKXescpMfQ_T0bDkKAV1_1eTYngYTIAvm071Au7j9IIoZnLfUTCg/w640-h480/PXL_20250709_131717980.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgbFco4UZiBS_tjmQQ9-SHRKbGV0wOdgzjxQ8Ysxyjw0VW8n8iZcMS2Ug5Elmq2_RFx20Ucdu0nHJEg1TrYZLZzSKxvcL2K6-MLBQ4l_HLv6v8t0Kzpt2YWog6vp38e5coO98jhLtWUKXescpMfQ_T0bDkKAV1_1eTYngYTIAvm071Au7j9IIoZnLfUTCg/s4624/PXL_20250709_131717980.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgbFco4UZiBS_tjmQQ9-SHRKbGV0wOdgzjxQ8Ysxyjw0VW8n8iZcMS2Ug5Elmq2_RFx20Ucdu0nHJEg1TrYZLZzSKxvcL2K6-MLBQ4l_HLv6v8t0Kzpt2YWog6vp38e5coO98jhLtWUKXescpMfQ_T0bDkKAV1_1eTYngYTIAvm071Au7j9IIoZnLfUTCg/w640-h480/PXL_20250709_131717980.jpg)
 *Cool sculpture by a rest stop*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4moT8pIslOgrQmPwkMPaZ9LzAItAvEDFl2IqMYdvruTdaSl0cWg0yzRkADvw_neKdrlXioUitTJj-k1lyP3oy4Q8PdfadP7wP3NhGizLZGzx_ywcuM03RiAuXU5T-3rYkilkJgRwc0qpDwlxsVCp7w2QLOnLId9iriVh1xlzdCHt1wlOpeTSfI2jpr0A/w640-h480/PXL_20250709_141817110.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4moT8pIslOgrQmPwkMPaZ9LzAItAvEDFl2IqMYdvruTdaSl0cWg0yzRkADvw_neKdrlXioUitTJj-k1lyP3oy4Q8PdfadP7wP3NhGizLZGzx_ywcuM03RiAuXU5T-3rYkilkJgRwc0qpDwlxsVCp7w2QLOnLId9iriVh1xlzdCHt1wlOpeTSfI2jpr0A/s4624/PXL_20250709_141817110.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4moT8pIslOgrQmPwkMPaZ9LzAItAvEDFl2IqMYdvruTdaSl0cWg0yzRkADvw_neKdrlXioUitTJj-k1lyP3oy4Q8PdfadP7wP3NhGizLZGzx_ywcuM03RiAuXU5T-3rYkilkJgRwc0qpDwlxsVCp7w2QLOnLId9iriVh1xlzdCHt1wlOpeTSfI2jpr0A/w640-h480/PXL_20250709_141817110.jpg)
 *Road side attraction*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLqoYfO1eOqRq_dBKX5gIpTh-CYCYF0lrz2IVcXQF51O4FiUuJqWgNfbZbvHpE8YWi5gP_2rP8Vlmyt3QwSuB_vWlmc1rZ43Gjmgm2330Qw71oq8_rSxbAPQ-jkHMwvXQSK5FWTIRnwSe5Rd-COfIuoV_ENiasMN5ondzltIeWf_wMzcQpaM9uMh4Aq4Y/w640-h480/PXL_20250709_145903227.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLqoYfO1eOqRq_dBKX5gIpTh-CYCYF0lrz2IVcXQF51O4FiUuJqWgNfbZbvHpE8YWi5gP_2rP8Vlmyt3QwSuB_vWlmc1rZ43Gjmgm2330Qw71oq8_rSxbAPQ-jkHMwvXQSK5FWTIRnwSe5Rd-COfIuoV_ENiasMN5ondzltIeWf_wMzcQpaM9uMh4Aq4Y/s4624/PXL_20250709_145903227.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLqoYfO1eOqRq_dBKX5gIpTh-CYCYF0lrz2IVcXQF51O4FiUuJqWgNfbZbvHpE8YWi5gP_2rP8Vlmyt3QwSuB_vWlmc1rZ43Gjmgm2330Qw71oq8_rSxbAPQ-jkHMwvXQSK5FWTIRnwSe5Rd-COfIuoV_ENiasMN5ondzltIeWf_wMzcQpaM9uMh4Aq4Y/w640-h480/PXL_20250709_145903227.jpg)
 *More hills*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiokm-cZM2JMDaANqBIkROpyg0WJI9ywOnjHXXbr07Amp1eyM1XD5PuO74NjD-PGm5blqj4UFQ2dZ0g9rUvIUVFGX2OJc0w6KCdciCIjPCcJ9h_hwTO4DO5vZrrpMICgHbT3u7Bznv9wD4WhFgaPSd3sWaiFp6Qv0AgXtiNWQ7tuJ8zTcAYhYC997X6rIQ/w640-h480/PXL_20250709_170454365.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiokm-cZM2JMDaANqBIkROpyg0WJI9ywOnjHXXbr07Amp1eyM1XD5PuO74NjD-PGm5blqj4UFQ2dZ0g9rUvIUVFGX2OJc0w6KCdciCIjPCcJ9h_hwTO4DO5vZrrpMICgHbT3u7Bznv9wD4WhFgaPSd3sWaiFp6Qv0AgXtiNWQ7tuJ8zTcAYhYC997X6rIQ/s4624/PXL_20250709_170454365.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiokm-cZM2JMDaANqBIkROpyg0WJI9ywOnjHXXbr07Amp1eyM1XD5PuO74NjD-PGm5blqj4UFQ2dZ0g9rUvIUVFGX2OJc0w6KCdciCIjPCcJ9h_hwTO4DO5vZrrpMICgHbT3u7Bznv9wD4WhFgaPSd3sWaiFp6Qv0AgXtiNWQ7tuJ8zTcAYhYC997X6rIQ/w640-h480/PXL_20250709_170454365.jpg)
 *First Nation native land*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgPb6A3aF6jAWX2kCchtqzU6m3Rp9n2ilg1efIetsO1DX1VwDIwGvYDQkBnEjjM-fgAHE0BdTRQN8mPkV6ZVZNIz78FtNJPrHIUIjEjVZMKWsD9JCgiYjPXVsZ308AZirDvVdQXt9qkWiNx_ayJRvaGBxSaKeQHmL2KA2M2agXmMd-2mlKYISN3YcYFMgg/w640-h480/PXL_20250709_184424896.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgPb6A3aF6jAWX2kCchtqzU6m3Rp9n2ilg1efIetsO1DX1VwDIwGvYDQkBnEjjM-fgAHE0BdTRQN8mPkV6ZVZNIz78FtNJPrHIUIjEjVZMKWsD9JCgiYjPXVsZ308AZirDvVdQXt9qkWiNx_ayJRvaGBxSaKeQHmL2KA2M2agXmMd-2mlKYISN3YcYFMgg/s4624/PXL_20250709_184424896.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgPb6A3aF6jAWX2kCchtqzU6m3Rp9n2ilg1efIetsO1DX1VwDIwGvYDQkBnEjjM-fgAHE0BdTRQN8mPkV6ZVZNIz78FtNJPrHIUIjEjVZMKWsD9JCgiYjPXVsZ308AZirDvVdQXt9qkWiNx_ayJRvaGBxSaKeQHmL2KA2M2agXmMd-2mlKYISN3YcYFMgg/w640-h480/PXL_20250709_184424896.jpg)
 *Looking at Carleton-sur-Mer*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWLE-kj29_zW1KeEHK39u855IZqjJgLZy8b8xQCjiJ4gDxrIeXLcWZDkz-R_hKFKxo1aXGAq-6kJtW4ZbHarIx36JRN-gfSv3KvlHIkSYb3MBzTAubCmA5LHlcCtUs-eF6G0BQCifLIGm1TlpgZbr50Bab4cJSNys_y4ctcHLpQR8HDwUCfiH7kQqYkJg/w640-h480/PXL_20250709_185548565.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWLE-kj29_zW1KeEHK39u855IZqjJgLZy8b8xQCjiJ4gDxrIeXLcWZDkz-R_hKFKxo1aXGAq-6kJtW4ZbHarIx36JRN-gfSv3KvlHIkSYb3MBzTAubCmA5LHlcCtUs-eF6G0BQCifLIGm1TlpgZbr50Bab4cJSNys_y4ctcHLpQR8HDwUCfiH7kQqYkJg/s4624/PXL_20250709_185548565.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWLE-kj29_zW1KeEHK39u855IZqjJgLZy8b8xQCjiJ4gDxrIeXLcWZDkz-R_hKFKxo1aXGAq-6kJtW4ZbHarIx36JRN-gfSv3KvlHIkSYb3MBzTAubCmA5LHlcCtUs-eF6G0BQCifLIGm1TlpgZbr50Bab4cJSNys_y4ctcHLpQR8HDwUCfiH7kQqYkJg/w640-h480/PXL_20250709_185548565.jpg)
 *Another cool sculpture, by the light house*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEidwpk1Go_VcOWXJjvqqYUyKfmCPftsBx53auYCrffVJ2dGv5Qh9bq6N5RmzhJXun70gayBLq5UrhXWgUPHGnyZQC8Tu2FAX1AOTNVIe9PRUQo3FPu4kCHkrshxL6uveRW-wnroEpXtLZRZ2-vjXHDJKZxJSYvIUoLfFe2pU1SBdAxBZXc7OdTIr6vaKD4/w640-h480/PXL_20250709_200627957.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEidwpk1Go_VcOWXJjvqqYUyKfmCPftsBx53auYCrffVJ2dGv5Qh9bq6N5RmzhJXun70gayBLq5UrhXWgUPHGnyZQC8Tu2FAX1AOTNVIe9PRUQo3FPu4kCHkrshxL6uveRW-wnroEpXtLZRZ2-vjXHDJKZxJSYvIUoLfFe2pU1SBdAxBZXc7OdTIr6vaKD4/s4624/PXL_20250709_200627957.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEidwpk1Go_VcOWXJjvqqYUyKfmCPftsBx53auYCrffVJ2dGv5Qh9bq6N5RmzhJXun70gayBLq5UrhXWgUPHGnyZQC8Tu2FAX1AOTNVIe9PRUQo3FPu4kCHkrshxL6uveRW-wnroEpXtLZRZ2-vjXHDJKZxJSYvIUoLfFe2pU1SBdAxBZXc7OdTIr6vaKD4/w640-h480/PXL_20250709_200627957.jpg)
 *The beach*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjhnIfVoxeIsTVQFujrlKnYETjYnQGvMzjYrJrECgk5eqDtJ7QKbKQ3dlDL-_HTihiEgab5OI8khnwguXGb1UVN852CSvsdHz_kE4udij7yirutuoFZCSd8QPTvjLHkfb3fqld7B6kExV-_Ln0IbyRYHU1XDrvnTHLymeZIbRYrnNrdGLgye4mTRG7p3tE/w480-h640/PXL_20250709_200956920.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjhnIfVoxeIsTVQFujrlKnYETjYnQGvMzjYrJrECgk5eqDtJ7QKbKQ3dlDL-_HTihiEgab5OI8khnwguXGb1UVN852CSvsdHz_kE4udij7yirutuoFZCSd8QPTvjLHkfb3fqld7B6kExV-_Ln0IbyRYHU1XDrvnTHLymeZIbRYrnNrdGLgye4mTRG7p3tE/s4624/PXL_20250709_200956920.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjhnIfVoxeIsTVQFujrlKnYETjYnQGvMzjYrJrECgk5eqDtJ7QKbKQ3dlDL-_HTihiEgab5OI8khnwguXGb1UVN852CSvsdHz_kE4udij7yirutuoFZCSd8QPTvjLHkfb3fqld7B6kExV-_Ln0IbyRYHU1XDrvnTHLymeZIbRYrnNrdGLgye4mTRG7p3tE/w480-h640/PXL_20250709_200956920.jpg)
 *Beautiful scenery*

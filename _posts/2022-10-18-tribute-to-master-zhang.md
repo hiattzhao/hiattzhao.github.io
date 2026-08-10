@@ -4,6 +4,7 @@ layout: post
 date: 2022-10-18
 ---
 
+
 Yesterday, I found out the death of an old family friend. He went by the name of Master Zhang and was a master of many things, including Feng Shui, fortune telling, Chinese herbal medicine, etc. I learned from a mutual friend that he passed away in a hospital on September 15, 2017, due to heart disease or a heart attack.
 
 Master Zhang was my mom's friend when she came to the United States in the mid-80s. I'm sure he helped her in making many life decisions with his skill in fortune telling.
@@ -20,5 +21,5 @@ I thought about Master Zhang from time to time, but never reached out. There was
 
 Master Zhang was a dear family friend. I wish I had learned more from him. He was such a wise and interesting man. I will miss him dearly.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHDlHyF7WdNCwt238AJhzU-7WydbHk3db0YyyrYxJhtb01nRWthRfkoyiBIfVx3Nqc7bN9hSBtk1Zm-OES6_nhGETQ9f1x_SMUH6f-7hKk_kWtyivr8923YoY0DLO9LLPG8F1J9qtRVS0vo5P--BMLAUGp93vlMHBRkwCnv12op749wA3Lq4AKpfMv/w400-h266/2008Thanksgiving32@0.5x.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHDlHyF7WdNCwt238AJhzU-7WydbHk3db0YyyrYxJhtb01nRWthRfkoyiBIfVx3Nqc7bN9hSBtk1Zm-OES6_nhGETQ9f1x_SMUH6f-7hKk_kWtyivr8923YoY0DLO9LLPG8F1J9qtRVS0vo5P--BMLAUGp93vlMHBRkwCnv12op749wA3Lq4AKpfMv/s1728/2008Thanksgiving32@0.5x.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHDlHyF7WdNCwt238AJhzU-7WydbHk3db0YyyrYxJhtb01nRWthRfkoyiBIfVx3Nqc7bN9hSBtk1Zm-OES6_nhGETQ9f1x_SMUH6f-7hKk_kWtyivr8923YoY0DLO9LLPG8F1J9qtRVS0vo5P--BMLAUGp93vlMHBRkwCnv12op749wA3Lq4AKpfMv/w400-h266/2008Thanksgiving32@0.5x.jpg)
 *Master Zhang (2008)*

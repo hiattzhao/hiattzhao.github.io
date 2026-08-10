@@ -4,13 +4,14 @@ layout: post
 date: 2025-12-15
 ---
 
+
 First is a summary of my trip in terms of the routes I've taken. I started the trip on a bicycle and bike toured to Canada, United Kingdom, The Netherlands, Germany, and Poland. I had to store my bicycle in Wroclaw, Poland, since the weather got cold. Then I backpacked to Prague and Dresden before taking a flight to Cyprus to get out of the Schengen Area. I then went to Jordan and Egypt before coming back to the US.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpldD5tDK72pX5xKQGN6dB0pCy4xpxsGWPzDsX7gnbX4KcSSGGEFJyGJVTQtE4MVZO-xJlC8o5yiJmB-597euxJklseRJeBNwwpIdEQhVtrfCX8XMVVopqDctN4RfgVvods6LMMAuhUxRF32175eDLQ4Bmq54ymXaFnjq19i1C0wRtFuDKn9R-0UHOYnQ/w640-h418/1Map.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpldD5tDK72pX5xKQGN6dB0pCy4xpxsGWPzDsX7gnbX4KcSSGGEFJyGJVTQtE4MVZO-xJlC8o5yiJmB-597euxJklseRJeBNwwpIdEQhVtrfCX8XMVVopqDctN4RfgVvods6LMMAuhUxRF32175eDLQ4Bmq54ymXaFnjq19i1C0wRtFuDKn9R-0UHOYnQ/s1985/1Map.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpldD5tDK72pX5xKQGN6dB0pCy4xpxsGWPzDsX7gnbX4KcSSGGEFJyGJVTQtE4MVZO-xJlC8o5yiJmB-597euxJklseRJeBNwwpIdEQhVtrfCX8XMVVopqDctN4RfgVvods6LMMAuhUxRF32175eDLQ4Bmq54ymXaFnjq19i1C0wRtFuDKn9R-0UHOYnQ/w640-h418/1Map.jpg)
 *Part one of my 2025 bicycle tour route in North America*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhD8IfxHxKugS-RLin4LRjkRtvLor4lyg3IQRWK-HQULmsgO1yN_bhpfyclecAvRt6ti3N-a5wEs37U0G7CWHhzkoz335NFQhPDmQFsmEZrvrvvkrxxJcs1NDXzHiNegBDDs0gR99SQoEOMM5Ute-kUaz3VIBW4shdbusW1ANYQvrTLBcObjUdaLBV_LiI/w640-h310/2Map.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhD8IfxHxKugS-RLin4LRjkRtvLor4lyg3IQRWK-HQULmsgO1yN_bhpfyclecAvRt6ti3N-a5wEs37U0G7CWHhzkoz335NFQhPDmQFsmEZrvrvvkrxxJcs1NDXzHiNegBDDs0gR99SQoEOMM5Ute-kUaz3VIBW4shdbusW1ANYQvrTLBcObjUdaLBV_LiI/s2614/2Map.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhD8IfxHxKugS-RLin4LRjkRtvLor4lyg3IQRWK-HQULmsgO1yN_bhpfyclecAvRt6ti3N-a5wEs37U0G7CWHhzkoz335NFQhPDmQFsmEZrvrvvkrxxJcs1NDXzHiNegBDDs0gR99SQoEOMM5Ute-kUaz3VIBW4shdbusW1ANYQvrTLBcObjUdaLBV_LiI/w640-h310/2Map.jpg)
 *Part two of my 2025 bicycle route in Europe*
 
   

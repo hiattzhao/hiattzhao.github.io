@@ -4,7 +4,8 @@ layout: post
 date: 2023-09-03
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjtwP_y40DFWixlx25FNZ5nZ3DyGij9xMWWDuG4xHCCjM4k56ORgF3ecLlKvO-FIOHmBfEz9Ix3pjK7WNC_7NJGtlykRwwZMtTolYLvvLd0A2AihEwrbVj2P5in0Ux2hl8A6YIaIaLsB1gmsOHn3A4g2Ux1sRcgEcygo9DMCuPAAJWtb-YF4ZDmup4AY2c/w640-h480/TravelInventoryLabels1.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjtwP_y40DFWixlx25FNZ5nZ3DyGij9xMWWDuG4xHCCjM4k56ORgF3ecLlKvO-FIOHmBfEz9Ix3pjK7WNC_7NJGtlykRwwZMtTolYLvvLd0A2AihEwrbVj2P5in0Ux2hl8A6YIaIaLsB1gmsOHn3A4g2Ux1sRcgEcygo9DMCuPAAJWtb-YF4ZDmup4AY2c/s4032/TravelInventoryLabels1.jpg)
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjtwP_y40DFWixlx25FNZ5nZ3DyGij9xMWWDuG4xHCCjM4k56ORgF3ecLlKvO-FIOHmBfEz9Ix3pjK7WNC_7NJGtlykRwwZMtTolYLvvLd0A2AihEwrbVj2P5in0Ux2hl8A6YIaIaLsB1gmsOHn3A4g2Ux1sRcgEcygo9DMCuPAAJWtb-YF4ZDmup4AY2c/w640-h480/TravelInventoryLabels1.jpg)
 *Figure 1: Everything my backpack can hold*
 
 The hat was bought in Hawaii due to the recommendations from two people whom I had met. They warned me to get a hat to protect my head against the hot summer sun. So I listened.
@@ -16,7 +17,7 @@ I bought a metal water bottle after seeing one selling for less than $10 in Hime
 All these items can fit into the 22 liter backpack. I'm not sure how much it weighs now, but at the Honolulu Airport it weighed at 6.6 kg, or 14.5 pounds.
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1zqOXk8ddweIO2bHlTYRIDBTo1yXUaYWXCDExI0PoQhERBz5MCKq7hhTewAdNRr0gw1E23d8F0jnRO2Fu_nKUEOSwLI28T3Fy0J-JJ82Dt1okyAimnaMixesmE6teyujXVwKGw6IMgqmrhx8gqnFa6TVdUhicpZ5aGqpSvdZ03NKipAEuNcJqGghF_BM/w640-h480/TravelInventoryLabels2.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1zqOXk8ddweIO2bHlTYRIDBTo1yXUaYWXCDExI0PoQhERBz5MCKq7hhTewAdNRr0gw1E23d8F0jnRO2Fu_nKUEOSwLI28T3Fy0J-JJ82Dt1okyAimnaMixesmE6teyujXVwKGw6IMgqmrhx8gqnFa6TVdUhicpZ5aGqpSvdZ03NKipAEuNcJqGghF_BM/s4032/TravelInventoryLabels2.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh1zqOXk8ddweIO2bHlTYRIDBTo1yXUaYWXCDExI0PoQhERBz5MCKq7hhTewAdNRr0gw1E23d8F0jnRO2Fu_nKUEOSwLI28T3Fy0J-JJ82Dt1okyAimnaMixesmE6teyujXVwKGw6IMgqmrhx8gqnFa6TVdUhicpZ5aGqpSvdZ03NKipAEuNcJqGghF_BM/w640-h480/TravelInventoryLabels2.jpg)
 *Figure 2: Clothing*
 
 This picture has all the clothing I'm carrying and they all fit in the clothing bag. There are three sets of clothing, including the one I'm wearing. I had to buy a pair of shorts in Hawaii since I didn't want to wear my swim trunks as regular shorts.
@@ -27,12 +28,12 @@ I bought a white undershirt at a 7 Eleven in Kyoto because I needed to wear some
 
 I usually do laundry every 7 to 10 days depending on how sweaty I get. The good thing is that my shirts and socks are made from wool, which is more breathable and stinks less than cotton.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEicMPc0yPWfW_fsmt0GBNJsLcT3Ws3YKRwqKWFApuiGTc5d3TC3GlB3k3gQvQDSglrC2FrawCVpb2njEakZg3rOxCg83FUKmrvBcXtAYfopxi6uLnZUhBr809C0yqw1KXuFv8rznn53J9EkhUWp4-_E_7vMH7E5lMB2b_S3tW4LP7vSysqeI8WYob2NGfA/w640-h480/TravelInventoryLabels3.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEicMPc0yPWfW_fsmt0GBNJsLcT3Ws3YKRwqKWFApuiGTc5d3TC3GlB3k3gQvQDSglrC2FrawCVpb2njEakZg3rOxCg83FUKmrvBcXtAYfopxi6uLnZUhBr809C0yqw1KXuFv8rznn53J9EkhUWp4-_E_7vMH7E5lMB2b_S3tW4LP7vSysqeI8WYob2NGfA/s4032/TravelInventoryLabels3.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEicMPc0yPWfW_fsmt0GBNJsLcT3Ws3YKRwqKWFApuiGTc5d3TC3GlB3k3gQvQDSglrC2FrawCVpb2njEakZg3rOxCg83FUKmrvBcXtAYfopxi6uLnZUhBr809C0yqw1KXuFv8rznn53J9EkhUWp4-_E_7vMH7E5lMB2b_S3tW4LP7vSysqeI8WYob2NGfA/w640-h480/TravelInventoryLabels3.jpg)
 *Figure 3: Toiletries and Medicine*
 
 This toiletry bag contains more things than I need. For example, I never used the first aid kit and I rarely used the bug repellent and bug spray. The anti-itch eye drops for my allergies is useless since it's not spring anymore. I take my vitamins on an inconsistent basis. I have two soap bars, though the one in the case is almost gone. There are two extra tooth brushes (the other I got recently so it's not pictured) that were from two guest houses. I will use them as soon as the current one is done. The laundry leaves that I bought at the REI in Seattle is useless, too, since I don't wash my clothes by hand in Japan, though I might use them in other countries. I don't use sunblock anymore, though it might come handy in Southeast Asia if it's too hot there. The rest of the items, such as medicine, tooth paste, tooth brush, nail clippers, and razor I use on a regular basis.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiNHdBXGGfTGDwts0tk7VDT6lIH2xatNv6g5tlrqI1KGt-tprVCOCBiFNqAwdHNjEsc2OXTFoDkeQ2ExQwh8JIeKWOcvhmF6wq7hMfsBvXL7y_Fv5jZiLjA9htiuKkjnK0ZZ6c2pU9WgmBfLAneoRsNR0J80wmqA_1KA6eS3f1wlVZRebj2PQhpTq2QhkY/w640-h480/TravelInventoryLabels4.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiNHdBXGGfTGDwts0tk7VDT6lIH2xatNv6g5tlrqI1KGt-tprVCOCBiFNqAwdHNjEsc2OXTFoDkeQ2ExQwh8JIeKWOcvhmF6wq7hMfsBvXL7y_Fv5jZiLjA9htiuKkjnK0ZZ6c2pU9WgmBfLAneoRsNR0J80wmqA_1KA6eS3f1wlVZRebj2PQhpTq2QhkY/s4032/TravelInventoryLabels4.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiNHdBXGGfTGDwts0tk7VDT6lIH2xatNv6g5tlrqI1KGt-tprVCOCBiFNqAwdHNjEsc2OXTFoDkeQ2ExQwh8JIeKWOcvhmF6wq7hMfsBvXL7y_Fv5jZiLjA9htiuKkjnK0ZZ6c2pU9WgmBfLAneoRsNR0J80wmqA_1KA6eS3f1wlVZRebj2PQhpTq2QhkY/w640-h480/TravelInventoryLabels4.jpg)
 *Figure 4: Electronics and Others*
 
 These items go into the front pocket of my backpack, with the passport and the earbuds go into the outer pocket.
@@ -56,7 +57,7 @@ The combination lock is useful for storage lockers in hostels, but I never felt 
 I bought a small gift in Kyoto. I was going to send it home, but it's so small that I decided to simply carry it with me, perhaps to act as a lucky charm.
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvpP8f6tNMB4Isys2nTmqpj4EVtgS4VG_SY89B9D0Fzv0L1MPj7UBegO8TEIm86W3FR2WYc1QqDRuMFNF8eUxuqgiQ_p2sNVlFKF2xA7gyOgoHZ5qYG-OQ92JuNvB_iQROZ6Wz5IkdlAZ__G0mZzaZ0V5K2a6gjKaXAAyqrxpg3SFen7UwUAXVN1AN1Vc/w640-h480/TravelInventory5.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvpP8f6tNMB4Isys2nTmqpj4EVtgS4VG_SY89B9D0Fzv0L1MPj7UBegO8TEIm86W3FR2WYc1QqDRuMFNF8eUxuqgiQ_p2sNVlFKF2xA7gyOgoHZ5qYG-OQ92JuNvB_iQROZ6Wz5IkdlAZ__G0mZzaZ0V5K2a6gjKaXAAyqrxpg3SFen7UwUAXVN1AN1Vc/s4032/TravelInventory5.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvpP8f6tNMB4Isys2nTmqpj4EVtgS4VG_SY89B9D0Fzv0L1MPj7UBegO8TEIm86W3FR2WYc1QqDRuMFNF8eUxuqgiQ_p2sNVlFKF2xA7gyOgoHZ5qYG-OQ92JuNvB_iQROZ6Wz5IkdlAZ__G0mZzaZ0V5K2a6gjKaXAAyqrxpg3SFen7UwUAXVN1AN1Vc/w640-h480/TravelInventory5.jpg)
 *Figure 5: Recently purchased*
 
   

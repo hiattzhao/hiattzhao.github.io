@@ -4,6 +4,7 @@ layout: post
 date: 2022-05-05
 ---
 
+
 <p style="font-stretch: normal; line-height: normal; margin: 0px;"><span style="font-family: inherit;">I've been waking up at 4 AM for the last two days and it looks like the best time for me to write my blog posts is in the early morning rather than at night due to fatigue from riding all day.</span></p>
 <p style="font-stretch: normal; line-height: normal; margin: 0px; min-height: 25px;"><span style="font-family: inherit;"><br /></span></p>
 <p style="font-stretch: normal; line-height: normal; margin: 0px;"><span style="font-family: inherit;">Yesterday morning in Brunswick, MD, Crispin and I went to Beans in the Belfry for breakfast at 8 AM. This cafe is inside a church. The first cafe I've ever been to that's like that.</span></p>

@@ -4,7 +4,8 @@ layout: post
 date: 2018-07-01
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhMncKQ54G1hyRQki3xOX8tu6noLYGae0bxvORb77mh-MgYPSBSrZjhecWT0-4d0LkRBuvju4iEtXLYTFI4xZeYQjBHNDqi_VdB7FlHPK73Z0hmrbdo1TOxG4EmDFqVkPJt_0Rk18OreZQ/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhMncKQ54G1hyRQki3xOX8tu6noLYGae0bxvORb77mh-MgYPSBSrZjhecWT0-4d0LkRBuvju4iEtXLYTFI4xZeYQjBHNDqi_VdB7FlHPK73Z0hmrbdo1TOxG4EmDFqVkPJt_0Rk18OreZQ/s1600/%255BUNSET%255)
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhMncKQ54G1hyRQki3xOX8tu6noLYGae0bxvORb77mh-MgYPSBSrZjhecWT0-4d0LkRBuvju4iEtXLYTFI4xZeYQjBHNDqi_VdB7FlHPK73Z0hmrbdo1TOxG4EmDFqVkPJt_0Rk18OreZQ/w640-h480/%255BUNSET%255D)
 *So good!*
 
 I was debating whether I should start riding early, like I normally do, or should I hang around town for awhile, so I have something to do rather than doing nothing at the abandoned house that I’ll arrive at the end of the day. I decided to leave early to avoid the heat and the wind.
@@ -13,29 +14,29 @@ My bike was so back heavy due to all the water I was carrying that it would fall
 
 At Penny’s Diner, I had one last restaurant meal before crossing no man’s land. The waitress told me her brother is the manager at the Whispering Elms Motel and Campground if I choose to stay there once I get to Baker. I just might do that.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhuLSnc687-IBjxrrEjTdnQvmPwhsnSwYwrDKWRko8r0nKshkWQmGu4l4sLCDgvEXYMAsmqpwKbdksR-nxmbyRHxLT96PRIGTRBBvQtMVy05Kn1rWSAz3XuxukKfcEfjgjRnx0z_lNiNco/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhuLSnc687-IBjxrrEjTdnQvmPwhsnSwYwrDKWRko8r0nKshkWQmGu4l4sLCDgvEXYMAsmqpwKbdksR-nxmbyRHxLT96PRIGTRBBvQtMVy05Kn1rWSAz3XuxukKfcEfjgjRnx0z_lNiNco/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhuLSnc687-IBjxrrEjTdnQvmPwhsnSwYwrDKWRko8r0nKshkWQmGu4l4sLCDgvEXYMAsmqpwKbdksR-nxmbyRHxLT96PRIGTRBBvQtMVy05Kn1rWSAz3XuxukKfcEfjgjRnx0z_lNiNco/w640-h480/%255BUNSET%255D)
 *Last restaurant meal for two days*
 
 The ride wasn’t too bad. I had to climb two hills. The section in between the hills was so desolate and wide open that I rode for miles on a nearly straight road. This seemed like the loneliest highway. I did something that I have not done on this bike ride, listening to music while riding. I know it’s peaceful with the scenery, but it’s just too quiet. Once I started to ride down the second hill, I turned the music off. I want to enjoy he downhills as much as possible.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj0H4JmIF0mvkGdocly7M1qi1UgHkV4IqkA-8QMkZWWFfhSI0STh-TDWNqcXZTvqJCklA57tbH68e4D4RIKDil12h_WfRD9VgL00jmGkWRMP6Iqvu6ZbZmEYJXSbwzU3p-ReeDH_JSH8AE/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj0H4JmIF0mvkGdocly7M1qi1UgHkV4IqkA-8QMkZWWFfhSI0STh-TDWNqcXZTvqJCklA57tbH68e4D4RIKDil12h_WfRD9VgL00jmGkWRMP6Iqvu6ZbZmEYJXSbwzU3p-ReeDH_JSH8AE/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj0H4JmIF0mvkGdocly7M1qi1UgHkV4IqkA-8QMkZWWFfhSI0STh-TDWNqcXZTvqJCklA57tbH68e4D4RIKDil12h_WfRD9VgL00jmGkWRMP6Iqvu6ZbZmEYJXSbwzU3p-ReeDH_JSH8AE/w640-h480/%255BUNSET%255D)
 *Entering no man's land*
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEglSNDeKlNGeRBG3MzaJBEkC-HOfnWxnHyxVSX5ZEpZ__M7B8iOZ8QjKcV5RzRJ6S1C4czUrxe71FSmiRTpqQC2FhLSEuEDCi0ARnZRlfleXCL4_DEnf-mUNZB41Q5hpDK4pXFFZCwH9H4/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEglSNDeKlNGeRBG3MzaJBEkC-HOfnWxnHyxVSX5ZEpZ__M7B8iOZ8QjKcV5RzRJ6S1C4czUrxe71FSmiRTpqQC2FhLSEuEDCi0ARnZRlfleXCL4_DEnf-mUNZB41Q5hpDK4pXFFZCwH9H4/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEglSNDeKlNGeRBG3MzaJBEkC-HOfnWxnHyxVSX5ZEpZ__M7B8iOZ8QjKcV5RzRJ6S1C4czUrxe71FSmiRTpqQC2FhLSEuEDCi0ARnZRlfleXCL4_DEnf-mUNZB41Q5hpDK4pXFFZCwH9H4/w640-h480/%255BUNSET%255D)
 *The lonely road*
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg3r0GdKMbbPn_sZQZkTJmmb__4rwABSuubXP8JtNaJpjUK2jmXYQguJTDU5avc0eADCEQDipf5KkwWdKUJvBUv-_ctxGlcE5RSoGsLl7__cHe30jgzh5lI9m8Nk3ZSCEwVGhl_fgfpoco/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg3r0GdKMbbPn_sZQZkTJmmb__4rwABSuubXP8JtNaJpjUK2jmXYQguJTDU5avc0eADCEQDipf5KkwWdKUJvBUv-_ctxGlcE5RSoGsLl7__cHe30jgzh5lI9m8Nk3ZSCEwVGhl_fgfpoco/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg3r0GdKMbbPn_sZQZkTJmmb__4rwABSuubXP8JtNaJpjUK2jmXYQguJTDU5avc0eADCEQDipf5KkwWdKUJvBUv-_ctxGlcE5RSoGsLl7__cHe30jgzh5lI9m8Nk3ZSCEwVGhl_fgfpoco/w640-h480/%255BUNSET%255D)
 *Many locusts on the road*
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhLfwSQkvqNkVpb-urI7mbsvtQPuYZX33hsEaUgciWxfBspI0rPXQwr3q5vUWOszA-kI8utHchkUuhr5_gKLGM6Bj-EZm6KQ_xj6Vkcy2VV0P2jGgYTSgA6x01u6tx77mC2QA53vi32DPY/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhLfwSQkvqNkVpb-urI7mbsvtQPuYZX33hsEaUgciWxfBspI0rPXQwr3q5vUWOszA-kI8utHchkUuhr5_gKLGM6Bj-EZm6KQ_xj6Vkcy2VV0P2jGgYTSgA6x01u6tx77mC2QA53vi32DPY/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhLfwSQkvqNkVpb-urI7mbsvtQPuYZX33hsEaUgciWxfBspI0rPXQwr3q5vUWOszA-kI8utHchkUuhr5_gKLGM6Bj-EZm6KQ_xj6Vkcy2VV0P2jGgYTSgA6x01u6tx77mC2QA53vi32DPY/w640-h480/%255BUNSET%255D)
 *Looking back at where I rode from*
 
 I saw a tree in the middle of the road and knew right away that’s where the abandoned house is. James, the cyclist I had met in Monticello, told me about it. Also the Dutch couple I had met on my way to Cedar Breaks showed me a photo of it. By the time I arrived there it was almost 1 PM. I rode about 40 miles from Milford.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiO8pwS7e63zrAhSdKqia_M0YmZi0IWhXLoi9vJmaO7P6PwmMASl0wnQkT1gJbR70rc7JaoCHdarbOyLYKm1dg5ztbuAytgd-VF7fxF-i1KRlYIIJpv4uaIX8dfxm-Pg_CCAbfqh0wOH88/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiO8pwS7e63zrAhSdKqia_M0YmZi0IWhXLoi9vJmaO7P6PwmMASl0wnQkT1gJbR70rc7JaoCHdarbOyLYKm1dg5ztbuAytgd-VF7fxF-i1KRlYIIJpv4uaIX8dfxm-Pg_CCAbfqh0wOH88/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiO8pwS7e63zrAhSdKqia_M0YmZi0IWhXLoi9vJmaO7P6PwmMASl0wnQkT1gJbR70rc7JaoCHdarbOyLYKm1dg5ztbuAytgd-VF7fxF-i1KRlYIIJpv4uaIX8dfxm-Pg_CCAbfqh0wOH88/w640-h480/%255BUNSET%255D)
 *Cyclists' Rest Casa Blanca*
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg79GHaMPJxzH_bwMSxhCYg1WDIFdlGcpXSejsmAZ2k761p7EUoLqqemkc8dEsx5DhDIc8JK5jV_2RHiJphW3KfUwiu0-3DiTfGt1IRthUD0ibfRnN9br7YeiFXi4mR7pGXOU4zWMfwQf0/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg79GHaMPJxzH_bwMSxhCYg1WDIFdlGcpXSejsmAZ2k761p7EUoLqqemkc8dEsx5DhDIc8JK5jV_2RHiJphW3KfUwiu0-3DiTfGt1IRthUD0ibfRnN9br7YeiFXi4mR7pGXOU4zWMfwQf0/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg79GHaMPJxzH_bwMSxhCYg1WDIFdlGcpXSejsmAZ2k761p7EUoLqqemkc8dEsx5DhDIc8JK5jV_2RHiJphW3KfUwiu0-3DiTfGt1IRthUD0ibfRnN9br7YeiFXi4mR7pGXOU4zWMfwQf0/w640-h480/%255BUNSET%255D)
 *Where I will be sleeping*
 
 The day was still early and I remembered my joint that I had bought in Gunnison, Colorado, that I didn’t smoke yet. Now is a good time since I need to pass the time. I smoked it and let the effect kick in.
@@ -44,7 +45,7 @@ From my panniers, I took out all of my food and start snacking on them. Then I m
 
 Quite a few people stopped by the house. First was a man who needed to stretch his legs. Then a cyclist named Jeff stopped by. He’s going to Cedar City from San Francisco. We got to talking and he pointed out a hose that had water coming out of it. He said it’s from the artesian well underneath the ground. I didn’t drink the water since I had carried a lot with me. Jeff told me I might be able to stay with him and his family when I get near San Francisco. That’ll be awesome!
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjPdeqO-rVM_vXVNb7OG-qFYGRM6BsW5KHflpo1ABZk8ssk-Xr5Gkrwf9ZNSWKsHIenPYCUimV2BwIHURqMsSeZNTtbgDN5um_7e9el3mELJSSq5siLcKs5oWXlG5XpjJDgevbMBvROnOs/w480-h640/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjPdeqO-rVM_vXVNb7OG-qFYGRM6BsW5KHflpo1ABZk8ssk-Xr5Gkrwf9ZNSWKsHIenPYCUimV2BwIHURqMsSeZNTtbgDN5um_7e9el3mELJSSq5siLcKs5oWXlG5XpjJDgevbMBvROnOs/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjPdeqO-rVM_vXVNb7OG-qFYGRM6BsW5KHflpo1ABZk8ssk-Xr5Gkrwf9ZNSWKsHIenPYCUimV2BwIHURqMsSeZNTtbgDN5um_7e9el3mELJSSq5siLcKs5oWXlG5XpjJDgevbMBvROnOs/w480-h640/%255BUNSET%255D)
 *Jeff, going to Cedar City*
 
 I saw two cyclist riding in the same direction as me but didn’t stop by to say hi. They must be going to Baker from Milford, doing the whole 84 miles in one day.
@@ -55,22 +56,22 @@ The last two people I saw were two guys in a pickup truck. I was chilling outsid
 
 I decided to watch the sunset over the mountains before I went to bed. I slept until a little before sunrise the next day. After packing my bike, I saw the sunrise over the mountains on the other side. What a great way to begin a day!
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5MqOZMOgoJCE5eflbgrARosa6ke6qDGFCFvQyE-GtXiqt6RyGrw-VlCdCyArn_STTNlcEjwVFOVVMh2aelt3KBOfqkGXWaCIUjxTA0q15rxESd64ZpB9aCewvRYnQVj0AiJ53NRszPSs/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5MqOZMOgoJCE5eflbgrARosa6ke6qDGFCFvQyE-GtXiqt6RyGrw-VlCdCyArn_STTNlcEjwVFOVVMh2aelt3KBOfqkGXWaCIUjxTA0q15rxESd64ZpB9aCewvRYnQVj0AiJ53NRszPSs/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5MqOZMOgoJCE5eflbgrARosa6ke6qDGFCFvQyE-GtXiqt6RyGrw-VlCdCyArn_STTNlcEjwVFOVVMh2aelt3KBOfqkGXWaCIUjxTA0q15rxESd64ZpB9aCewvRYnQVj0AiJ53NRszPSs/w640-h480/%255BUNSET%255D)
 *Sunset*
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWNAhCX9jmPOqHA4CX1ucDz0B9jdNHVtmyUF8p9Gppl608jsFdDWauyXDImPc2XpxbReCsbIBvsPLswV4uTw1Dw7THKMHG4mKeq6PKzU1XleAHny0xfvRuoUwzDr0tN9RsBcZjGC5ZwUw/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWNAhCX9jmPOqHA4CX1ucDz0B9jdNHVtmyUF8p9Gppl608jsFdDWauyXDImPc2XpxbReCsbIBvsPLswV4uTw1Dw7THKMHG4mKeq6PKzU1XleAHny0xfvRuoUwzDr0tN9RsBcZjGC5ZwUw/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhWNAhCX9jmPOqHA4CX1ucDz0B9jdNHVtmyUF8p9Gppl608jsFdDWauyXDImPc2XpxbReCsbIBvsPLswV4uTw1Dw7THKMHG4mKeq6PKzU1XleAHny0xfvRuoUwzDr0tN9RsBcZjGC5ZwUw/w640-h480/%255BUNSET%255D)
 *Sunrise*
 
 When I was riding this morning I was feeling sleepy. Not sure if the effect of marijuana is still there. I had trouble keeping my eyes open. I also had a headwind almost the entire time going into Baker. There was one hill to climb, but the downhill wasn’t as exhilarating as my previous ones.
 
 I waved at every oncoming vehicle. There were only about 30 cars going the opposite way. I probably only saw 50 to 60 cars total today.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEisSBSlmOrv7cm9L9bhqrfRsZvNgoANMy-9TMCf4jbET5oET9rICWx8jmJrAwD5B1tdNtwINcFAmQVexIfG_98eFaNEnB4IP2INyH7hBM2VIDYq4g0n4V9xdJn0AyEHo3PsXzwWBsWadLc/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEisSBSlmOrv7cm9L9bhqrfRsZvNgoANMy-9TMCf4jbET5oET9rICWx8jmJrAwD5B1tdNtwINcFAmQVexIfG_98eFaNEnB4IP2INyH7hBM2VIDYq4g0n4V9xdJn0AyEHo3PsXzwWBsWadLc/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEisSBSlmOrv7cm9L9bhqrfRsZvNgoANMy-9TMCf4jbET5oET9rICWx8jmJrAwD5B1tdNtwINcFAmQVexIfG_98eFaNEnB4IP2INyH7hBM2VIDYq4g0n4V9xdJn0AyEHo3PsXzwWBsWadLc/w640-h480/%255BUNSET%255D)
 *Cowspotting*
 
 I crossed the border to Nevada after I passed by Garrison, which is like a ghost town with a few houses and no one outside. I’m finally in the last state before California and in the Pacific time zone.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj_icJBKJI76J5QGfRHpzOSRX51x-YoeB-3v5Kq09lcbB2EPTVXSuelBFW9aRqEtaFwtAkPrHieriD2lTMKEQ5MtvYLqvQAjTBW4iAA13WOOnRtBcjgujacg_T3G2DwmvOXIIAJIl1Zq40/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj_icJBKJI76J5QGfRHpzOSRX51x-YoeB-3v5Kq09lcbB2EPTVXSuelBFW9aRqEtaFwtAkPrHieriD2lTMKEQ5MtvYLqvQAjTBW4iAA13WOOnRtBcjgujacg_T3G2DwmvOXIIAJIl1Zq40/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj_icJBKJI76J5QGfRHpzOSRX51x-YoeB-3v5Kq09lcbB2EPTVXSuelBFW9aRqEtaFwtAkPrHieriD2lTMKEQ5MtvYLqvQAjTBW4iAA13WOOnRtBcjgujacg_T3G2DwmvOXIIAJIl1Zq40/w640-h480/%255BUNSET%255D)
 *Border crossing*
 
 Once I got to Baker, I stopped by the convenience store to get a soda. Since I gained an hour, it was only 11 AM. I had chicken strips for lunch at the restaurant that’s right next door to the convenience store. Then I rode to Whispering Elms and talked to Austin’s dad to get a campsite.

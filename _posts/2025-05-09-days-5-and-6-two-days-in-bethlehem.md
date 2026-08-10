@@ -4,6 +4,7 @@ layout: post
 date: 2025-05-09
 ---
 
+
 I spent two rest days in Bethlehem since it also rained today. Robin is gracious and let me stay tonight as well.
 
 Yesterday, Robin and I went to her favorite local cafe called The People’s Kitchen for brunch. I enjoyed my pulled pork sandwich and Robin liked her meal as well.
@@ -24,13 +25,13 @@ I had lunch with Robin at Sizzling Bits Halal in south Bethlehem. She wanted to 
 
 Bethlehem is a nicer town than Allentown, where I used to live. It’s a place that I should consider settling. I’ll have to see.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh0uY7FvVjP_k18TKuTOysF3ZGp61rOBnRzMO83s7HtRVOHeremX6NW-Mvl474WXI5qQi52CQJuIMdEiiHenAfZYclBbZFsTYpSu9p5Y63tFOR66foh0YKfgZpBo9h5n2UaGrzr3qf-GOHjiUR6AgU_5T0XwToEzC2Jwp64RBYzVu-Xdx39Ef2LVZPhSNc/w640-h480/PXL_20250508_140512410.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh0uY7FvVjP_k18TKuTOysF3ZGp61rOBnRzMO83s7HtRVOHeremX6NW-Mvl474WXI5qQi52CQJuIMdEiiHenAfZYclBbZFsTYpSu9p5Y63tFOR66foh0YKfgZpBo9h5n2UaGrzr3qf-GOHjiUR6AgU_5T0XwToEzC2Jwp64RBYzVu-Xdx39Ef2LVZPhSNc/s4624/PXL_20250508_140512410.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh0uY7FvVjP_k18TKuTOysF3ZGp61rOBnRzMO83s7HtRVOHeremX6NW-Mvl474WXI5qQi52CQJuIMdEiiHenAfZYclBbZFsTYpSu9p5Y63tFOR66foh0YKfgZpBo9h5n2UaGrzr3qf-GOHjiUR6AgU_5T0XwToEzC2Jwp64RBYzVu-Xdx39Ef2LVZPhSNc/w640-h480/PXL_20250508_140512410.jpg)
 *The People's Kitchen*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZHS0rQBgpthh-OI1gS6NE4B2n21WQERrL1ARftzo4guQ3AQ0k1h7Iqco7_7j34u26hO2f75I-BtCOP2w6M8AAHvPtnFItMQOBt8JCi1YqFta4a5VhCopvaCjsbGzCEU51kYFTxaisoTFhUWShvSI9tyHqZoujy7NQHYUpOKPlqQmgfUAG5-gbbiH1GP4/w640-h480/PXL_20250508_152336420.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZHS0rQBgpthh-OI1gS6NE4B2n21WQERrL1ARftzo4guQ3AQ0k1h7Iqco7_7j34u26hO2f75I-BtCOP2w6M8AAHvPtnFItMQOBt8JCi1YqFta4a5VhCopvaCjsbGzCEU51kYFTxaisoTFhUWShvSI9tyHqZoujy7NQHYUpOKPlqQmgfUAG5-gbbiH1GP4/s4624/PXL_20250508_152336420.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZHS0rQBgpthh-OI1gS6NE4B2n21WQERrL1ARftzo4guQ3AQ0k1h7Iqco7_7j34u26hO2f75I-BtCOP2w6M8AAHvPtnFItMQOBt8JCi1YqFta4a5VhCopvaCjsbGzCEU51kYFTxaisoTFhUWShvSI9tyHqZoujy7NQHYUpOKPlqQmgfUAG5-gbbiH1GP4/w640-h480/PXL_20250508_152336420.jpg)
 *On Robin's fridge*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7asDscOIOXfCCWN76c4OgKquLya0N-qVsun8ieyx2j3U4xnlxe3mYUDKUktlRFjaFKpmlMsmPfxQqwmb7m0eyS7CBeD1oglMPPaIMGLzciHW7isi8TU7mMMGsKs_WZzUrD2-ovHnX8M68zXDxxd_AdQ23wtqn7z0C7ilhTa2paxugvNjO9_ipqhIDfXw/w480-h640/PXL_20250508_225857369.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7asDscOIOXfCCWN76c4OgKquLya0N-qVsun8ieyx2j3U4xnlxe3mYUDKUktlRFjaFKpmlMsmPfxQqwmb7m0eyS7CBeD1oglMPPaIMGLzciHW7isi8TU7mMMGsKs_WZzUrD2-ovHnX8M68zXDxxd_AdQ23wtqn7z0C7ilhTa2paxugvNjO9_ipqhIDfXw/s4624/PXL_20250508_225857369.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi7asDscOIOXfCCWN76c4OgKquLya0N-qVsun8ieyx2j3U4xnlxe3mYUDKUktlRFjaFKpmlMsmPfxQqwmb7m0eyS7CBeD1oglMPPaIMGLzciHW7isi8TU7mMMGsKs_WZzUrD2-ovHnX8M68zXDxxd_AdQ23wtqn7z0C7ilhTa2paxugvNjO9_ipqhIDfXw/w480-h640/PXL_20250508_225857369.jpg)
 *Robin didn't want me to take a photo of her, so here are her dogs: Garth (foreground) and Nancy (background).*

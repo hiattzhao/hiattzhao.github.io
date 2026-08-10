@@ -4,6 +4,7 @@ layout: post
 date: 2025-01-20
 ---
 
+
 So far, I have had a good life. How do I know? Because I was the subject of envy.
 
 Not that I care about envy itself nor do I care to compete with anyone about life, but I was surprised when a friend in China said that he envied my life. I told him to have a life like mine you just have to not buy a house, sell your car, don’t get married, and don’t have kids. Of course, I was only half kidding. Additionally, you work until you save and invest enough to cover your expenses, then quit your job to travel, and live a life that you enjoy. Life is really that simple. At least mine is.

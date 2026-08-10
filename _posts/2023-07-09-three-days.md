@@ -4,6 +4,7 @@ layout: post
 date: 2023-07-09
 ---
 
+
 As time gets closer to July 12 I’ve been feeling a mixture of anxiety, fear, and elation. The anxiety and fear are products of uncertainty and the elation is the result of a positive future mindset. At least that’s what I think.
 
 Sometimes I wrap my head too much over the whole trip when I should be just be focusing on the first couple of cities I’ll visit. I need to remind myself to let go and not do too much planning. The beginning of a major undertaking is always the hardest. If I can get through this then I can get through anything. “Follow the flow,” as I say.

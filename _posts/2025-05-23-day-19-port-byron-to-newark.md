@@ -4,6 +4,7 @@ layout: post
 date: 2025-05-23
 ---
 
+
 Yesterday, I left Mike and Mary’s hideaway house around 9:30 AM. Outside was drizzling, but I was getting bored and decided to ride anyway.
 
 Not too far down the road, I saw a female cyclist coming from the other direction. We didn’t stop to chat because we were separated by the road traffic.
@@ -28,21 +29,21 @@ I weighed myself on the scale. I'm currently at 164 pounds. I had lost about ten
 
 Around 7:45 AM, Paul woke up. I plan to grab breakfast in town before riding to Rochester.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhMyuzGeQN3Fpb_gsZDad2L08rNuBqP4PS-ueAsb1YQj9bJVSHCter_HDfu7roglC3UFuxeAAnDnQksMPbTGEeWyxfET292qNixquWuYB4dBO-hVBn6-8CCkjz50Hl6UhmfYnmwnXFTjRFv3ujLdoJidzsPDggkcYb-8kg0yoRva9NcdjHf3z4eCW4PiDk/w640-h480/PXL_20250522_145145135.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhMyuzGeQN3Fpb_gsZDad2L08rNuBqP4PS-ueAsb1YQj9bJVSHCter_HDfu7roglC3UFuxeAAnDnQksMPbTGEeWyxfET292qNixquWuYB4dBO-hVBn6-8CCkjz50Hl6UhmfYnmwnXFTjRFv3ujLdoJidzsPDggkcYb-8kg0yoRva9NcdjHf3z4eCW4PiDk/s4624/PXL_20250522_145145135.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhMyuzGeQN3Fpb_gsZDad2L08rNuBqP4PS-ueAsb1YQj9bJVSHCter_HDfu7roglC3UFuxeAAnDnQksMPbTGEeWyxfET292qNixquWuYB4dBO-hVBn6-8CCkjz50Hl6UhmfYnmwnXFTjRFv3ujLdoJidzsPDggkcYb-8kg0yoRva9NcdjHf3z4eCW4PiDk/w640-h480/PXL_20250522_145145135.jpg)
 *The wide shoulder on Route 31*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgMk0WSObvhGXHFaVcEODtEHdnK7ePXOm2OqpQaWeG0Sr3zq8BU-oagTY4cPXVGk5lodvbv9NzDSxMlYDGcbtIvKzdP8uArnr35cheCdECfMlkH-kFdu3Wd3fQF9vtw7qOAugnOcIxJa-8WF-WKkHMJTWK22_e1027tvcI9tN0OcejjCiCj6m1mCKTP-QE/w640-h480/PXL_20250522_155512726.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgMk0WSObvhGXHFaVcEODtEHdnK7ePXOm2OqpQaWeG0Sr3zq8BU-oagTY4cPXVGk5lodvbv9NzDSxMlYDGcbtIvKzdP8uArnr35cheCdECfMlkH-kFdu3Wd3fQF9vtw7qOAugnOcIxJa-8WF-WKkHMJTWK22_e1027tvcI9tN0OcejjCiCj6m1mCKTP-QE/s4624/PXL_20250522_155512726.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgMk0WSObvhGXHFaVcEODtEHdnK7ePXOm2OqpQaWeG0Sr3zq8BU-oagTY4cPXVGk5lodvbv9NzDSxMlYDGcbtIvKzdP8uArnr35cheCdECfMlkH-kFdu3Wd3fQF9vtw7qOAugnOcIxJa-8WF-WKkHMJTWK22_e1027tvcI9tN0OcejjCiCj6m1mCKTP-QE/w640-h480/PXL_20250522_155512726.jpg)
 *The haunted Erie Mansion in Clyde*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1uH7JSis9tw4Eii4UlfvGcOlgytNEz-d4koF8ok2W5EJ3byQXB8g0w0gAttjTvm5SroNGJOPN17ryU4TgjLV9NV0y9QviXLrxlZe33YMTEUjR4n4IkCyq7reIHp7hST4CxVov0aOexTJIvvJw8dXVTitljXrhhTurjdDwY47plr0Jofs4eLNL2wsu9c0/w640-h480/PXL_20250522_212117734.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1uH7JSis9tw4Eii4UlfvGcOlgytNEz-d4koF8ok2W5EJ3byQXB8g0w0gAttjTvm5SroNGJOPN17ryU4TgjLV9NV0y9QviXLrxlZe33YMTEUjR4n4IkCyq7reIHp7hST4CxVov0aOexTJIvvJw8dXVTitljXrhhTurjdDwY47plr0Jofs4eLNL2wsu9c0/s4624/PXL_20250522_212117734.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1uH7JSis9tw4Eii4UlfvGcOlgytNEz-d4koF8ok2W5EJ3byQXB8g0w0gAttjTvm5SroNGJOPN17ryU4TgjLV9NV0y9QviXLrxlZe33YMTEUjR4n4IkCyq7reIHp7hST4CxVov0aOexTJIvvJw8dXVTitljXrhhTurjdDwY47plr0Jofs4eLNL2wsu9c0/w640-h480/PXL_20250522_212117734.jpg)
 *Central Park in downtown Newark*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiE8QboHzjV9zkEhikUy-prMTJKKsWUI1IXUxKxX7KNWsPxx2jwY3VXdjeAGumz16NhYx7YKwHj6_A8dqmAY6eWTPbBXTFoYCIbny5vygD62WzZv7KDRDLaMpBj8i81oj7VyVRPDoaT3OGNkwvml7hEXsqexZ1lVfBX7wJW8GJz0-mAA_ytloqC9p8KGAY/w640-h480/PXL_20250522_215151250.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiE8QboHzjV9zkEhikUy-prMTJKKsWUI1IXUxKxX7KNWsPxx2jwY3VXdjeAGumz16NhYx7YKwHj6_A8dqmAY6eWTPbBXTFoYCIbny5vygD62WzZv7KDRDLaMpBj8i81oj7VyVRPDoaT3OGNkwvml7hEXsqexZ1lVfBX7wJW8GJz0-mAA_ytloqC9p8KGAY/s4624/PXL_20250522_215151250.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiE8QboHzjV9zkEhikUy-prMTJKKsWUI1IXUxKxX7KNWsPxx2jwY3VXdjeAGumz16NhYx7YKwHj6_A8dqmAY6eWTPbBXTFoYCIbny5vygD62WzZv7KDRDLaMpBj8i81oj7VyVRPDoaT3OGNkwvml7hEXsqexZ1lVfBX7wJW8GJz0-mAA_ytloqC9p8KGAY/w640-h480/PXL_20250522_215151250.jpg)
 *Chicken pesto pasta at Parker's Grille and Tap House*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpDb5vbUpC4gyApI4po7Q9dWMThX-385hbVsEYi4hOiO2kZHIpeqULYtEJuuVkK9ul0z5Gr6PXC2lgl1aJFpLVjha7KrEeZFEARw9Ybu37970RRu22-GkdwUfqJfM1X8EJUGrc2pi9hVp6Bls3W1cvUTuJ18RF9Z1APXvfN8sdoLqqnAH-XGcvON82W7Q/w480-h640/PXL_20250523_114325508.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpDb5vbUpC4gyApI4po7Q9dWMThX-385hbVsEYi4hOiO2kZHIpeqULYtEJuuVkK9ul0z5Gr6PXC2lgl1aJFpLVjha7KrEeZFEARw9Ybu37970RRu22-GkdwUfqJfM1X8EJUGrc2pi9hVp6Bls3W1cvUTuJ18RF9Z1APXvfN8sdoLqqnAH-XGcvON82W7Q/s4624/PXL_20250523_114325508.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpDb5vbUpC4gyApI4po7Q9dWMThX-385hbVsEYi4hOiO2kZHIpeqULYtEJuuVkK9ul0z5Gr6PXC2lgl1aJFpLVjha7KrEeZFEARw9Ybu37970RRu22-GkdwUfqJfM1X8EJUGrc2pi9hVp6Bls3W1cvUTuJ18RF9Z1APXvfN8sdoLqqnAH-XGcvON82W7Q/w480-h640/PXL_20250523_114325508.jpg)
 *Paul and his dog, Louie*

@@ -4,6 +4,7 @@ layout: post
 date: 2022-05-04
 ---
 
+
 <p style="font-stretch: normal; line-height: normal; margin: 0px;"><span style="font-family: inherit;">Yesterday morning, Crispin and I had breakfast at Bob and Edith's Diner in Crystal City. I had my go-to breakfast of western omelette with a cup of coffee. I usually don't eat breakfast when I'm at home, but since I'm on a bike tour I would need the calories soon enough.</span></p>
 <p style="font-stretch: normal; line-height: normal; margin: 0px; min-height: 25px;"><span style="font-family: inherit;"><br /></span></p>
 <p style="font-stretch: normal; line-height: normal; margin: 0px;"><span style="font-family: inherit;">After packing and getting our bikes loaded, we checked out of the AirBnb and rode on the Mt Vernon Trail into Washington, DC. I was leading Crispin and I thought the trail would intersect the C&O Towpath but it didn't. We had to carry our bikes up three sets of steps to the gravel packed C&O Towpath.</span></p>

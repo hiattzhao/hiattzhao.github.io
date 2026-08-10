@@ -4,6 +4,7 @@ layout: post
 date: 2025-06-06
 ---
 
+
 I stayed at Don’s house for three more days since my last blog post.
 
 On Tuesday, the new wheel arrived at the bike shop. Since Thomas doesn’t deal with tubeless tires I had to put on the tire myself. Taking off the tire from the old wheel was painless, but putting it on the new wheel was not. In the end, Thomas helped me put on the tire with a tire lever. He made it look so easy. I was able to install a different valve stem since the one I had before was faulty and leaked air. The handlebar was also out of alignment due to the accident and Thomas was able to adjust it. In the end, my bike was revived. Serendipity rides again!
@@ -36,41 +37,41 @@ I hope to return to Toronto in the near future to visit Don. Don invited me to T
 
 Overall, I enjoyed my time here with Don. I couldn’t ask for a nicer person to be hit with a car. I’m just glad I’m fine and Don’s OK, too. Very happy to see an unfortunate event turned out well.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6eSHKNLZDMJ0632DxLLcL0X89b4FFGnGjR9eQClTrl67XU2H_VUE2xr7z4eFpXiVV8xEgqjyIhfKNc6v-zb1IJXy-t2bpV21KJGF-g3xmMbXPWQn0CFaBFxrgDK3_IftO21GSpD0NqUTzOq4nMRgTsT9AQrGcywxDe-cKm5EXU6VZ-Csx4TyS8TJa88k/w480-h640/PXL_20250603_122201655.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6eSHKNLZDMJ0632DxLLcL0X89b4FFGnGjR9eQClTrl67XU2H_VUE2xr7z4eFpXiVV8xEgqjyIhfKNc6v-zb1IJXy-t2bpV21KJGF-g3xmMbXPWQn0CFaBFxrgDK3_IftO21GSpD0NqUTzOq4nMRgTsT9AQrGcywxDe-cKm5EXU6VZ-Csx4TyS8TJa88k/s4624/PXL_20250603_122201655.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6eSHKNLZDMJ0632DxLLcL0X89b4FFGnGjR9eQClTrl67XU2H_VUE2xr7z4eFpXiVV8xEgqjyIhfKNc6v-zb1IJXy-t2bpV21KJGF-g3xmMbXPWQn0CFaBFxrgDK3_IftO21GSpD0NqUTzOq4nMRgTsT9AQrGcywxDe-cKm5EXU6VZ-Csx4TyS8TJa88k/w480-h640/PXL_20250603_122201655.jpg)
 *I buried the dead sparrow, hoping that it went to bird heaven.*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEitVLISfYoBwZ4n-91RucKLIzbKP8WwlQsnyud0IkaXarOnkTwtsJ9VPLUC5I_9RHxkEdSE-ta85Srt_Tywz7WhrXVV7oGuZhC_wPs319UsnRywjqlzfeTIr9H21So4Ntk7bX4jtE-QOsFPnW7zn4LaBdm1Qopk2lI08zpvIR4K3VG1IvMbPX79kNAo_GY/w480-h640/PXL_20250603_124235383.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEitVLISfYoBwZ4n-91RucKLIzbKP8WwlQsnyud0IkaXarOnkTwtsJ9VPLUC5I_9RHxkEdSE-ta85Srt_Tywz7WhrXVV7oGuZhC_wPs319UsnRywjqlzfeTIr9H21So4Ntk7bX4jtE-QOsFPnW7zn4LaBdm1Qopk2lI08zpvIR4K3VG1IvMbPX79kNAo_GY/s4624/PXL_20250603_124235383.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEitVLISfYoBwZ4n-91RucKLIzbKP8WwlQsnyud0IkaXarOnkTwtsJ9VPLUC5I_9RHxkEdSE-ta85Srt_Tywz7WhrXVV7oGuZhC_wPs319UsnRywjqlzfeTIr9H21So4Ntk7bX4jtE-QOsFPnW7zn4LaBdm1Qopk2lI08zpvIR4K3VG1IvMbPX79kNAo_GY/w480-h640/PXL_20250603_124235383.jpg)
 *A blue jay also likes walnuts.*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhe3H1O2L37W8JkXcSuqdYjS_F_FX4dDIOLGLqX9e3ug0vMtc6-v_5ixhO86QwqKgT09dWA9SwCv2YUE7FqfxH_FDA7lefQkkkutOsZdXvAyTZ3DGWUW0xJMCLwtfXs3pvzTnkN_XYinU9rVfp5kvc5e5vwqWDjRE2v7DW4Iv9SXy7ZYNRd-Oazly14uKI/w480-h640/PXL_20250603_220006032.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhe3H1O2L37W8JkXcSuqdYjS_F_FX4dDIOLGLqX9e3ug0vMtc6-v_5ixhO86QwqKgT09dWA9SwCv2YUE7FqfxH_FDA7lefQkkkutOsZdXvAyTZ3DGWUW0xJMCLwtfXs3pvzTnkN_XYinU9rVfp5kvc5e5vwqWDjRE2v7DW4Iv9SXy7ZYNRd-Oazly14uKI/s4624/PXL_20250603_220006032.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhe3H1O2L37W8JkXcSuqdYjS_F_FX4dDIOLGLqX9e3ug0vMtc6-v_5ixhO86QwqKgT09dWA9SwCv2YUE7FqfxH_FDA7lefQkkkutOsZdXvAyTZ3DGWUW0xJMCLwtfXs3pvzTnkN_XYinU9rVfp5kvc5e5vwqWDjRE2v7DW4Iv9SXy7ZYNRd-Oazly14uKI/w480-h640/PXL_20250603_220006032.jpg)
 *Don and Linda*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh5hRjA2wi1EZOX6dqXYIsHvN5MhaiwIgjdeUQGoG2L-F5b93jVwhOk4miG7Dg_kPnWTTv_jp-O85VJhdHxKv3giW74qpY9NQXXo6JUal-tbigp7R2PPRJohb0RRR4kXYrJNL4rn6Ul91GvE-SlqXA7ZaecTtWlPRecbvhIf8PaE1LDWjl2G7EugKh552g/w640-h480/PXL_20250604_171603505.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh5hRjA2wi1EZOX6dqXYIsHvN5MhaiwIgjdeUQGoG2L-F5b93jVwhOk4miG7Dg_kPnWTTv_jp-O85VJhdHxKv3giW74qpY9NQXXo6JUal-tbigp7R2PPRJohb0RRR4kXYrJNL4rn6Ul91GvE-SlqXA7ZaecTtWlPRecbvhIf8PaE1LDWjl2G7EugKh552g/s4624/PXL_20250604_171603505.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh5hRjA2wi1EZOX6dqXYIsHvN5MhaiwIgjdeUQGoG2L-F5b93jVwhOk4miG7Dg_kPnWTTv_jp-O85VJhdHxKv3giW74qpY9NQXXo6JUal-tbigp7R2PPRJohb0RRR4kXYrJNL4rn6Ul91GvE-SlqXA7ZaecTtWlPRecbvhIf8PaE1LDWjl2G7EugKh552g/w640-h480/PXL_20250604_171603505.jpg)
 *Harry and Donna*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh_g4tU9zt4NjdMINRwbyBxGv5WXMIm6lZT3JKtl0yTLEwgq874SdfddiK9a-uoj60OkmOswP0KDqsoR94mGxpwKWuRzLV4YH6eXdDR6CokrnlWhal_GycoqKJwYOuL9FuLP_6w9AHk_KM8vuX-_WpuyTjBljD3c9GEawD4G_6JnQ-wXHQ6rUfWFI3cKHE/w640-h480/PXL_20250604_172238319.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh_g4tU9zt4NjdMINRwbyBxGv5WXMIm6lZT3JKtl0yTLEwgq874SdfddiK9a-uoj60OkmOswP0KDqsoR94mGxpwKWuRzLV4YH6eXdDR6CokrnlWhal_GycoqKJwYOuL9FuLP_6w9AHk_KM8vuX-_WpuyTjBljD3c9GEawD4G_6JnQ-wXHQ6rUfWFI3cKHE/s4624/PXL_20250604_172238319.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh_g4tU9zt4NjdMINRwbyBxGv5WXMIm6lZT3JKtl0yTLEwgq874SdfddiK9a-uoj60OkmOswP0KDqsoR94mGxpwKWuRzLV4YH6eXdDR6CokrnlWhal_GycoqKJwYOuL9FuLP_6w9AHk_KM8vuX-_WpuyTjBljD3c9GEawD4G_6JnQ-wXHQ6rUfWFI3cKHE/w640-h480/PXL_20250604_172238319.jpg)
 *Me and the two small horses*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhQ01haVDLv1upnY0O8boCwvdThOCjkyAFs-rtwW2XdMnMebWIRRPCvAUPNEppBug2f5RWwaa3CK30GivPySKcFM8ejVWsRlhnkuK18Q63J3rhWe7KJvGo1TcplpfUORrzmKj0lssNhBPdQcO04hyx10KQ1dE9QPuk4Bh8OHHm0TUkEI5I_7TU_CClR-uQ/w480-h640/PXL_20250604_172452796.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhQ01haVDLv1upnY0O8boCwvdThOCjkyAFs-rtwW2XdMnMebWIRRPCvAUPNEppBug2f5RWwaa3CK30GivPySKcFM8ejVWsRlhnkuK18Q63J3rhWe7KJvGo1TcplpfUORrzmKj0lssNhBPdQcO04hyx10KQ1dE9QPuk4Bh8OHHm0TUkEI5I_7TU_CClR-uQ/s4624/PXL_20250604_172452796.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhQ01haVDLv1upnY0O8boCwvdThOCjkyAFs-rtwW2XdMnMebWIRRPCvAUPNEppBug2f5RWwaa3CK30GivPySKcFM8ejVWsRlhnkuK18Q63J3rhWe7KJvGo1TcplpfUORrzmKj0lssNhBPdQcO04hyx10KQ1dE9QPuk4Bh8OHHm0TUkEI5I_7TU_CClR-uQ/w480-h640/PXL_20250604_172452796.jpg)
 *Donna and her dog Susie*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghbZm_bf9Gdz_fd01AG3RCSOD7Y9iaGB5lE1l_HO4lCAo2VYiGsDFpfSpVCaFo0NSYSlhEasmx6fmeBGvBEel0i5wFhmCmJ1vMdGRfwcsqjNa-QUgNsqi6p4wBVkFLoit0NVjxpopHCYn3-5V0q5gzOGdEB0iOs5ZqDwaE-lkBeziyHHjgu4YWfFhtrzU/w640-h480/PXL_20250604_173621317.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghbZm_bf9Gdz_fd01AG3RCSOD7Y9iaGB5lE1l_HO4lCAo2VYiGsDFpfSpVCaFo0NSYSlhEasmx6fmeBGvBEel0i5wFhmCmJ1vMdGRfwcsqjNa-QUgNsqi6p4wBVkFLoit0NVjxpopHCYn3-5V0q5gzOGdEB0iOs5ZqDwaE-lkBeziyHHjgu4YWfFhtrzU/s4624/PXL_20250604_173621317.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghbZm_bf9Gdz_fd01AG3RCSOD7Y9iaGB5lE1l_HO4lCAo2VYiGsDFpfSpVCaFo0NSYSlhEasmx6fmeBGvBEel0i5wFhmCmJ1vMdGRfwcsqjNa-QUgNsqi6p4wBVkFLoit0NVjxpopHCYn3-5V0q5gzOGdEB0iOs5ZqDwaE-lkBeziyHHjgu4YWfFhtrzU/w640-h480/PXL_20250604_173621317.jpg)
 *Harry showing me his farm.*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiI17ai1vLATR-W8BY_yvu0UulfCOL_uOTeEo6vEco3XRM6rvPP-xpFi0vvxhrQltLxNQXnq9HcNBSqHw0Lo9U2MQYNPR02UgRgsMBkMz1GNWX-IjGT7l3D1Mv5eSaL3MQmuSJK8DPlixHY66pfMkEkX7yDm_O47GlfAH13XH_XbTSz64wCfOPWRRfxFIQ/w640-h480/PXL_20250604_200357754.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiI17ai1vLATR-W8BY_yvu0UulfCOL_uOTeEo6vEco3XRM6rvPP-xpFi0vvxhrQltLxNQXnq9HcNBSqHw0Lo9U2MQYNPR02UgRgsMBkMz1GNWX-IjGT7l3D1Mv5eSaL3MQmuSJK8DPlixHY66pfMkEkX7yDm_O47GlfAH13XH_XbTSz64wCfOPWRRfxFIQ/s4624/PXL_20250604_200357754.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiI17ai1vLATR-W8BY_yvu0UulfCOL_uOTeEo6vEco3XRM6rvPP-xpFi0vvxhrQltLxNQXnq9HcNBSqHw0Lo9U2MQYNPR02UgRgsMBkMz1GNWX-IjGT7l3D1Mv5eSaL3MQmuSJK8DPlixHY66pfMkEkX7yDm_O47GlfAH13XH_XbTSz64wCfOPWRRfxFIQ/w640-h480/PXL_20250604_200357754.jpg)
 *Don's neighbors, Doug and Judy*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhmMORNriRM0iZ2FxPsGlV_iojLQ8AFR95St1cTLVPQ5x-rxPDBmNt6OfHb96wllYLJY0xwV_VfPy7WN4QdXqysHWtb2OFl1YvEdGjvlI8O5y4EJzEN_nTqCTYvw7tVsnb4POEHKPV8MW1z4Zw5RJZ09ywdSb2QfCV_LL5kbM8-z6QvRJoX-JGvJ2ujqsU/w640-h480/PXL_20250605_114022700.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhmMORNriRM0iZ2FxPsGlV_iojLQ8AFR95St1cTLVPQ5x-rxPDBmNt6OfHb96wllYLJY0xwV_VfPy7WN4QdXqysHWtb2OFl1YvEdGjvlI8O5y4EJzEN_nTqCTYvw7tVsnb4POEHKPV8MW1z4Zw5RJZ09ywdSb2QfCV_LL5kbM8-z6QvRJoX-JGvJ2ujqsU/s4624/PXL_20250605_114022700.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhmMORNriRM0iZ2FxPsGlV_iojLQ8AFR95St1cTLVPQ5x-rxPDBmNt6OfHb96wllYLJY0xwV_VfPy7WN4QdXqysHWtb2OFl1YvEdGjvlI8O5y4EJzEN_nTqCTYvw7tVsnb4POEHKPV8MW1z4Zw5RJZ09ywdSb2QfCV_LL5kbM8-z6QvRJoX-JGvJ2ujqsU/w640-h480/PXL_20250605_114022700.jpg)
 *The bruise on my leg turned darker.*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhH0h3Ozyc2lwrbGhgSljvKpvQ9fsKaWRyGjkP6Iv49vHarzrj8UtYV_MUDPhGC_m_cRwr7rpx9-nwkP7k-tC8GwpEaUy4L43mlgsrAs5EbJ31p7hjs0IVIa6OWS8V2yzdgT29eNAMYBLwUtO-WcvujXzoFfIEqkZiG20DZdhJE-fnfjvGgbvY-oNm8Zz8/w480-h640/PXL_20250605_224141020.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhH0h3Ozyc2lwrbGhgSljvKpvQ9fsKaWRyGjkP6Iv49vHarzrj8UtYV_MUDPhGC_m_cRwr7rpx9-nwkP7k-tC8GwpEaUy4L43mlgsrAs5EbJ31p7hjs0IVIa6OWS8V2yzdgT29eNAMYBLwUtO-WcvujXzoFfIEqkZiG20DZdhJE-fnfjvGgbvY-oNm8Zz8/s4624/PXL_20250605_224141020.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhH0h3Ozyc2lwrbGhgSljvKpvQ9fsKaWRyGjkP6Iv49vHarzrj8UtYV_MUDPhGC_m_cRwr7rpx9-nwkP7k-tC8GwpEaUy4L43mlgsrAs5EbJ31p7hjs0IVIa6OWS8V2yzdgT29eNAMYBLwUtO-WcvujXzoFfIEqkZiG20DZdhJE-fnfjvGgbvY-oNm8Zz8/w480-h640/PXL_20250605_224141020.jpg)
 *Susan and Don*

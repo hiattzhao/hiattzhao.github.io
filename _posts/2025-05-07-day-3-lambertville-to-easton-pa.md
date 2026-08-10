@@ -4,6 +4,7 @@ layout: post
 date: 2025-05-07
 ---
 
+
 Yesterday morning, after eating breakfast with Don I packed up my things and bid farewell. Don and Denise will go to South Korea for a supported bicycle tour the day after so they will be busy packing.
 
 Bill, the cyclist I had met, texted me and told me that he left his hotel early and was already on his way to Phillipsburg. I guess I won’t be seeing him again since he is a faster rider.
@@ -28,45 +29,45 @@ After dinner, I took a much needed shower then worked on the computer a bit more
 
 This morning, I woke up at 7:30. Elizabeth and I just had our breakfast. I had a cup of coffee and a bagel. I need to get on the road before 10 AM so I can reach my friend Robin’s house in north Bethlehem between 11 and noon. It’s a 12 mile ride from here.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvNWjmR2mksVVdWzvsX9EFv9c61vz9TT77-8R9DKtuG0EL1A1an8vuGxtYUfZKGUTBqjODFbfiYTccceSzosn6Xt2rg0qGAPR_i12DpBuZSZOoj1NgYJSYFMrZWXxWpPRB8QDPtzAA5rPXsRSzwnrqmhLdgLbkoauhheERLb1h32oetcz4feoV8X31tQo/w640-h480/PXL_20250506_142158186.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvNWjmR2mksVVdWzvsX9EFv9c61vz9TT77-8R9DKtuG0EL1A1an8vuGxtYUfZKGUTBqjODFbfiYTccceSzosn6Xt2rg0qGAPR_i12DpBuZSZOoj1NgYJSYFMrZWXxWpPRB8QDPtzAA5rPXsRSzwnrqmhLdgLbkoauhheERLb1h32oetcz4feoV8X31tQo/s4624/PXL_20250506_142158186.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvNWjmR2mksVVdWzvsX9EFv9c61vz9TT77-8R9DKtuG0EL1A1an8vuGxtYUfZKGUTBqjODFbfiYTccceSzosn6Xt2rg0qGAPR_i12DpBuZSZOoj1NgYJSYFMrZWXxWpPRB8QDPtzAA5rPXsRSzwnrqmhLdgLbkoauhheERLb1h32oetcz4feoV8X31tQo/w640-h480/PXL_20250506_142158186.jpg)
 *Delaware and Raritan Canal State Park Trail near Lambertville*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiw0CNbTmsR9zB6F2khFERFoguX31Mv4IR9JmdUB5N-9-Tt7ZJoZ_GWsYXfUvYFMDf8LIUwL4nhpYEEQ77n9uAvmIumrg4LAqHds9xKVIOvvCFywytU3SL63EfshzIq2GQBVebYDgjHAm1pswb_AkaZEh-Uj1LmBWBlZiiShBb4CH_SupJJpP5gUh24xRE/w640-h480/PXL_20250506_142721488.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiw0CNbTmsR9zB6F2khFERFoguX31Mv4IR9JmdUB5N-9-Tt7ZJoZ_GWsYXfUvYFMDf8LIUwL4nhpYEEQ77n9uAvmIumrg4LAqHds9xKVIOvvCFywytU3SL63EfshzIq2GQBVebYDgjHAm1pswb_AkaZEh-Uj1LmBWBlZiiShBb4CH_SupJJpP5gUh24xRE/s4624/PXL_20250506_142721488.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiw0CNbTmsR9zB6F2khFERFoguX31Mv4IR9JmdUB5N-9-Tt7ZJoZ_GWsYXfUvYFMDf8LIUwL4nhpYEEQ77n9uAvmIumrg4LAqHds9xKVIOvvCFywytU3SL63EfshzIq2GQBVebYDgjHAm1pswb_AkaZEh-Uj1LmBWBlZiiShBb4CH_SupJJpP5gUh24xRE/w640-h480/PXL_20250506_142721488.jpg)
 *Waterfall on the trail*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiU8qRw_VGCN-cAQGW7TUV2kJoEySj-5_OdpcqXPmIf4TJ7YIm7YTeSXgnlDq5U0YMqrMbuZuZUPO-QzfL0nZH35Or2lWQ2obB3dsC7wKyPsIysITsOV-eGcx_Fq3oABk87fCsn_z3nKvdef0nrPADD4KUEdH-Nq7Kt3Yg4di8koefZ5CShxjVZ5H-r1LM/w480-h640/PXL_20250506_150930385.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiU8qRw_VGCN-cAQGW7TUV2kJoEySj-5_OdpcqXPmIf4TJ7YIm7YTeSXgnlDq5U0YMqrMbuZuZUPO-QzfL0nZH35Or2lWQ2obB3dsC7wKyPsIysITsOV-eGcx_Fq3oABk87fCsn_z3nKvdef0nrPADD4KUEdH-Nq7Kt3Yg4di8koefZ5CShxjVZ5H-r1LM/s4624/PXL_20250506_150930385.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiU8qRw_VGCN-cAQGW7TUV2kJoEySj-5_OdpcqXPmIf4TJ7YIm7YTeSXgnlDq5U0YMqrMbuZuZUPO-QzfL0nZH35Or2lWQ2obB3dsC7wKyPsIysITsOV-eGcx_Fq3oABk87fCsn_z3nKvdef0nrPADD4KUEdH-Nq7Kt3Yg4di8koefZ5CShxjVZ5H-r1LM/w480-h640/PXL_20250506_150930385.jpg)
 *The lush canopy*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj6hlnE0qWP9gvoA0OWXWxmpALqQCYyfeSWzStQ1AaW2djMbKcX9y6Pzbn1Y1yO4FIu61qU586hI-Y9lvhDzjR0D4W7ISGuheLJ-wEl7MvgEZ26XqDVKe1ZhRimaAZ004d-rlNlyMtk8gEE2H9lattLq5o1-h45lGvbzM_75uegW8mHy4VnMhTYh1gl114/w640-h480/PXL_20250506_165641339.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj6hlnE0qWP9gvoA0OWXWxmpALqQCYyfeSWzStQ1AaW2djMbKcX9y6Pzbn1Y1yO4FIu61qU586hI-Y9lvhDzjR0D4W7ISGuheLJ-wEl7MvgEZ26XqDVKe1ZhRimaAZ004d-rlNlyMtk8gEE2H9lattLq5o1-h45lGvbzM_75uegW8mHy4VnMhTYh1gl114/s4624/PXL_20250506_165641339.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj6hlnE0qWP9gvoA0OWXWxmpALqQCYyfeSWzStQ1AaW2djMbKcX9y6Pzbn1Y1yO4FIu61qU586hI-Y9lvhDzjR0D4W7ISGuheLJ-wEl7MvgEZ26XqDVKe1ZhRimaAZ004d-rlNlyMtk8gEE2H9lattLq5o1-h45lGvbzM_75uegW8mHy4VnMhTYh1gl114/w640-h480/PXL_20250506_165641339.jpg)
 *Lunch at Frenchtown Subs*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgZ46E0nVBkCLP3mVdkXppKAt0OcAO1TEAXUihsWxkdH2GSxHcOmUlXEm7u4m2rz_Qo-w_1IwNZAq8vC3J5wsKBHwZUZVmMxryIHoCCiKVqmEA0EJ_BCNz-D6-XdqWm7b60CRWpJQz98ckJi2LnQR6KBHWxTArK86HuNihgMLM6mGdHLDRj_RphAixTrJY/w640-h480/PXL_20250506_172058364.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgZ46E0nVBkCLP3mVdkXppKAt0OcAO1TEAXUihsWxkdH2GSxHcOmUlXEm7u4m2rz_Qo-w_1IwNZAq8vC3J5wsKBHwZUZVmMxryIHoCCiKVqmEA0EJ_BCNz-D6-XdqWm7b60CRWpJQz98ckJi2LnQR6KBHWxTArK86HuNihgMLM6mGdHLDRj_RphAixTrJY/s4624/PXL_20250506_172058364.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgZ46E0nVBkCLP3mVdkXppKAt0OcAO1TEAXUihsWxkdH2GSxHcOmUlXEm7u4m2rz_Qo-w_1IwNZAq8vC3J5wsKBHwZUZVmMxryIHoCCiKVqmEA0EJ_BCNz-D6-XdqWm7b60CRWpJQz98ckJi2LnQR6KBHWxTArK86HuNihgMLM6mGdHLDRj_RphAixTrJY/w640-h480/PXL_20250506_172058364.jpg)
 *On the road to Milford*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh3eyUiNJwBZwb4W43Tfm_d0JhSC6tLLWDqGdXRH-dNbNLs678YiOYoxwj4ZjxCLB9_uEPKUyaXrsQIJ8v00XVRbNmlHWP9KcSpyfdkhyohDiV98hAFB2Uq4_Y9ItO8led1PF3uj6beYqZLI70BiX6PmXG5IsNN_Tu2AP3HrlLuuMbLZne6HHOVaHgpLfk/w640-h480/PXL_20250506_175540631.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh3eyUiNJwBZwb4W43Tfm_d0JhSC6tLLWDqGdXRH-dNbNLs678YiOYoxwj4ZjxCLB9_uEPKUyaXrsQIJ8v00XVRbNmlHWP9KcSpyfdkhyohDiV98hAFB2Uq4_Y9ItO8led1PF3uj6beYqZLI70BiX6PmXG5IsNN_Tu2AP3HrlLuuMbLZne6HHOVaHgpLfk/s4624/PXL_20250506_175540631.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh3eyUiNJwBZwb4W43Tfm_d0JhSC6tLLWDqGdXRH-dNbNLs678YiOYoxwj4ZjxCLB9_uEPKUyaXrsQIJ8v00XVRbNmlHWP9KcSpyfdkhyohDiV98hAFB2Uq4_Y9ItO8led1PF3uj6beYqZLI70BiX6PmXG5IsNN_Tu2AP3HrlLuuMbLZne6HHOVaHgpLfk/w640-h480/PXL_20250506_175540631.jpg)
 *The road to Riegelsville*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-ZQaWOGyLc9JYx-evc8c7bdkMm5sKXoCRhnjOk-gxYdVQvnJ2ByBC6J2jK3Dah_LlkP99Y-ghKono9Yqf-tRTxElhWoJrjHczKSxOK-aCJFq9NYRWOVwHepNR4cmM1jHp6yj60-Sl9SSB-U-eIkWZGXvDGHuRje5sNAKnzWM11nbtB5FpH-_yqA8SUj4/w480-h640/PXL_20250506_184120825.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-ZQaWOGyLc9JYx-evc8c7bdkMm5sKXoCRhnjOk-gxYdVQvnJ2ByBC6J2jK3Dah_LlkP99Y-ghKono9Yqf-tRTxElhWoJrjHczKSxOK-aCJFq9NYRWOVwHepNR4cmM1jHp6yj60-Sl9SSB-U-eIkWZGXvDGHuRje5sNAKnzWM11nbtB5FpH-_yqA8SUj4/s4624/PXL_20250506_184120825.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-ZQaWOGyLc9JYx-evc8c7bdkMm5sKXoCRhnjOk-gxYdVQvnJ2ByBC6J2jK3Dah_LlkP99Y-ghKono9Yqf-tRTxElhWoJrjHczKSxOK-aCJFq9NYRWOVwHepNR4cmM1jHp6yj60-Sl9SSB-U-eIkWZGXvDGHuRje5sNAKnzWM11nbtB5FpH-_yqA8SUj4/w480-h640/PXL_20250506_184120825.jpg)
 *Canal trail on the Pennsylvania side of the Delaware River*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBs3A5TIMB5hCo1F7ABGS5BhzOI874I9qqdgtD-fqeoWNH_yQ6VWnuMKCLqZn-nNrnPd6Qr0zPthcalhBYT39_TevR_eBZB0K9OKHKsnyIA4K-XDvjwqvXPOtMJ_ANB9nst_nNUrC7yOCC6eszCtMKG2O5wRmSywRupkbf3-bzULwJKRAyzLphYZd9Rv4/w480-h640/PXL_20250506_190926641.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBs3A5TIMB5hCo1F7ABGS5BhzOI874I9qqdgtD-fqeoWNH_yQ6VWnuMKCLqZn-nNrnPd6Qr0zPthcalhBYT39_TevR_eBZB0K9OKHKsnyIA4K-XDvjwqvXPOtMJ_ANB9nst_nNUrC7yOCC6eszCtMKG2O5wRmSywRupkbf3-bzULwJKRAyzLphYZd9Rv4/s4624/PXL_20250506_190926641.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBs3A5TIMB5hCo1F7ABGS5BhzOI874I9qqdgtD-fqeoWNH_yQ6VWnuMKCLqZn-nNrnPd6Qr0zPthcalhBYT39_TevR_eBZB0K9OKHKsnyIA4K-XDvjwqvXPOtMJ_ANB9nst_nNUrC7yOCC6eszCtMKG2O5wRmSywRupkbf3-bzULwJKRAyzLphYZd9Rv4/w480-h640/PXL_20250506_190926641.jpg)
 *Not fit for a loaded bike*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnjtvqM6NvnO-EGCG52qo5xkglUyYZzLu0Q2AlPwa9vKNCnX7Amh4PBRTn51w58zHmTjLb6flkVY_auGNulMWBPJvGjAfwa6ZEu_dhvVYY7NTzVs9AJ_VjN1MuBtg45tsuAltHhAY8SOL5rOhZdydY9qiWaIMRCP8vkse-NDfnQnJn1GmiL3KWaR462hU/w640-h480/PXL_20250506_192035182.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnjtvqM6NvnO-EGCG52qo5xkglUyYZzLu0Q2AlPwa9vKNCnX7Amh4PBRTn51w58zHmTjLb6flkVY_auGNulMWBPJvGjAfwa6ZEu_dhvVYY7NTzVs9AJ_VjN1MuBtg45tsuAltHhAY8SOL5rOhZdydY9qiWaIMRCP8vkse-NDfnQnJn1GmiL3KWaR462hU/s4624/PXL_20250506_192035182.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjnjtvqM6NvnO-EGCG52qo5xkglUyYZzLu0Q2AlPwa9vKNCnX7Amh4PBRTn51w58zHmTjLb6flkVY_auGNulMWBPJvGjAfwa6ZEu_dhvVYY7NTzVs9AJ_VjN1MuBtg45tsuAltHhAY8SOL5rOhZdydY9qiWaIMRCP8vkse-NDfnQnJn1GmiL3KWaR462hU/w640-h480/PXL_20250506_192035182.jpg)
 *Geese on the trail*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiAlWh6ejnrsWrfRUwDwJuZR6XXIWBAhUuIYVoBUWVptIvwUWxDBHfYtaZ2cWeRKNu61CxbxJ5xdzAa7BexOeBtTXJtK8Nk33Izw7KjCPhJxlVnxgtGC9LPxh9aBjcEcrVkcXWsjLB1gZXPPsRbPXctlSMgm0AGWmAyu95NTM5sTHVCgyHpWGFvE_27d80/w480-h640/PXL_20250506_195828134.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiAlWh6ejnrsWrfRUwDwJuZR6XXIWBAhUuIYVoBUWVptIvwUWxDBHfYtaZ2cWeRKNu61CxbxJ5xdzAa7BexOeBtTXJtK8Nk33Izw7KjCPhJxlVnxgtGC9LPxh9aBjcEcrVkcXWsjLB1gZXPPsRbPXctlSMgm0AGWmAyu95NTM5sTHVCgyHpWGFvE_27d80/s4624/PXL_20250506_195828134.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiAlWh6ejnrsWrfRUwDwJuZR6XXIWBAhUuIYVoBUWVptIvwUWxDBHfYtaZ2cWeRKNu61CxbxJ5xdzAa7BexOeBtTXJtK8Nk33Izw7KjCPhJxlVnxgtGC9LPxh9aBjcEcrVkcXWsjLB1gZXPPsRbPXctlSMgm0AGWmAyu95NTM5sTHVCgyHpWGFvE_27d80/w480-h640/PXL_20250506_195828134.jpg)
 *The monument in downtown Easton*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikzLZLb7cS91QqkYDagT3T-y_66DSNws1wYIu8ekskbJuIhDvSEB7EttnxjurkD9hqgyfYVoFo_nnETMcLf7nEGIvGxYOsdARjjgAb42pkCSfCukAab7nGZ8dyxp1ksxN-1tUkptOzNz1kd2snwwvPY5xFxG35-BT3wmDO7XlXpt3pCjUxuvQavh3yjbw/w640-h480/PXL_20250507_131946792.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikzLZLb7cS91QqkYDagT3T-y_66DSNws1wYIu8ekskbJuIhDvSEB7EttnxjurkD9hqgyfYVoFo_nnETMcLf7nEGIvGxYOsdARjjgAb42pkCSfCukAab7nGZ8dyxp1ksxN-1tUkptOzNz1kd2snwwvPY5xFxG35-BT3wmDO7XlXpt3pCjUxuvQavh3yjbw/s4624/PXL_20250507_131946792.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikzLZLb7cS91QqkYDagT3T-y_66DSNws1wYIu8ekskbJuIhDvSEB7EttnxjurkD9hqgyfYVoFo_nnETMcLf7nEGIvGxYOsdARjjgAb42pkCSfCukAab7nGZ8dyxp1ksxN-1tUkptOzNz1kd2snwwvPY5xFxG35-BT3wmDO7XlXpt3pCjUxuvQavh3yjbw/w640-h480/PXL_20250507_131946792.jpg)
 *My host Elizabeth, next to her painting*

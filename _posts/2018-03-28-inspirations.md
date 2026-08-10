@@ -4,6 +4,7 @@ layout: post
 date: 2018-03-28
 ---
 
+
 Yesterday, I announced to my department at work about my bicycling trip. Some of them know about it already, so it was more of a formality than anything else. I'm still riding high with pumped-up energy about the trip. I'm hoping this energy will last until my first day of cycling. The hardest part of doing anything is the beginning, whether it'll be going on a big trip or starting a company.  
    
 I'm not trying to break any new records on my trip (such as the one set by Christoph Strasser in 2014 when he bicycled from California to Maryland in less than eight days) nor I'm doing this for charity. I'm doing this because I want to see the country again, go to the places I've never been before, meet new people, understand them (or try to), and come back home with a renewed sense of meaning on life.  

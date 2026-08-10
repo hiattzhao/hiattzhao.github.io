@@ -4,6 +4,7 @@ layout: post
 date: 2022-05-07
 ---
 
+
 <p style="font-stretch: normal; line-height: normal; margin: 0px;"><span style="font-family: inherit;">Two days ago, after getting our bikes ready, Crispin and I left the Red Roof Inn in Williamsport and continued on the C&O towpath upstream toward Cumberland.</span></p>
 <p style="font-stretch: normal; line-height: normal; margin: 0px; min-height: 25px;"><span style="font-family: inherit;"><br /></span></p>
 <p style="font-stretch: normal; line-height: normal; margin: 0px;"><span style="font-family: inherit;">The trail is now a two tracked gravel path with potholes and the scenery has become mundane so I will explain briefly about my bike setup.</span></p>

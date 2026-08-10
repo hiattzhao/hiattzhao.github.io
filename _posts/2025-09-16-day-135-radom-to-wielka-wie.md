@@ -4,6 +4,7 @@ layout: post
 date: 2025-09-16
 ---
 
+
 Yesterday morning, I fried two eggs for breakfast then I packed up my things. I bid farewell to Renata around 10 AM then headed for Wielka Wieś.
 
 The ride was mainly on the road at first then I went through farmlands. Throughout the day’s ride, my mind was ruminating about a missed phone call from my dad.
@@ -28,37 +29,37 @@ This morning, I woke up at 7 again. Damian made a huge plate of food for breakfa
 
 It’s raining a little right now and I have to get going to my next destination, Kielce. Good thing is I don’t have to ride too far, just 30 miles or so.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-4eXeBcvucwj1IsZ957DQyXPopE0GwQQPapyCEXMF1n2Jvlfr_Qtyacn198QJTk7OR_6zXGsZw9uLXn-zZ31ReUudqRcY6qjgA2Lnobyf-eGyAQkg-t8lzcpb1-YvkQ8hBaP80wRC456hvoiIi6PmcyxfpPkWhs-NU__AQapaTWznsweI_f3E7CzaJSE/w640-h480/PXL_20250915_090123206.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-4eXeBcvucwj1IsZ957DQyXPopE0GwQQPapyCEXMF1n2Jvlfr_Qtyacn198QJTk7OR_6zXGsZw9uLXn-zZ31ReUudqRcY6qjgA2Lnobyf-eGyAQkg-t8lzcpb1-YvkQ8hBaP80wRC456hvoiIi6PmcyxfpPkWhs-NU__AQapaTWznsweI_f3E7CzaJSE/s4624/PXL_20250915_090123206.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-4eXeBcvucwj1IsZ957DQyXPopE0GwQQPapyCEXMF1n2Jvlfr_Qtyacn198QJTk7OR_6zXGsZw9uLXn-zZ31ReUudqRcY6qjgA2Lnobyf-eGyAQkg-t8lzcpb1-YvkQ8hBaP80wRC456hvoiIi6PmcyxfpPkWhs-NU__AQapaTWznsweI_f3E7CzaJSE/w640-h480/PXL_20250915_090123206.jpg)
 *Passing by more Polish farmlands*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiqaR8hpDn-ZdNb_LP3AEs84l8NTUsfOvNzabqVJ-H8V5Ea0jYaaHYjs-Gc5jMEtvYmtA0wCkwFOzbH4T_c_pu4XqUs_yhWlRWq2x7P6jjtcM7S4UXiHX_Un_Ep8PbCQoiRR12enNB6BInsmwGMcdhP4kTw9axBl8deR-j_vG9HMu3ch-b2qWtYJXwvmJ0/w640-h480/PXL_20250915_091104829.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiqaR8hpDn-ZdNb_LP3AEs84l8NTUsfOvNzabqVJ-H8V5Ea0jYaaHYjs-Gc5jMEtvYmtA0wCkwFOzbH4T_c_pu4XqUs_yhWlRWq2x7P6jjtcM7S4UXiHX_Un_Ep8PbCQoiRR12enNB6BInsmwGMcdhP4kTw9axBl8deR-j_vG9HMu3ch-b2qWtYJXwvmJ0/s4624/PXL_20250915_091104829.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiqaR8hpDn-ZdNb_LP3AEs84l8NTUsfOvNzabqVJ-H8V5Ea0jYaaHYjs-Gc5jMEtvYmtA0wCkwFOzbH4T_c_pu4XqUs_yhWlRWq2x7P6jjtcM7S4UXiHX_Un_Ep8PbCQoiRR12enNB6BInsmwGMcdhP4kTw9axBl8deR-j_vG9HMu3ch-b2qWtYJXwvmJ0/w640-h480/PXL_20250915_091104829.jpg)
 *Road renovation*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjJLXDEBzuKL4sZRE6KiNbnvxQXq5UPfAVNwITpj8SRUyI9tg2swDq2pzoqVu1QniL3Jld0jmd4JfaBTEDnObfiXWkuUkJH9U6fRIV9Qo9K2Z3emdAsN5hl2mQrhxX-QxBiibqq13-Y1ZlhB6JDplzb8WDYwqeS_WCiQs_q9D6D31cQULOm8h0yLru9F8A/w640-h480/PXL_20250915_093649325.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjJLXDEBzuKL4sZRE6KiNbnvxQXq5UPfAVNwITpj8SRUyI9tg2swDq2pzoqVu1QniL3Jld0jmd4JfaBTEDnObfiXWkuUkJH9U6fRIV9Qo9K2Z3emdAsN5hl2mQrhxX-QxBiibqq13-Y1ZlhB6JDplzb8WDYwqeS_WCiQs_q9D6D31cQULOm8h0yLru9F8A/s4624/PXL_20250915_093649325.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjJLXDEBzuKL4sZRE6KiNbnvxQXq5UPfAVNwITpj8SRUyI9tg2swDq2pzoqVu1QniL3Jld0jmd4JfaBTEDnObfiXWkuUkJH9U6fRIV9Qo9K2Z3emdAsN5hl2mQrhxX-QxBiibqq13-Y1ZlhB6JDplzb8WDYwqeS_WCiQs_q9D6D31cQULOm8h0yLru9F8A/w640-h480/PXL_20250915_093649325.jpg)
 *The wide open farm that Google Maps guided me to*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjhecUdceewrTezePGNdD6GBLjJclWqukwAA_SGN7e3gnP9HrFW-pZhuBf4nabJrLOLmL5JUg5nJLnJzta0vnWMNOGZ5lSd8Rk5ToscAPU6TEZM93QIym5VLlxv59lfcAysJ_vpjsD1P0EOkRWt2kbXSiOshIIorIPX7eXvrhN16yG_TBRzWUis_jJdd0Q/w480-h640/PXL_20250915_093907044.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjhecUdceewrTezePGNdD6GBLjJclWqukwAA_SGN7e3gnP9HrFW-pZhuBf4nabJrLOLmL5JUg5nJLnJzta0vnWMNOGZ5lSd8Rk5ToscAPU6TEZM93QIym5VLlxv59lfcAysJ_vpjsD1P0EOkRWt2kbXSiOshIIorIPX7eXvrhN16yG_TBRzWUis_jJdd0Q/s4624/PXL_20250915_093907044.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjhecUdceewrTezePGNdD6GBLjJclWqukwAA_SGN7e3gnP9HrFW-pZhuBf4nabJrLOLmL5JUg5nJLnJzta0vnWMNOGZ5lSd8Rk5ToscAPU6TEZM93QIym5VLlxv59lfcAysJ_vpjsD1P0EOkRWt2kbXSiOshIIorIPX7eXvrhN16yG_TBRzWUis_jJdd0Q/w480-h640/PXL_20250915_093907044.jpg)
 *This is not made for cycling.*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhg65W7k_YdrbM1Nmhj4YGCS1qumv5oD5KhPxMP1yTbDi1l3qqiepZN1TJWaLjTCNNw9g4N1BgEW4X6HT2P-9RjEFacZfqnjiurN0WBXWiDvT8CwW4Pme6KP5_FBaCDveKb6xviC2Zcqv09ZdaGenSwo7BBsODfNFTMtgvxamtohF4TeKHvYm3QTnap1gg/w640-h480/PXL_20250915_105024935.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhg65W7k_YdrbM1Nmhj4YGCS1qumv5oD5KhPxMP1yTbDi1l3qqiepZN1TJWaLjTCNNw9g4N1BgEW4X6HT2P-9RjEFacZfqnjiurN0WBXWiDvT8CwW4Pme6KP5_FBaCDveKb6xviC2Zcqv09ZdaGenSwo7BBsODfNFTMtgvxamtohF4TeKHvYm3QTnap1gg/s4624/PXL_20250915_105024935.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhg65W7k_YdrbM1Nmhj4YGCS1qumv5oD5KhPxMP1yTbDi1l3qqiepZN1TJWaLjTCNNw9g4N1BgEW4X6HT2P-9RjEFacZfqnjiurN0WBXWiDvT8CwW4Pme6KP5_FBaCDveKb6xviC2Zcqv09ZdaGenSwo7BBsODfNFTMtgvxamtohF4TeKHvYm3QTnap1gg/w640-h480/PXL_20250915_105024935.jpg)
 *I'm loving the kebab wraps in Poland!*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1J262DqtIxfSqSzumlPq4UPeFuALi3TlsZRnIJliQiUA6uH1o89WvvTWPbnCaJzH_NY6eFU4IsROoPItU7ls3XMvkqQKgGYxgG-Es37DIqMf4APhVycA-objkzOrtu9l_h16QYHOiQJ5a6KuMsp3OfKLXbdiL7hKunoOrHYjivMNO7_W3ifSOgRyZ3lw/w640-h480/PXL_20250915_143810439.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1J262DqtIxfSqSzumlPq4UPeFuALi3TlsZRnIJliQiUA6uH1o89WvvTWPbnCaJzH_NY6eFU4IsROoPItU7ls3XMvkqQKgGYxgG-Es37DIqMf4APhVycA-objkzOrtu9l_h16QYHOiQJ5a6KuMsp3OfKLXbdiL7hKunoOrHYjivMNO7_W3ifSOgRyZ3lw/s4624/PXL_20250915_143810439.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1J262DqtIxfSqSzumlPq4UPeFuALi3TlsZRnIJliQiUA6uH1o89WvvTWPbnCaJzH_NY6eFU4IsROoPItU7ls3XMvkqQKgGYxgG-Es37DIqMf4APhVycA-objkzOrtu9l_h16QYHOiQJ5a6KuMsp3OfKLXbdiL7hKunoOrHYjivMNO7_W3ifSOgRyZ3lw/w640-h480/PXL_20250915_143810439.jpg)
 *A Polish tripe soup called flaczki*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEidB1YXlyH4dfocM67g5B_8uNVZUyI-haR62yCDKyhx0XCQB3jGrsa6tilEMOtF91H5KtjllbViiV8BOiLr_WphrxCjc4wfI-SrtoTEf8lBeDEoDUMavVLnrQ4aY86CN1IORBcUo3TtoW2wDlmiWmQSjmxj_z8w-9jCWVXLGuO-s-rXL6uP7dr5Jp_ZzcY/w480-h640/PXL_20250915_170530860.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEidB1YXlyH4dfocM67g5B_8uNVZUyI-haR62yCDKyhx0XCQB3jGrsa6tilEMOtF91H5KtjllbViiV8BOiLr_WphrxCjc4wfI-SrtoTEf8lBeDEoDUMavVLnrQ4aY86CN1IORBcUo3TtoW2wDlmiWmQSjmxj_z8w-9jCWVXLGuO-s-rXL6uP7dr5Jp_ZzcY/s4624/PXL_20250915_170530860.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEidB1YXlyH4dfocM67g5B_8uNVZUyI-haR62yCDKyhx0XCQB3jGrsa6tilEMOtF91H5KtjllbViiV8BOiLr_WphrxCjc4wfI-SrtoTEf8lBeDEoDUMavVLnrQ4aY86CN1IORBcUo3TtoW2wDlmiWmQSjmxj_z8w-9jCWVXLGuO-s-rXL6uP7dr5Jp_ZzcY/w480-h640/PXL_20250915_170530860.jpg)
 *Damian pouring some wine for me. I was too busy taking this photo that I forgot to tell him to only give me a little bit of wine.*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgnUc3OCz4fL5RrHo0lFrJK4hvH60_hGXZ_8UHBIwjeLYB2YuOF06kh2ubG_qZJYQ0oPM7D72wuJSZthQN1PAO7yvZuDRdELbuLfj0UMlbzUJyc5yZsPKV-50X7JxvdXcmdJBKxGFJhYqqrjL9DWBSmNjmkjKvEhxlLPUvcsx96sfa_rXZrPuZ4FQcGGbk/w640-h480/PXL_20250916_054325218.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgnUc3OCz4fL5RrHo0lFrJK4hvH60_hGXZ_8UHBIwjeLYB2YuOF06kh2ubG_qZJYQ0oPM7D72wuJSZthQN1PAO7yvZuDRdELbuLfj0UMlbzUJyc5yZsPKV-50X7JxvdXcmdJBKxGFJhYqqrjL9DWBSmNjmkjKvEhxlLPUvcsx96sfa_rXZrPuZ4FQcGGbk/s4624/PXL_20250916_054325218.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgnUc3OCz4fL5RrHo0lFrJK4hvH60_hGXZ_8UHBIwjeLYB2YuOF06kh2ubG_qZJYQ0oPM7D72wuJSZthQN1PAO7yvZuDRdELbuLfj0UMlbzUJyc5yZsPKV-50X7JxvdXcmdJBKxGFJhYqqrjL9DWBSmNjmkjKvEhxlLPUvcsx96sfa_rXZrPuZ4FQcGGbk/w640-h480/PXL_20250916_054325218.jpg)
 *A huge breakfast!*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgxH4deTsrDzpuU2Kkokzzmk8saYABuLDiZ8ZGtrtGFsJ0FfgQLAi4YA-h6XSv8NdueKmFlAh-isMwuE7TbLKU95-d9Vb_gZBKR5bobQzKvVIAgk-4pQPLYhML29wHxrzQX1_ZG_it2nx_2R17ivg2JDSHfBm3gEPAk-EtuymwUVJK9T9dsA5qTY_we-00/w640-h480/PXL_20250916_062403778.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgxH4deTsrDzpuU2Kkokzzmk8saYABuLDiZ8ZGtrtGFsJ0FfgQLAi4YA-h6XSv8NdueKmFlAh-isMwuE7TbLKU95-d9Vb_gZBKR5bobQzKvVIAgk-4pQPLYhML29wHxrzQX1_ZG_it2nx_2R17ivg2JDSHfBm3gEPAk-EtuymwUVJK9T9dsA5qTY_we-00/s4032/PXL_20250916_062403778.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgxH4deTsrDzpuU2Kkokzzmk8saYABuLDiZ8ZGtrtGFsJ0FfgQLAi4YA-h6XSv8NdueKmFlAh-isMwuE7TbLKU95-d9Vb_gZBKR5bobQzKvVIAgk-4pQPLYhML29wHxrzQX1_ZG_it2nx_2R17ivg2JDSHfBm3gEPAk-EtuymwUVJK9T9dsA5qTY_we-00/w640-h480/PXL_20250916_062403778.jpg)
 *Me and Damian*

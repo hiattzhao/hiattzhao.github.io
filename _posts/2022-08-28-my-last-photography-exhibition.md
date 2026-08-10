@@ -4,7 +4,8 @@ layout: post
 date: 2022-08-28
 ---
 
-[map](https://goo.gl/maps/QRATifK1jA1b4vzz8)). It'll run from September 4 (Sunday) through October 1 (Saturday).[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgRQMloEELXgKlNTyrWw4gfvh_UQ2iB0ezEx5elk49907_xqb7UKZP9HuR9qRPcXIR1UprlWBbzNEVpJheW2xKsmSo3vHx9oCC4dulvLLSRuuhaPRkzojR4oeK2iyZwMdTUoKlTFZkYwX5A3SLut-dapyjXlhcxliyc660QsjVwVDBJTQRDc9g7el7s/w640-h480/PXL_20220828_171532728~3.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgRQMloEELXgKlNTyrWw4gfvh_UQ2iB0ezEx5elk49907_xqb7UKZP9HuR9qRPcXIR1UprlWBbzNEVpJheW2xKsmSo3vHx9oCC4dulvLLSRuuhaPRkzojR4oeK2iyZwMdTUoKlTFZkYwX5A3SLut-dapyjXlhcxliyc660QsjVwVDBJTQRDc9g7el7s/s4032/PXL_20220828_171532728~3.jpg)
+
+[map](https://goo.gl/maps/QRATifK1jA1b4vzz8)). It'll run from September 4 (Sunday) through October 1 (Saturday).![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgRQMloEELXgKlNTyrWw4gfvh_UQ2iB0ezEx5elk49907_xqb7UKZP9HuR9qRPcXIR1UprlWBbzNEVpJheW2xKsmSo3vHx9oCC4dulvLLSRuuhaPRkzojR4oeK2iyZwMdTUoKlTFZkYwX5A3SLut-dapyjXlhcxliyc660QsjVwVDBJTQRDc9g7el7s/w640-h480/PXL_20220828_171532728~3.jpg)
 *Exhibition Postcard*
 
   

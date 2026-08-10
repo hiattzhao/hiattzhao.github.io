@@ -4,7 +4,8 @@ layout: post
 date: 2020-11-22
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEircwnmstBkcWpEbhSWxmqi23LW_w82kzeV3GzfnR4CewS9gaB7vJEZm4p55HUO9bcYv1QJIvbhu8V3vccyarPzqdfgBdLLd02qUhNp03fwbjM9MkfTqGYjzWrijMLRrCeMjXsko9IxTkM/w640-h480/PXL_20201122_203912538.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEircwnmstBkcWpEbhSWxmqi23LW_w82kzeV3GzfnR4CewS9gaB7vJEZm4p55HUO9bcYv1QJIvbhu8V3vccyarPzqdfgBdLLd02qUhNp03fwbjM9MkfTqGYjzWrijMLRrCeMjXsko9IxTkM/s4032/PXL_20201122_203912538.jpg)
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEircwnmstBkcWpEbhSWxmqi23LW_w82kzeV3GzfnR4CewS9gaB7vJEZm4p55HUO9bcYv1QJIvbhu8V3vccyarPzqdfgBdLLd02qUhNp03fwbjM9MkfTqGYjzWrijMLRrCeMjXsko9IxTkM/w640-h480/PXL_20201122_203912538.jpg)
 *Journaling*
 
 People say this year has been tough, with the pandemic and the election, and everything else. To me, it is what it is. I try to not let the external events get to me, but there are times when I feel down and anxious. I guess that's just part of being a human.

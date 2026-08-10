@@ -4,7 +4,8 @@ layout: post
 date: 2020-11-28
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZ5lZX-1PZfz7vADOlcrLN5RYGofJ6t4TTOVyMEys_7rbNejrCljfeehKno0oytQaHUBa4Ma4W0OIjB8kiRmeyS4nFQHakgUGg7kd047YHfxeJzUxUpMpEhD6yZIKOTpqXtKzOV_f7MGM/w250-h400/ZHAOISM.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZ5lZX-1PZfz7vADOlcrLN5RYGofJ6t4TTOVyMEys_7rbNejrCljfeehKno0oytQaHUBa4Ma4W0OIjB8kiRmeyS4nFQHakgUGg7kd047YHfxeJzUxUpMpEhD6yZIKOTpqXtKzOV_f7MGM/s2048/ZHAOISM.jpg)
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZ5lZX-1PZfz7vADOlcrLN5RYGofJ6t4TTOVyMEys_7rbNejrCljfeehKno0oytQaHUBa4Ma4W0OIjB8kiRmeyS4nFQHakgUGg7kd047YHfxeJzUxUpMpEhD6yZIKOTpqXtKzOV_f7MGM/w250-h400/ZHAOISM.jpg)
 *Zhaoism*
 
 On November 23, 2020, I was lying in bed trying to sleep. That's when inspiration struck and I made the decision to publish my autobiography entitled*Zhaoism*. The biography covered the first 25 years of my life and it was already finished in 2014. I had put it on its own website for a few years, but decided to take it down. Now, I want to publish it on Amazon as an eBook and as a paperback for a wider distribution.

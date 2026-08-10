@@ -4,6 +4,7 @@ layout: post
 date: 2023-02-16
 ---
 
+
 The more I live the more I realize that everything is a relationship. The interactions between people with people, or people with things.
 
 People to people is easy to understand but hard to master. There are whole fields of studies that are dedicated to this, namely psychology and sociology. I’m still a student of understanding people. At this rate I’ll be a student my whole life just trying to live in peace with people.

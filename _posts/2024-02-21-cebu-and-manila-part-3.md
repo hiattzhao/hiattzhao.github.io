@@ -4,6 +4,7 @@ layout: post
 date: 2024-02-21
 ---
 
+
 I came back to Cebu after Bantayan and stayed for two nights in Mandaue City, then I took a flight to Manila and stayed for one night. Today, I’m flying to Singapore at 2:10 PM.
 
 I didn’t do much in Cebu and Manila and I don’t have any photos to show, so this post is more of a summary.

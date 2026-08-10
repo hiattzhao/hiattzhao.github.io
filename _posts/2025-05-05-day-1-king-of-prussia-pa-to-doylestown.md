@@ -4,6 +4,7 @@ layout: post
 date: 2025-05-05
 ---
 
+
 Today is my first day of my second attempt to bicycle around the world. After putting my panniers on my bicycle I noticed there was a leak on the valve of the front tire. I tightened the valve nut and tried my best to fix it. It either stopped leaking air or just has a slow leak. I don’t have a spare tubeless valve to replace the faulty one so I guess I’ll just have pray that the bike can get me to my Warmshowers host’s place in Doylestown later today.
 
 The forecast indicated rain starting in the afternoon and will go on for the next several days. I wanted to get on the road before the rain so at around 10 AM I bid farewell to my housemate Brooks and my landlady Merritt, along with the three dogs and a house chicken.
@@ -30,41 +31,41 @@ For dinner, we ate at Baci Ristorante where I had a plate of linguine with chick
 
 We came back home at 8 PM and as I’m writing this blog post I already feel tired. I will take a shower soon before I go to bed. Tomorrow, I will only ride about 12 miles to Lambertville, NJ, to another Warmshowers host’s place.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg3S4YaztFyzPxWxFcQ8x_IQMY_Q-vDs4k2r66lYzxcsHyoplzd8h8MwTEtVENcH8ZlMyJtqeLmtjuTC_CbeNhUsXwOfVEFZdLKhkZ5Rd5KmFlpGDWfStY2ixgynx4QMj-sjoO9vSW7zVkMd9uykHLSfRBGgBLdQlTmV59SyQR-7U78y42lf_QIEzhdW-s/w480-h640/PXL_20250504_140353733.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg3S4YaztFyzPxWxFcQ8x_IQMY_Q-vDs4k2r66lYzxcsHyoplzd8h8MwTEtVENcH8ZlMyJtqeLmtjuTC_CbeNhUsXwOfVEFZdLKhkZ5Rd5KmFlpGDWfStY2ixgynx4QMj-sjoO9vSW7zVkMd9uykHLSfRBGgBLdQlTmV59SyQR-7U78y42lf_QIEzhdW-s/s4624/PXL_20250504_140353733.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg3S4YaztFyzPxWxFcQ8x_IQMY_Q-vDs4k2r66lYzxcsHyoplzd8h8MwTEtVENcH8ZlMyJtqeLmtjuTC_CbeNhUsXwOfVEFZdLKhkZ5Rd5KmFlpGDWfStY2ixgynx4QMj-sjoO9vSW7zVkMd9uykHLSfRBGgBLdQlTmV59SyQR-7U78y42lf_QIEzhdW-s/w480-h640/PXL_20250504_140353733.jpg)
 *Ready to ride!*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgM0wpcNExUaPrD89mL098aaEmjeIeACWicD-AplwBUFk6OlDmp8mv9U1JSboKnHdoSwiwfYIu_PDJ5O0P4NT5nPJD2T_HQzxLEfqbzKswhvhqUH_Lcyw9cAjWfNO_hLLHq3AeuIgrEP4AmyMH9tP-TzFT9IWmNWBvwaW0dmyFIQ2nkckxK5v-Q4OKf6oM/w640-h480/PXL_20250504_142403595.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgM0wpcNExUaPrD89mL098aaEmjeIeACWicD-AplwBUFk6OlDmp8mv9U1JSboKnHdoSwiwfYIu_PDJ5O0P4NT5nPJD2T_HQzxLEfqbzKswhvhqUH_Lcyw9cAjWfNO_hLLHq3AeuIgrEP4AmyMH9tP-TzFT9IWmNWBvwaW0dmyFIQ2nkckxK5v-Q4OKf6oM/s4624/PXL_20250504_142403595.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgM0wpcNExUaPrD89mL098aaEmjeIeACWicD-AplwBUFk6OlDmp8mv9U1JSboKnHdoSwiwfYIu_PDJ5O0P4NT5nPJD2T_HQzxLEfqbzKswhvhqUH_Lcyw9cAjWfNO_hLLHq3AeuIgrEP4AmyMH9tP-TzFT9IWmNWBvwaW0dmyFIQ2nkckxK5v-Q4OKf6oM/w640-h480/PXL_20250504_142403595.jpg)
 *Crossing the Schuylkill River on the Chester Valley Trail*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilDpr3xT4iDoq-jnLjZbDnmwyQm1zag3ffFVYBCI40WafJr47pVU8cHtU-1crDfmJugRct5efBtHrQ8gptikAf7p_QfNlT86_Y5m_hcjBzpoguNVkXQLbVG8Cx-Iug9zccDzJw4UrNt4rQtgr9AAJT4ilCe0UghCplLGN4XJxpUSEo0jlPzt-oHS-D8w0/w480-h640/PXL_20250504_142728181.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilDpr3xT4iDoq-jnLjZbDnmwyQm1zag3ffFVYBCI40WafJr47pVU8cHtU-1crDfmJugRct5efBtHrQ8gptikAf7p_QfNlT86_Y5m_hcjBzpoguNVkXQLbVG8Cx-Iug9zccDzJw4UrNt4rQtgr9AAJT4ilCe0UghCplLGN4XJxpUSEo0jlPzt-oHS-D8w0/s4624/PXL_20250504_142728181.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEilDpr3xT4iDoq-jnLjZbDnmwyQm1zag3ffFVYBCI40WafJr47pVU8cHtU-1crDfmJugRct5efBtHrQ8gptikAf7p_QfNlT86_Y5m_hcjBzpoguNVkXQLbVG8Cx-Iug9zccDzJw4UrNt4rQtgr9AAJT4ilCe0UghCplLGN4XJxpUSEo0jlPzt-oHS-D8w0/w480-h640/PXL_20250504_142728181.jpg)
 *On the Schuylkill River Trail*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiy6fkUTudGL-r7jTliGK_CBJUlhi1HWI-8z_O2P4i4Syz7WZzx_9gjZM5teC_sOrOCiRK6wnvKTnHP1ZHEa_6wyvdvihr7Kq42MtLJnzUQpCreosKLDvuFUbTe5cjBXBRK5rPySSTK4QxJULVWhj53jx17pS28FBV9EhERug6JapoKofaEkviZHZLa4rA/w640-h480/PXL_20250504_145807955.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiy6fkUTudGL-r7jTliGK_CBJUlhi1HWI-8z_O2P4i4Syz7WZzx_9gjZM5teC_sOrOCiRK6wnvKTnHP1ZHEa_6wyvdvihr7Kq42MtLJnzUQpCreosKLDvuFUbTe5cjBXBRK5rPySSTK4QxJULVWhj53jx17pS28FBV9EhERug6JapoKofaEkviZHZLa4rA/s4624/PXL_20250504_145807955.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiy6fkUTudGL-r7jTliGK_CBJUlhi1HWI-8z_O2P4i4Syz7WZzx_9gjZM5teC_sOrOCiRK6wnvKTnHP1ZHEa_6wyvdvihr7Kq42MtLJnzUQpCreosKLDvuFUbTe5cjBXBRK5rPySSTK4QxJULVWhj53jx17pS28FBV9EhERug6JapoKofaEkviZHZLa4rA/w640-h480/PXL_20250504_145807955.jpg)
 *The house in Conshohocken*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhO56SrRy82KDAd109cc1xAIo6qDW4-gR1KBU_cg3sxw44IDclEBCrYGT5Z62rPgEbos9Sqo3GSQrM_WCB5WcMkko1QgZ3Ozn6vLb-DOavb3JdacGEMwt3WtsCGzAShJe0q-xWZt7ryEeN01HPWa3g-G2APYQ69_nUQP6yu5w6c-9L9KBFoNRWie1sVKQk/w480-h640/PXL_20250504_160536592.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhO56SrRy82KDAd109cc1xAIo6qDW4-gR1KBU_cg3sxw44IDclEBCrYGT5Z62rPgEbos9Sqo3GSQrM_WCB5WcMkko1QgZ3Ozn6vLb-DOavb3JdacGEMwt3WtsCGzAShJe0q-xWZt7ryEeN01HPWa3g-G2APYQ69_nUQP6yu5w6c-9L9KBFoNRWie1sVKQk/s4624/PXL_20250504_160536592.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhO56SrRy82KDAd109cc1xAIo6qDW4-gR1KBU_cg3sxw44IDclEBCrYGT5Z62rPgEbos9Sqo3GSQrM_WCB5WcMkko1QgZ3Ozn6vLb-DOavb3JdacGEMwt3WtsCGzAShJe0q-xWZt7ryEeN01HPWa3g-G2APYQ69_nUQP6yu5w6c-9L9KBFoNRWie1sVKQk/w480-h640/PXL_20250504_160536592.jpg)
 *Downtown Ambler*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjAM-jx6gId7zwW9KuBGcp4xivEh6XvFHPDP1aTbsDick8e0oQVs7BwhhvG04RjkqWCM8u7i6P6ps7hdtW5Qy5gtlC-L8ml6lAfo_6C9GzqmsF8NeAp1VlohxATkL83AtKvK81QETVc6_MOiObU1CNYzracmszdHRaOZyxJO_pAdVS3bCFoDKa188Gags0/w640-h480/PXL_20250504_161532156.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjAM-jx6gId7zwW9KuBGcp4xivEh6XvFHPDP1aTbsDick8e0oQVs7BwhhvG04RjkqWCM8u7i6P6ps7hdtW5Qy5gtlC-L8ml6lAfo_6C9GzqmsF8NeAp1VlohxATkL83AtKvK81QETVc6_MOiObU1CNYzracmszdHRaOZyxJO_pAdVS3bCFoDKa188Gags0/s4624/PXL_20250504_161532156.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjAM-jx6gId7zwW9KuBGcp4xivEh6XvFHPDP1aTbsDick8e0oQVs7BwhhvG04RjkqWCM8u7i6P6ps7hdtW5Qy5gtlC-L8ml6lAfo_6C9GzqmsF8NeAp1VlohxATkL83AtKvK81QETVc6_MOiObU1CNYzracmszdHRaOZyxJO_pAdVS3bCFoDKa188Gags0/w640-h480/PXL_20250504_161532156.jpg)
 *The theater in Ambler*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFuA8Ub-vAtnQTlbU8U1Lo6W5a1VSMQeZkX2zhQKToE-Z17fz3hwl1DfLW6ZP0xV5q_W-LD7YMge4daU5211UNokEZxe1J5IJnG5nad0dBa-6hJIxeiLhLRRQmMOU-rxwmhqPW5pnNY9qLBtHA8VzrnQlXji6wupko1jrNEnyUJCrf-MlOFza2-6yR40I/w480-h640/PXL_20250504_163645615.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFuA8Ub-vAtnQTlbU8U1Lo6W5a1VSMQeZkX2zhQKToE-Z17fz3hwl1DfLW6ZP0xV5q_W-LD7YMge4daU5211UNokEZxe1J5IJnG5nad0dBa-6hJIxeiLhLRRQmMOU-rxwmhqPW5pnNY9qLBtHA8VzrnQlXji6wupko1jrNEnyUJCrf-MlOFza2-6yR40I/s4624/PXL_20250504_163645615.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgFuA8Ub-vAtnQTlbU8U1Lo6W5a1VSMQeZkX2zhQKToE-Z17fz3hwl1DfLW6ZP0xV5q_W-LD7YMge4daU5211UNokEZxe1J5IJnG5nad0dBa-6hJIxeiLhLRRQmMOU-rxwmhqPW5pnNY9qLBtHA8VzrnQlXji6wupko1jrNEnyUJCrf-MlOFza2-6yR40I/w480-h640/PXL_20250504_163645615.jpg)
 *Enjoying a brownie and an iced tea at Pie and Plates Cafe.*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUnwPTyNv2yQA7oZuvdQ6hsng0YzpDbXrpfYjBcQfFghsqKlLNZYDCPOkUwhYQ8YOHp-AwaVzyjc0XwqhRsuwEZYwtwhHozGEZd1kebzKqs7sbG2HenWv9XzZOmMliqRvhkpETd_GHhS4ldExs_PfrU0O8uY3Xrdtmi_gwRiFouJHnc9HQleczNcNXXNk/w480-h640/PXL_20250504_195146263.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUnwPTyNv2yQA7oZuvdQ6hsng0YzpDbXrpfYjBcQfFghsqKlLNZYDCPOkUwhYQ8YOHp-AwaVzyjc0XwqhRsuwEZYwtwhHozGEZd1kebzKqs7sbG2HenWv9XzZOmMliqRvhkpETd_GHhS4ldExs_PfrU0O8uY3Xrdtmi_gwRiFouJHnc9HQleczNcNXXNk/s4624/PXL_20250504_195146263.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUnwPTyNv2yQA7oZuvdQ6hsng0YzpDbXrpfYjBcQfFghsqKlLNZYDCPOkUwhYQ8YOHp-AwaVzyjc0XwqhRsuwEZYwtwhHozGEZd1kebzKqs7sbG2HenWv9XzZOmMliqRvhkpETd_GHhS4ldExs_PfrU0O8uY3Xrdtmi_gwRiFouJHnc9HQleczNcNXXNk/w480-h640/PXL_20250504_195146263.jpg)
 *My room at Shary and Fred's house. Paintings are by Shary.*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhUQG4I-VCs1gl4-PJlILK3__0R7xrSpqUKW4ndNVIQFnSqwmqaRDgucblhlvkuYYge8SxDbVkwAHMyCbVnkf48v9LDrzRroZtKKkW-2c66g9qUJmwyRNlFrebJ1_-taLfQ-oTlsVVRzjLrNXYAOwAqd5cVzjRUkdEk33oMVZ2gLlFMQQDxc4FHGDW0je4/w640-h480/PXL_20250504_213805252.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhUQG4I-VCs1gl4-PJlILK3__0R7xrSpqUKW4ndNVIQFnSqwmqaRDgucblhlvkuYYge8SxDbVkwAHMyCbVnkf48v9LDrzRroZtKKkW-2c66g9qUJmwyRNlFrebJ1_-taLfQ-oTlsVVRzjLrNXYAOwAqd5cVzjRUkdEk33oMVZ2gLlFMQQDxc4FHGDW0je4/s4624/PXL_20250504_213805252.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhUQG4I-VCs1gl4-PJlILK3__0R7xrSpqUKW4ndNVIQFnSqwmqaRDgucblhlvkuYYge8SxDbVkwAHMyCbVnkf48v9LDrzRroZtKKkW-2c66g9qUJmwyRNlFrebJ1_-taLfQ-oTlsVVRzjLrNXYAOwAqd5cVzjRUkdEk33oMVZ2gLlFMQQDxc4FHGDW0je4/w640-h480/PXL_20250504_213805252.jpg)
 *Playing Settlers of Catan with Fred and Shary.*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjrrkivcIkWOQN94se1vgtbR2BtDD8gnWV8cDuVb6A71Q-hj1LDjmrflA1eemq3VqOhUgxY4tE8_X5GpwP2FR2YeN6o5NzUc7U-mnqnyBtzuLFsZdxV0ZEeW-inR-cocc4t-j_qCsgw5tmVHIqIHVQSH5rCrUq4MULhFiXhwnANBc6VwFbGZ52QkGYYyxk/w640-h480/PXL_20250504_234349060.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjrrkivcIkWOQN94se1vgtbR2BtDD8gnWV8cDuVb6A71Q-hj1LDjmrflA1eemq3VqOhUgxY4tE8_X5GpwP2FR2YeN6o5NzUc7U-mnqnyBtzuLFsZdxV0ZEeW-inR-cocc4t-j_qCsgw5tmVHIqIHVQSH5rCrUq4MULhFiXhwnANBc6VwFbGZ52QkGYYyxk/s4624/PXL_20250504_234349060.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjrrkivcIkWOQN94se1vgtbR2BtDD8gnWV8cDuVb6A71Q-hj1LDjmrflA1eemq3VqOhUgxY4tE8_X5GpwP2FR2YeN6o5NzUc7U-mnqnyBtzuLFsZdxV0ZEeW-inR-cocc4t-j_qCsgw5tmVHIqIHVQSH5rCrUq4MULhFiXhwnANBc6VwFbGZ52QkGYYyxk/w640-h480/PXL_20250504_234349060.jpg)
 *Shary's art is wrapped on her car.*

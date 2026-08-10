@@ -4,12 +4,13 @@ layout: post
 date: 2018-04-16
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhsbbM2j8CzZsXBwTKi2z4at7xqlDrQ76Ax-Vm6Bo-HtOTgqtZPB6RfSEcQHy_Kfn8svRDwGHBx9EM1kvfoU9U7Nk_45w8-ElOgb-N7zkRvrT1qMfz0CUCOPV7d5cMH1lM8lnzzNvLQabY/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhsbbM2j8CzZsXBwTKi2z4at7xqlDrQ76Ax-Vm6Bo-HtOTgqtZPB6RfSEcQHy_Kfn8svRDwGHBx9EM1kvfoU9U7Nk_45w8-ElOgb-N7zkRvrT1qMfz0CUCOPV7d5cMH1lM8lnzzNvLQabY/s1600/%255BUNSET%255)
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhsbbM2j8CzZsXBwTKi2z4at7xqlDrQ76Ax-Vm6Bo-HtOTgqtZPB6RfSEcQHy_Kfn8svRDwGHBx9EM1kvfoU9U7Nk_45w8-ElOgb-N7zkRvrT1qMfz0CUCOPV7d5cMH1lM8lnzzNvLQabY/w640-h480/%255BUNSET%255D)
 *Square One Coffee*
 
 I spent most of the day in the apartment, or near it, due to the rain. I took Amelia’s advice of printing out my photographs as postcards at the local CVS so I can hand them out as gifts for the hosts. I gave Amelia digital copies of my photos as well, and I also shared my music with her. As it turns out, we have similar tastes in music.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgWy1NVPGEWKsSUEQJrybTZQxofyRPf7S9HFR4nJ4sdqa6rJLtW0lKtz7Ln0xTS6Zo2f_iZRWG3WG7-u1IC3cbNo6R54JPo0VxijX5sxUCHfvREgjHhJMVVjnIcDx05PLkWuPLkEU_hmxg/w480-h640/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgWy1NVPGEWKsSUEQJrybTZQxofyRPf7S9HFR4nJ4sdqa6rJLtW0lKtz7Ln0xTS6Zo2f_iZRWG3WG7-u1IC3cbNo6R54JPo0VxijX5sxUCHfvREgjHhJMVVjnIcDx05PLkWuPLkEU_hmxg/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgWy1NVPGEWKsSUEQJrybTZQxofyRPf7S9HFR4nJ4sdqa6rJLtW0lKtz7Ln0xTS6Zo2f_iZRWG3WG7-u1IC3cbNo6R54JPo0VxijX5sxUCHfvREgjHhJMVVjnIcDx05PLkWuPLkEU_hmxg/w480-h640/%255BUNSET%255D)
 *Postcards*
 
 Later, I hand washed some clothes and reorganized my panniers a bit. Around dinner time, I invited Amelia and Carlos for dinner. We chose Pho Noodle House because it’s in walking distance. The food was alright but the wait was a bit long. Amelia informed me that our waiter may have suffered a stroke before. I hope he can recover quickly.

@@ -4,7 +4,8 @@ layout: post
 date: 2018-07-16
 ---
 
-I must have slept for about ten hours. When I awoke the sun was about to rise. I packed up everything and decided to go south about half a mile to Donut Street Cafe for breakfast. I had a donut, obviously, and a cup of coffee. The sun came up the horizon as I enjoyed my meal.[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiTX91hCa6sFQSHCHr4gR9uiLu7Fv1S6uIsnNdBzSdi8p8HQZ3PU2paLCDLAY09jeZYULQuI9g2kJ8FlmCZ4TZIdhk__YpHxeq4te2NOddX2c_Lwm65CMkYENM3foAzHcTJJ3-9SAngpuc/w480-h640/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiTX91hCa6sFQSHCHr4gR9uiLu7Fv1S6uIsnNdBzSdi8p8HQZ3PU2paLCDLAY09jeZYULQuI9g2kJ8FlmCZ4TZIdhk__YpHxeq4te2NOddX2c_Lwm65CMkYENM3foAzHcTJJ3-9SAngpuc/s1600/%255BUNSET%255)
+
+I must have slept for about ten hours. When I awoke the sun was about to rise. I packed up everything and decided to go south about half a mile to Donut Street Cafe for breakfast. I had a donut, obviously, and a cup of coffee. The sun came up the horizon as I enjoyed my meal.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiTX91hCa6sFQSHCHr4gR9uiLu7Fv1S6uIsnNdBzSdi8p8HQZ3PU2paLCDLAY09jeZYULQuI9g2kJ8FlmCZ4TZIdhk__YpHxeq4te2NOddX2c_Lwm65CMkYENM3foAzHcTJJ3-9SAngpuc/w480-h640/%255BUNSET%255D)
 *Watching the sunrise as I ate my breakfast*
 
   
@@ -12,7 +13,7 @@ Not long after I start riding a cyclist came up behind me and told me he had see
   
 The road was a bit skinny to ride, but there weren't many cars in the morning. I enjoyed some downhills and had to walk up a couple of hills. The cows on the sides of the road reminded me of the sections I did in Virginia. Once I rode into El Dorado Hills there was a bike path on the side. I went on it for a short while until I went off the curb abruptly. I realized it's better for me to go on the shoulder of the road, which is also marked as a bike lane.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhAJSclIEkEdtKwge5AnswGkF653eSTsupTwDhuDGHSyN3C8GVTzGExmaSgH95GdILPIdBK3GVOBEHlFrToMRZ5Xbr-U670FSXQA3sjWDys8p-b-y-lL58jOzFZ1XcOFT6WS5urss4X4-g/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhAJSclIEkEdtKwge5AnswGkF653eSTsupTwDhuDGHSyN3C8GVTzGExmaSgH95GdILPIdBK3GVOBEHlFrToMRZ5Xbr-U670FSXQA3sjWDys8p-b-y-lL58jOzFZ1XcOFT6WS5urss4X4-g/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhAJSclIEkEdtKwge5AnswGkF653eSTsupTwDhuDGHSyN3C8GVTzGExmaSgH95GdILPIdBK3GVOBEHlFrToMRZ5Xbr-U670FSXQA3sjWDys8p-b-y-lL58jOzFZ1XcOFT6WS5urss4X4-g/w640-h480/%255BUNSET%255D)
 *Hello cows!*
 
   
@@ -20,7 +21,7 @@ I took the Johnny Cash bike trail in Folsom to the historic district. I arrived 
   
 At the historic district in Folsom, I ordered an orange cream soda at Bravo Coffee Bar, ate a big plate of Singapore noodles at Hop Sing Palace, and had a strawberry and cream gelato cone at the Sweet Dozen Cones. I also checked out Mike's Bike bicycle shop where I talked with a bike mechanic named Curtis about the current lineup of touring bikes. Around 1 PM, I started riding to Orangevale.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgcA-6Mk17FdGhVaRtiKdQqfqFoIf_-OVdBFe1wnlWyC8tz2OpyBDDzyjk4ipxr9IQ3HIM0BQWNLV-tmLXdu5NniN2Khyi5MfqcOlRXvcn1POohdrhSjTvOWZF0im9bSKoszG5ZYsgoEjg/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgcA-6Mk17FdGhVaRtiKdQqfqFoIf_-OVdBFe1wnlWyC8tz2OpyBDDzyjk4ipxr9IQ3HIM0BQWNLV-tmLXdu5NniN2Khyi5MfqcOlRXvcn1POohdrhSjTvOWZF0im9bSKoszG5ZYsgoEjg/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgcA-6Mk17FdGhVaRtiKdQqfqFoIf_-OVdBFe1wnlWyC8tz2OpyBDDzyjk4ipxr9IQ3HIM0BQWNLV-tmLXdu5NniN2Khyi5MfqcOlRXvcn1POohdrhSjTvOWZF0im9bSKoszG5ZYsgoEjg/w640-h480/%255BUNSET%255D)
 *Historic district in Folsom*
 
   
@@ -32,7 +33,7 @@ At Joan's house, I also met Joan's brother, Mike, and his wife, Susan. They are 
   
 Around 5 PM, Joan took me out to Blue Nami Sushi and Sake House. I had yaki ubon noodles and some sushi. We ordered too much food and ended up taking the leftovers home. Joan was so gracious and paid for my meal.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhdQL6sPYtLpWQvYzavrkZXA-qR_QMq5O63ifisJiQ4dmD9gKralYj64vyccCmm6AG4dbg8HRjJ6FmWyzvd3cX4wQ2a6sNIQ2UjCovdmaS-sNV-kNKjvrq1jmTL19wxaBIcD_O_wfmjGGw/w480-h640/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhdQL6sPYtLpWQvYzavrkZXA-qR_QMq5O63ifisJiQ4dmD9gKralYj64vyccCmm6AG4dbg8HRjJ6FmWyzvd3cX4wQ2a6sNIQ2UjCovdmaS-sNV-kNKjvrq1jmTL19wxaBIcD_O_wfmjGGw/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhdQL6sPYtLpWQvYzavrkZXA-qR_QMq5O63ifisJiQ4dmD9gKralYj64vyccCmm6AG4dbg8HRjJ6FmWyzvd3cX4wQ2a6sNIQ2UjCovdmaS-sNV-kNKjvrq1jmTL19wxaBIcD_O_wfmjGGw/w480-h640/%255BUNSET%255D)
 *Joan and all the food we ordered*
 
   

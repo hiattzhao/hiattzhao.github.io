@@ -4,9 +4,10 @@ layout: post
 date: 2018-04-19
 ---
 
+
 Paul, my host from York, had suggested that I take the light rail from Hunt Valley to BWI (Baltimore Washington International airport) then ride to Washington DC area. He even printed out the directions for me from BWI to Union Station in DC. So I got on the light rail at 6 AM.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg9hgt5FZyaZtTegQsjdufC_8xFZj-m2ousef58ZFhnPyx8FBCM1uc8ZDLve8pK1bQ1QpZKOV4DSG8zj0ddZHcuMSOqJghoFGD6_d3EKULS_PAd0AQIAtFdPzOnTzZZ0CkUMGlRO7wosGM/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg9hgt5FZyaZtTegQsjdufC_8xFZj-m2ousef58ZFhnPyx8FBCM1uc8ZDLve8pK1bQ1QpZKOV4DSG8zj0ddZHcuMSOqJghoFGD6_d3EKULS_PAd0AQIAtFdPzOnTzZZ0CkUMGlRO7wosGM/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg9hgt5FZyaZtTegQsjdufC_8xFZj-m2ousef58ZFhnPyx8FBCM1uc8ZDLve8pK1bQ1QpZKOV4DSG8zj0ddZHcuMSOqJghoFGD6_d3EKULS_PAd0AQIAtFdPzOnTzZZ0CkUMGlRO7wosGM/w640-h480/%255BUNSET%255D)
 *My bike on the light rail*
 
 At some point on the light rail, a guy came up to me, asking to move my bike so he can sit. I told him there’s no other place to put my bike and offered him the seat next to me. As soon as he sat down I could smell the marijuana. He said his name is Tim. With his glazed eyes, he was seriously stoned. He asked for 50 cents for something to eat. I don’t know anything that costs 50 cents so I mentioned that I might buy him some food at BWI. He then asked me if I have a charger and a battery to charge his phone. I said sure. His phone was able to get from 0% to 15%. I was glad to help him and he slept for the rest of the trip to BWI.
@@ -23,20 +24,20 @@ His name is Aaron. But you can call him A-Ron, like the YouTube video that an id
 
 As we sat in the sun, on the curb, he told me that even though he’s white a lot of his friends are black, and he doesn’t like people being racists and that’s why he ditched some of his white friends. Aaron then pulled out a photo of him and Tupac, the rapper. I was amazed to see that! He said Tupac died only two months after the photo was taken. He also showed me photos of his girlfriend and his two beautiful daughters. I was so glad to have met Aaron but it was already past 3 PM. I had stayed at El Sabor for over two hours but I had a great time eating and talking to Aaron. I can’t writing down everything because we had talked so much about so many different things. In the end, he reminded me two things, trust my intuition and pay attention to the little things in life. Aaron is truly an amazing human being!
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjTHIBCeELuOgrNY9grdsBL3s5UzTewu26z1q5l61mdx4s1IQzY2FMyDcOXbv4SIWxSynX2a7M-aZ9p0x15suDPwgNvyEn-bVbJpWwAZzQ5jrawKi3FyT-QG0sUL7YqlrUSYh-PR21hsGE/w426-h640/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjTHIBCeELuOgrNY9grdsBL3s5UzTewu26z1q5l61mdx4s1IQzY2FMyDcOXbv4SIWxSynX2a7M-aZ9p0x15suDPwgNvyEn-bVbJpWwAZzQ5jrawKi3FyT-QG0sUL7YqlrUSYh-PR21hsGE/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjTHIBCeELuOgrNY9grdsBL3s5UzTewu26z1q5l61mdx4s1IQzY2FMyDcOXbv4SIWxSynX2a7M-aZ9p0x15suDPwgNvyEn-bVbJpWwAZzQ5jrawKi3FyT-QG0sUL7YqlrUSYh-PR21hsGE/w426-h640/%255BUNSET%255D)
 *Aaron and I*
 
 After parting with Aaron, I rode towards Silver Spring. I used the directions on my phone and it took me through some nice park trails. I was able to get to Brandi’s apartment building at 6:15 PM. I called my grandma, whose 88th birthday is today, and wished her a happy birthday. After buying some desserts from Tiramisu, a local bakery, so I can give to Brandi and her fiancée Judy, I waited a little bit more outside the building and finally met Brandi as she came back from work.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiL1ARMQt2ZiKopRs4hiR0jvubCa5JPSWAvt53YcY9OlcSTC4yel_gWYafi5HTwWDgF0Djf0zl_iguVQo3HqQKcTwqXtGw2pQYusbDm1x2eve7wO3nBd1tvYgwUon5zPogO7mEbLN67QOU/w480-h640/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiL1ARMQt2ZiKopRs4hiR0jvubCa5JPSWAvt53YcY9OlcSTC4yel_gWYafi5HTwWDgF0Djf0zl_iguVQo3HqQKcTwqXtGw2pQYusbDm1x2eve7wO3nBd1tvYgwUon5zPogO7mEbLN67QOU/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiL1ARMQt2ZiKopRs4hiR0jvubCa5JPSWAvt53YcY9OlcSTC4yel_gWYafi5HTwWDgF0Djf0zl_iguVQo3HqQKcTwqXtGw2pQYusbDm1x2eve7wO3nBd1tvYgwUon5zPogO7mEbLN67QOU/w480-h640/%255BUNSET%255D)
 *A section of the trail to Silver Spring*
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-E8XHeTxAu2-87j7iFW80-d6vz0dkPFnGIXyj85tZpcnBHhp3xGXvsq1EXrX3A6QKSTCEImJaU0ax_4IV3mTauT0mUJmxxZSGYy64D925OYtplw1MBt0LZ4HBmOzuOpE5VEEIGDq4AfA/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-E8XHeTxAu2-87j7iFW80-d6vz0dkPFnGIXyj85tZpcnBHhp3xGXvsq1EXrX3A6QKSTCEImJaU0ax_4IV3mTauT0mUJmxxZSGYy64D925OYtplw1MBt0LZ4HBmOzuOpE5VEEIGDq4AfA/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-E8XHeTxAu2-87j7iFW80-d6vz0dkPFnGIXyj85tZpcnBHhp3xGXvsq1EXrX3A6QKSTCEImJaU0ax_4IV3mTauT0mUJmxxZSGYy64D925OYtplw1MBt0LZ4HBmOzuOpE5VEEIGDq4AfA/w640-h480/%255BUNSET%255D)
 *Sunset over Silver Spring*
 
 I’ve known Brandi for many years when I first moved to Allentown, PA. I was glad that she and Judy can host me even though they are busy planning their wedding in May. For dinner, we went to a dumpling and noodle place called Nai Nai’s, which actually means grandma in Chinese! After dinner, I was pretty beat, so I took a shower and went to bed at 9:30 PM.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgqyqhkuePI5nH4FdryqmZ_bALkrIrMRuLV-TuBP68aMniyZ_PBRoV6WWExkPuxdw_9KSIkwlUOJVJ4p72qhniiqALk5jyRMhCNERjdOOKvEO7FoUh3cszmq1gErRseb6x4Gsc9FuLn-YE/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgqyqhkuePI5nH4FdryqmZ_bALkrIrMRuLV-TuBP68aMniyZ_PBRoV6WWExkPuxdw_9KSIkwlUOJVJ4p72qhniiqALk5jyRMhCNERjdOOKvEO7FoUh3cszmq1gErRseb6x4Gsc9FuLn-YE/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgqyqhkuePI5nH4FdryqmZ_bALkrIrMRuLV-TuBP68aMniyZ_PBRoV6WWExkPuxdw_9KSIkwlUOJVJ4p72qhniiqALk5jyRMhCNERjdOOKvEO7FoUh3cszmq1gErRseb6x4Gsc9FuLn-YE/w640-h480/%255BUNSET%255D)
 *Me, Brandi, and Judy*
 
 Last night, I had an eleven hour sleep. But I found my throat to be sore and my eyes became itchy. I hope I’m not sick. Luckily, I brought some cough drops. I took one this morning but I think the reason I’m a bit stuffy is because of seasonal allergies. I’m currently at the Bump N Grind coffee shop writing this post. I will go back to the apartment to take my allergy pills that I brought then go to DC to see if I can get a tour of the US Capitol. Today looks like a beautiful day now that the morning rain has stopped. Actually, everyday is a beautiful day!

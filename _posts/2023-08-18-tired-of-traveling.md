@@ -4,6 +4,7 @@ layout: post
 date: 2023-08-18
 ---
 
+
 I feel tired from traveling. Maybe I should go home.
 
 The days blur by and all I’m doing is sightseeing. I don’t really make long lasting connections. I take photos of the places and soon they mean less and less. I don’t know what I’m doing anymore. I feel tired.

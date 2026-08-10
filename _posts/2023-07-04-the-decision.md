@@ -4,6 +4,7 @@ layout: post
 date: 2023-07-04
 ---
 
+
 Since I came back from my Florida cycling trip in mid-May I didn’t do much at home. In fact, I suffered from bouts of post-travel depression.
 
 On June 10, I went to Great Neck, Long Island (NY), to attend my grandma’s memorial service. That short weekend travel broke the depressive spell for a few days, but after I came back home to King of Prussia, PA, I was back to a week long depression.
@@ -18,5 +19,5 @@ I don’t really know how long I’ll stay in Japan, but after Japan I might che
 
 Below is a photograph of everything I’ll be bringing, minus what I’ll be wearing and my Pixel 5a phone, which is what I used to take the photo.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgqIJ7lETgDPqAJAkwAjDxZoDXYSNYVuRZxj9d3Lqdo51Ucws1NQglsrJmVxZ1U2bArdsl50oQFu7lSbXgvvhcbgPjqFbtFlKDpORqTy6pERjtIyMd_hMvyAUEv2vBObyWZTmGhrmjLSDFX942mKOU1Lhd59e0gLWHKeBEyJwqwJhWTZWDNbrIDPFwLv10/w640-h480/PXL_20230704_143656216.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgqIJ7lETgDPqAJAkwAjDxZoDXYSNYVuRZxj9d3Lqdo51Ucws1NQglsrJmVxZ1U2bArdsl50oQFu7lSbXgvvhcbgPjqFbtFlKDpORqTy6pERjtIyMd_hMvyAUEv2vBObyWZTmGhrmjLSDFX942mKOU1Lhd59e0gLWHKeBEyJwqwJhWTZWDNbrIDPFwLv10/s4032/PXL_20230704_143656216.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgqIJ7lETgDPqAJAkwAjDxZoDXYSNYVuRZxj9d3Lqdo51Ucws1NQglsrJmVxZ1U2bArdsl50oQFu7lSbXgvvhcbgPjqFbtFlKDpORqTy6pERjtIyMd_hMvyAUEv2vBObyWZTmGhrmjLSDFX942mKOU1Lhd59e0gLWHKeBEyJwqwJhWTZWDNbrIDPFwLv10/w640-h480/PXL_20230704_143656216.jpg)
 *Around the world travel items*

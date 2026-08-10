@@ -4,6 +4,7 @@ layout: post
 date: 2026-05-31
 ---
 
+
 I’m near the end of my backpacking trip. Just one more day left in Malta then I’ll be in Poland. As I look back on my trip I realized a few things.
 
 First, don’t count the misfortunes but count the blessings. There have been times when I felt cheated, scammed, and taken advantage of due to my kind nature. The more I dwell on these negative events the more time these things occupy my mind. My mind is precious and time is limited. I don’t want to be bothered by the things that already happened. Unless it’s something so detrimental, I will try very hard not to think about it.

@@ -4,9 +4,10 @@ layout: post
 date: 2021-07-29
 ---
 
+
 Recently, I re-read the book Tao Te Ching (also known as Dao De Jing) by Lao Tsu (or Lao Zi). It is the quintessential text of Taoism (or Daoism). The translation that I read is the one by Gia-Fu Feng and Jane English, which I think is among the best translations of this ancient text originated from China.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgEnN3CBcu93tZNPYEM-d4fKqyAZGAZzwPVLpcWLeSEDDZuID7GP4ewF0yLzAXRM8Kamw7_YVMLF77o1fESSWOpR6qP6vvMOZeWUp6sbQY67Ougejtw_TN8tXSA5oltamdELOMGjvixPX8/w300-h400/PXL_20210613_210414796.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgEnN3CBcu93tZNPYEM-d4fKqyAZGAZzwPVLpcWLeSEDDZuID7GP4ewF0yLzAXRM8Kamw7_YVMLF77o1fESSWOpR6qP6vvMOZeWUp6sbQY67Ougejtw_TN8tXSA5oltamdELOMGjvixPX8/s2048/PXL_20210613_210414796.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgEnN3CBcu93tZNPYEM-d4fKqyAZGAZzwPVLpcWLeSEDDZuID7GP4ewF0yLzAXRM8Kamw7_YVMLF77o1fESSWOpR6qP6vvMOZeWUp6sbQY67Ougejtw_TN8tXSA5oltamdELOMGjvixPX8/w300-h400/PXL_20210613_210414796.jpg)
 *Tao Te Ching by Lao Tsu*
 
 The book has 81 short chapters consisting only of a few paragraphs in most cases. The topics range from leadership to how to live a good life.As I was reading it, I noticed that many chapters dealt with the idea of living well and knowing what is enough. While this is the core of the modern day minimalism movement, the ancient Chinese had already figured out how to live a fulfilling life back in the sixth century BC!

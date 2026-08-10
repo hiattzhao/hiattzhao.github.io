@@ -4,12 +4,13 @@ layout: post
 date: 2018-06-10
 ---
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgCofgY59H0rJ3tBMXOQonv2Jdi8ar0NyTOkm_wUrhvgNq1BBu-h07wIBy84-j36yw2D-3EGHdyomejCkzlMRKQCAcn9w5GtvDQzzooa3sOnny8qFlLFK_bUJCmTanLxW8dd4sa99BfAUQ/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgCofgY59H0rJ3tBMXOQonv2Jdi8ar0NyTOkm_wUrhvgNq1BBu-h07wIBy84-j36yw2D-3EGHdyomejCkzlMRKQCAcn9w5GtvDQzzooa3sOnny8qFlLFK_bUJCmTanLxW8dd4sa99BfAUQ/s1600/%255BUNSET%255)
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgCofgY59H0rJ3tBMXOQonv2Jdi8ar0NyTOkm_wUrhvgNq1BBu-h07wIBy84-j36yw2D-3EGHdyomejCkzlMRKQCAcn9w5GtvDQzzooa3sOnny8qFlLFK_bUJCmTanLxW8dd4sa99BfAUQ/w640-h480/%255BUNSET%255D)
 *Zack made some awesome burritos*
 
 After saying goodbye to Zack and Robin, I rode out of town on a bike trail that went along the road. After merging onto highway 50, I started to go uphill ever so slightly. As I continued riding the road became steeper. I was taking a rest break on the side of the road when a car stopped. The driver’s name is Tony and he asked me if I know about Warmshowers. I said I’m a member. He told me he is a host on there and I should contact him when I get to Montrose, which is my stop after Gunnison. I thanked him and thought to myself, “how lucky am I?”
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEircoQjRkEo-7_KHbvspn1tpkTrCgKmBQZhxt3xzJT__dIcWXMUnNgAWd5oUHsFtn9ATD0bos_5UPjprOaUeaVK0PKyrMnDbpC_h0ESWCuLn9eDNqfl5-hnYCqiQF9AolLWCsqjmOkrrms/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEircoQjRkEo-7_KHbvspn1tpkTrCgKmBQZhxt3xzJT__dIcWXMUnNgAWd5oUHsFtn9ATD0bos_5UPjprOaUeaVK0PKyrMnDbpC_h0ESWCuLn9eDNqfl5-hnYCqiQF9AolLWCsqjmOkrrms/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEircoQjRkEo-7_KHbvspn1tpkTrCgKmBQZhxt3xzJT__dIcWXMUnNgAWd5oUHsFtn9ATD0bos_5UPjprOaUeaVK0PKyrMnDbpC_h0ESWCuLn9eDNqfl5-hnYCqiQF9AolLWCsqjmOkrrms/w640-h480/%255BUNSET%255D)
 *The beautiful road up a hill*
 
 I continued my climb up the hill. There were many 18 wheelers, RVs, motorcycles, and cars with bicycles on them. There must be many outdoorsy people living around here.
@@ -20,14 +21,14 @@ The hill was too steep for me to ride, so I walked most of the 6 miles to the Mo
   
 When I saw the gift shop and restaurant at the top I was so glad. I had two hot dogs, some ice cream, and a bar of fudge for lunch. After my rest, I decided to head to Gunnison to visit one of the bike shops there since I noticed I had put the back tire the wrong way, with the treads facing the wrong direction.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgRZZImr1po3FOU7NOYC-EPeCSgh4_TqBhIqJw9GWvSlzXwaw2MahFmLH4NQD_d-HNTLoAaZqsd6GodbpQP8CGRYFjJbihORmatYNf4zOLZHAqywfc6ocwWIW5CcncotyGM3cvOBgpraOI/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgRZZImr1po3FOU7NOYC-EPeCSgh4_TqBhIqJw9GWvSlzXwaw2MahFmLH4NQD_d-HNTLoAaZqsd6GodbpQP8CGRYFjJbihORmatYNf4zOLZHAqywfc6ocwWIW5CcncotyGM3cvOBgpraOI/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgRZZImr1po3FOU7NOYC-EPeCSgh4_TqBhIqJw9GWvSlzXwaw2MahFmLH4NQD_d-HNTLoAaZqsd6GodbpQP8CGRYFjJbihORmatYNf4zOLZHAqywfc6ocwWIW5CcncotyGM3cvOBgpraOI/w640-h480/%255BUNSET%255D)
 *Restaurant and gift shop at the top of Monarch Pass*
 
 The downhill was a 6 degree decline and I was going between 28 to 35 mph without breaking. The view was spectacular! I tried to stop my bike for a picture but my speed was too fast, so I simply enjoyed the scenery and tried not to crash. A semi truck almost hit me as he passed and merged back too quickly. He missed me by about a foot. That downhill was about 10 miles, all the way to Sargents.
 
 There was a restaurant and shop, along with a gas station in Sargents. I was debating whether I should stop or not then I saw three loaded bicycles parked there, so I stopped. I met Martin, Greg, and Molly. Martin is an Australian going east from San Francisco to New York City. Greg and Molly are doing the Great Divide mountain bike trail up north to Canada. I ordered a fruit cup and chatted with them for awhile.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhRzJoLN7bUcWO5vb5k-oEa_7Rfh2ukQ2Eqo_h-nH6EmOmWevWvcon8yEnSEf2hHoEIcBbCGIW2q47aKLqYKN9dzL5S1hgHZ-KAdT4oinGnUaXN7VARiLfIcMWHThHU0ksfQ17s2JnMM0w/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhRzJoLN7bUcWO5vb5k-oEa_7Rfh2ukQ2Eqo_h-nH6EmOmWevWvcon8yEnSEf2hHoEIcBbCGIW2q47aKLqYKN9dzL5S1hgHZ-KAdT4oinGnUaXN7VARiLfIcMWHThHU0ksfQ17s2JnMM0w/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhRzJoLN7bUcWO5vb5k-oEa_7Rfh2ukQ2Eqo_h-nH6EmOmWevWvcon8yEnSEf2hHoEIcBbCGIW2q47aKLqYKN9dzL5S1hgHZ-KAdT4oinGnUaXN7VARiLfIcMWHThHU0ksfQ17s2JnMM0w/w640-h480/%255BUNSET%255D)
 *Molly and Greg*
 
 Martin is staying in the RV park in Sargents for the night. I decided to do the same even though I’ve only ridden 33 miles or so for the day.
@@ -40,7 +41,7 @@ We talked more about politics, specifically immigration. Martin disliked foreign
 
 I treated Martin to dinner at the only restaurant in town since he helped me with the tire. After dinner, I spent about $13 for a camp site at the RV park in the back of the restaurant. We set up our tents and I soon went to bed since I didn’t have internet to write my blog post for the day.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhtcQEIX-Ubs9yMFOQ9RHus3tH-smHcTkxQN0Wx2KSuq3TNsX2GsAu5fHzkoJkm-9xxmV5eoAe5QmLDeawbb4rqCHLg05_h8q6h_6TNKUv-tXA4MZvucTeKunsvNlqEvYlfnueKLwTH88c/w480-h640/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhtcQEIX-Ubs9yMFOQ9RHus3tH-smHcTkxQN0Wx2KSuq3TNsX2GsAu5fHzkoJkm-9xxmV5eoAe5QmLDeawbb4rqCHLg05_h8q6h_6TNKUv-tXA4MZvucTeKunsvNlqEvYlfnueKLwTH88c/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhtcQEIX-Ubs9yMFOQ9RHus3tH-smHcTkxQN0Wx2KSuq3TNsX2GsAu5fHzkoJkm-9xxmV5eoAe5QmLDeawbb4rqCHLg05_h8q6h_6TNKUv-tXA4MZvucTeKunsvNlqEvYlfnueKLwTH88c/w480-h640/%255BUNSET%255D)
 *Martin, starting the day*
 
 This morning, I woke up because the night before was cold. After packing up my bike I hung out in the laundry room inside the restaurant to keep warm, and to wait for the restaurant to open at 7 AM. Martin stayed with me until 7 then he rode east, climbing the hill that I came down the day before. I ate a big breakfast burger, along with come coffee, inside the restaurant.
@@ -51,14 +52,14 @@ There are a total of five bike shops in Gunnison. The second one I went to was D
 
 I decided to stay in Gunnison because it looked like a nice town. I dropped off my things at the only hostel in town, the Wanderlust Hostel, then I decided to get lunch at Sherpa Cafe. I had a Tibetan noodles dish. I thought it would be something exotic but it was just normal noodles. Then I decided to visit the other bike shops trying to find a good portable bike pump.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjb4TqP6TOX9KVfdj6Ns_-dgqZZ3FMTdZUUb-hP391fT0R1dG1rCIGaxdkJCydpuv-aKSoDMhlhmDze0NIFDiB6yMTJKXFDMiWpUNjyKRRmaPpmdXX4QvtTeM9lF2WOHapW6yLParFQByE/w640-h480/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjb4TqP6TOX9KVfdj6Ns_-dgqZZ3FMTdZUUb-hP391fT0R1dG1rCIGaxdkJCydpuv-aKSoDMhlhmDze0NIFDiB6yMTJKXFDMiWpUNjyKRRmaPpmdXX4QvtTeM9lF2WOHapW6yLParFQByE/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjb4TqP6TOX9KVfdj6Ns_-dgqZZ3FMTdZUUb-hP391fT0R1dG1rCIGaxdkJCydpuv-aKSoDMhlhmDze0NIFDiB6yMTJKXFDMiWpUNjyKRRmaPpmdXX4QvtTeM9lF2WOHapW6yLParFQByE/w640-h480/%255BUNSET%255D)
 *Tibetan noodles that tasted like lo mein*
 
 Jordan, of the OFP Wheels, showed me a pump by Crank Brothers that was promising, but it didn’t have the right valve for the CO2 canister. I guess I’ll just keep the one I brought. The other shops didn’t have much for touring bikes, either.
 
 On the way out of the mall where the OFP bike shop is I saw a cannabis dispensary across the street. Since I didn’t go to the one I saw coming into Salida so I decided to check this one out. Recreational weed is legal in Colorado. I debated with myself whether to buy a joint since I have never bought marijuana before, legally or illegally. I don’t think I’m doing anything wrong and it’s all part of the adventure, so I ended up buying a small joint for $7.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjsZjUGhMg99B0mGRz8ofg1KsGX7kAFgIdq6HAhRieOVRMVkMYsxu2IzVKuIKxkCurdlwYcE28bKdLjW6J6zpL-BAISe1SvWO4LSjeaYkZZ2VX_JuaNDIr56qv0h95-ff1IU11N1OeK6kQ/w480-h640/%255BUNSET%255D)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjsZjUGhMg99B0mGRz8ofg1KsGX7kAFgIdq6HAhRieOVRMVkMYsxu2IzVKuIKxkCurdlwYcE28bKdLjW6J6zpL-BAISe1SvWO4LSjeaYkZZ2VX_JuaNDIr56qv0h95-ff1IU11N1OeK6kQ/s1600/%255BUNSET%255)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjsZjUGhMg99B0mGRz8ofg1KsGX7kAFgIdq6HAhRieOVRMVkMYsxu2IzVKuIKxkCurdlwYcE28bKdLjW6J6zpL-BAISe1SvWO4LSjeaYkZZ2VX_JuaNDIr56qv0h95-ff1IU11N1OeK6kQ/w480-h640/%255BUNSET%255D)
 *Legal weed*
 
 When I got on my bike to ride I immediately fell over and bruised my left knee. The girl next to me said, “you didn’t even smoke yet.” I started cracking up. I had forgotten to unlock my bike. I’m such an idiot.

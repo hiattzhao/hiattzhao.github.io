@@ -4,17 +4,18 @@ layout: post
 date: 2023-04-25
 ---
 
+
 After writing my previous post yesterday morning, I made myself a toasted bagel with strawberry cream cheese and a cup of coffee. I also had a yogurt. I was trying to fix an issue on my website when Bob woke up around 8:30 AM. He made me two fried eggs as the second part of my breakfast. Soon after that, I got ready. As a parting gift, Bob made a bag of walnuts, banana chips, and raisins for me. I really appreciated Bob’s generosity!
 
 I left Bob’s house around 9:30 AM, the latest I’ve departed on this trip. I got on the Spanish Moss Trail, then turned off of it to go into downtown Beaufort. There were some pedestrians there, but it was still early and most shops weren’t open. I rode on Bay Street all the way through downtown then got on the Spanish Moss Trail again to catch up with the East Coast Greenway, which I would follow to Savannah.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg9QdcD9u2JZxBijSTC1OGsX7s5pfvkv9akXKELlgF0JlREEUYKEE4q347lNCXiQEf8TaOeCYUo3tlcNIJXwY_3Vl4tP9RGuQy5ah2oPXe5eDs1tF7cNIAsTu9EMHydAC7rSnlfcYwmD8zItxZOxIREPiH1EK4sHEMUcldh_Sb-0EnKUHGhpiwacT_q/w640-h480/PXL_20230424_134916875.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg9QdcD9u2JZxBijSTC1OGsX7s5pfvkv9akXKELlgF0JlREEUYKEE4q347lNCXiQEf8TaOeCYUo3tlcNIJXwY_3Vl4tP9RGuQy5ah2oPXe5eDs1tF7cNIAsTu9EMHydAC7rSnlfcYwmD8zItxZOxIREPiH1EK4sHEMUcldh_Sb-0EnKUHGhpiwacT_q/s4032/PXL_20230424_134916875.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg9QdcD9u2JZxBijSTC1OGsX7s5pfvkv9akXKELlgF0JlREEUYKEE4q347lNCXiQEf8TaOeCYUo3tlcNIJXwY_3Vl4tP9RGuQy5ah2oPXe5eDs1tF7cNIAsTu9EMHydAC7rSnlfcYwmD8zItxZOxIREPiH1EK4sHEMUcldh_Sb-0EnKUHGhpiwacT_q/w640-h480/PXL_20230424_134916875.jpg)
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEguZpooY_mObL_DqdzMwPzXCpZbqF6wLT8GuHt4eMdUKSrTgd1UPiAInQwHrLgdQh-ejlDpXMKIs-p6aU6lJvg9E3cFtSvoczWab2g13P4vKdY2rZYT9EiftPpjQHbLYVMnZAHYWkIihrJQDzkaGva5sjlaE3XsTdrYnCO6FWlQUVpEEGxagr1zta54/w640-h480/PXL_20230424_135717891.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEguZpooY_mObL_DqdzMwPzXCpZbqF6wLT8GuHt4eMdUKSrTgd1UPiAInQwHrLgdQh-ejlDpXMKIs-p6aU6lJvg9E3cFtSvoczWab2g13P4vKdY2rZYT9EiftPpjQHbLYVMnZAHYWkIihrJQDzkaGva5sjlaE3XsTdrYnCO6FWlQUVpEEGxagr1zta54/s4032/PXL_20230424_135717891.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEguZpooY_mObL_DqdzMwPzXCpZbqF6wLT8GuHt4eMdUKSrTgd1UPiAInQwHrLgdQh-ejlDpXMKIs-p6aU6lJvg9E3cFtSvoczWab2g13P4vKdY2rZYT9EiftPpjQHbLYVMnZAHYWkIihrJQDzkaGva5sjlaE3XsTdrYnCO6FWlQUVpEEGxagr1zta54/w640-h480/PXL_20230424_135717891.jpg)
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiEsbm9-VskOX2Aup4wbszR1khZ8GWMSnYGy1ueWZUymogn_xxFk9cq2-RbsYPEjNRq2c-MW8FdZlujjK-a5-GiwFrmMQidORLbO26bVjzzCJxMur_8tClnm8_p_0Kou32dbCPGqjEQm9N2H6gXHcCIfNwKyvx8VDX324nFZxnhAStlEriDIc_e_tWC/w640-h480/PXL_20230424_135758336.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiEsbm9-VskOX2Aup4wbszR1khZ8GWMSnYGy1ueWZUymogn_xxFk9cq2-RbsYPEjNRq2c-MW8FdZlujjK-a5-GiwFrmMQidORLbO26bVjzzCJxMur_8tClnm8_p_0Kou32dbCPGqjEQm9N2H6gXHcCIfNwKyvx8VDX324nFZxnhAStlEriDIc_e_tWC/s4032/PXL_20230424_135758336.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiEsbm9-VskOX2Aup4wbszR1khZ8GWMSnYGy1ueWZUymogn_xxFk9cq2-RbsYPEjNRq2c-MW8FdZlujjK-a5-GiwFrmMQidORLbO26bVjzzCJxMur_8tClnm8_p_0Kou32dbCPGqjEQm9N2H6gXHcCIfNwKyvx8VDX324nFZxnhAStlEriDIc_e_tWC/w640-h480/PXL_20230424_135758336.jpg)
 *Downtown Beaufort*
 
 The East Coast Greenway had me ride on highway 170. About 15 miles out of Beaufort I saw Parker’s Kitchen, a gas station convenience store. Bob had told me there were no restaurants between Beaufort and Savannah, so I decided to eat something here.
@@ -29,12 +30,12 @@ At a part of highway 170, there were also a bunch of nails and screws on the sho
 
 I also noticed something is wrong with my bike. The shifting is off. The shift lever sometimes clicked twice when I shifted, it should only click once every time I shift. This made me worry. I tried to see if the shifting cable was set wrong by the mechanic from Wilmington, NC, but it was set correctly. I just had to deal with the issue. It was not a big deal since I could still ride my bike.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjxvxMy08a_rI0_hblw4BpEQqT5BwucT0unMA84vyMQRFo7xjtTVSc40H924ldY1XMUZhczN71KYFkqhfWAk7xVujzQPfmn6MkT0ir9agQ7rAlF5D5oRRD68GD6Cj2ujrttqTZs8IhkbTArx5mljEFQ595r0XTxMttiZ_2FcQku3fTkAzyH2Wzs23lT/w640-h480/PXL_20230424_181430583.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjxvxMy08a_rI0_hblw4BpEQqT5BwucT0unMA84vyMQRFo7xjtTVSc40H924ldY1XMUZhczN71KYFkqhfWAk7xVujzQPfmn6MkT0ir9agQ7rAlF5D5oRRD68GD6Cj2ujrttqTZs8IhkbTArx5mljEFQ595r0XTxMttiZ_2FcQku3fTkAzyH2Wzs23lT/s3864/PXL_20230424_181430583.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjxvxMy08a_rI0_hblw4BpEQqT5BwucT0unMA84vyMQRFo7xjtTVSc40H924ldY1XMUZhczN71KYFkqhfWAk7xVujzQPfmn6MkT0ir9agQ7rAlF5D5oRRD68GD6Cj2ujrttqTZs8IhkbTArx5mljEFQ595r0XTxMttiZ_2FcQku3fTkAzyH2Wzs23lT/w640-h480/PXL_20230424_181430583.jpg)
 *Passed by an industrial site*
 
 I arrived in Savannah around 3:30 PM and had a banh mi panini and some chips at the Arts restaurant that’s run by the Savannah College of Arts and Design students. I was impressed by the students’ art work that were shown on the TV inside the restaurant. They were so professionally done.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEifIVrvGCSVlgKy08iXRz6I7oc9wiQPNnsttrG9CaGxCI92BwPv1hTtl5fo2u2qiqCL8mD0J6cj2tHHAj3IMlx11eJkxUqKYDo2wQT-CshN8z_pPcSOhA4bWeOj9lvpHBxtzoNNCmIsEq8Bav7fb7zNbJBfujr1llLAPN6-qJuotU6-vh-o0YXwZPX4/w640-h480/PXL_20230424_192641834.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEifIVrvGCSVlgKy08iXRz6I7oc9wiQPNnsttrG9CaGxCI92BwPv1hTtl5fo2u2qiqCL8mD0J6cj2tHHAj3IMlx11eJkxUqKYDo2wQT-CshN8z_pPcSOhA4bWeOj9lvpHBxtzoNNCmIsEq8Bav7fb7zNbJBfujr1llLAPN6-qJuotU6-vh-o0YXwZPX4/s4032/PXL_20230424_192641834.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEifIVrvGCSVlgKy08iXRz6I7oc9wiQPNnsttrG9CaGxCI92BwPv1hTtl5fo2u2qiqCL8mD0J6cj2tHHAj3IMlx11eJkxUqKYDo2wQT-CshN8z_pPcSOhA4bWeOj9lvpHBxtzoNNCmIsEq8Bav7fb7zNbJBfujr1llLAPN6-qJuotU6-vh-o0YXwZPX4/w640-h480/PXL_20230424_192641834.jpg)
 *Inside the Arts restaurant*
 
 After this early dinner, I rode another few miles to Misty’s place, my Airbnb host. I had ridden just shy of 60 miles that day.

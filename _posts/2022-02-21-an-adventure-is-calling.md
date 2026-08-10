@@ -4,6 +4,7 @@ layout: post
 date: 2022-02-21
 ---
 
+
 In the past few weeks I have been thinking, imagining, and dreaming. I no longer have the desire to pursue my financial goal while doing the conventional thing, which is work. With Covid cases decreasing and the warmer global warming weather in February, I feel a need for change.
 
 This feeling has been dormant inside me for a long time, since 2018 when I met[Tim Millikin](https://www.timmillikin.com) from the UK during my cycling across America trip. Tim was the first person I met in real life who bicycled around the world. I didn't think it was a possibility until I met someone who did the impossible. Little did I know, there have been many people who have cycled the world before and after Tim.

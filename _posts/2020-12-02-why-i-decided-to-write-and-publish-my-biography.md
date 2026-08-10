@@ -4,6 +4,7 @@ layout: post
 date: 2020-12-02
 ---
 
+
 [via GIPHY](https://giphy.com/gifs/cheezburger-video-games-mindwarp-book-TZ3Y3sUWzrquY)
 
 Looking back, the short answer to why I wrote my biography is "why not" and the short answer to why I published my biography is again "why not." A follow up answer to both questions is "why not now."

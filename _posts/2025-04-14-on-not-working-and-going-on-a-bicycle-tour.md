@@ -4,6 +4,7 @@ layout: post
 date: 2025-04-14
 ---
 
+
 Sometimes, I imagine someone asks me the question: “Why are you not working in your prime years but going on a bicycle tour?”
 
 It’s true that most people around my age are working during their prime earning years, but I’m not cut out for that.

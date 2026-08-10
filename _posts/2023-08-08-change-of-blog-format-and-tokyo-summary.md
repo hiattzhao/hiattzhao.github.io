@@ -4,6 +4,7 @@ layout: post
 date: 2023-08-08
 ---
 
+
 I feel that my blog posts are like lists of things I did. Although they are true to the nature of blogs, as in they are logs on the web, however, I find my writing to be a bit boring to say the least. Also, I feel spending an hour per day to write a post is time consuming, especially in Japan where it’s so hot that I want to spend my mornings exploring and not writing. So, I’ve decided to change the format of my travel journal and write one post per city to summarize what I did and provide a guide to any future travelers. Below is my first summary.
 
 # Tokyo
@@ -16,36 +17,36 @@ I’ve documented the sights I’ve seen on my previous posts for the first four
 
 I finally had sushi for the first time in Japan. It was at a small mom-and-pop restaurant not too far from the hostel. The whole tray of sushi was only 1000 JPY, or about $7 USD. Definitely worth the price, but not the best sushi I’ve had.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEga1_pyZ4_e-ppOk4O-LxVewhuDX1f9zlaTBLKwY9zEs-ipGuWD5IYLIMQ1aIFZJTIxqafYGkG_fdnqUk-DnXhesUWyy7QdxVRLB9K4Ohst8GFOFBFMWp_2VamN8z3VRlJPVvTySIIMeDWkiLUpPuR-WbZStECmsXK_1dqBA-DIRb1ynHoumGVnS7eFR08/w640-h480/PXL_20230805_033936739.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEga1_pyZ4_e-ppOk4O-LxVewhuDX1f9zlaTBLKwY9zEs-ipGuWD5IYLIMQ1aIFZJTIxqafYGkG_fdnqUk-DnXhesUWyy7QdxVRLB9K4Ohst8GFOFBFMWp_2VamN8z3VRlJPVvTySIIMeDWkiLUpPuR-WbZStECmsXK_1dqBA-DIRb1ynHoumGVnS7eFR08/s4032/PXL_20230805_033936739.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEga1_pyZ4_e-ppOk4O-LxVewhuDX1f9zlaTBLKwY9zEs-ipGuWD5IYLIMQ1aIFZJTIxqafYGkG_fdnqUk-DnXhesUWyy7QdxVRLB9K4Ohst8GFOFBFMWp_2VamN8z3VRlJPVvTySIIMeDWkiLUpPuR-WbZStECmsXK_1dqBA-DIRb1ynHoumGVnS7eFR08/w640-h480/PXL_20230805_033936739.jpg)
 *A mom-and-pop sushi shop*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjMj5peLQcP2ie7WL0sBtvE93v-ojxqVC6ZoSF1nWNnCBJYIG9aMJcPJIGwPgYN2OqN3pK8tIdbkATwnn5vqMhVnDE1PE7i5h2zTXKmgIVEZLKSMh6B_q72ocfD2gQtNLFOWdyDxXuAWVaXYIb7EgN4Ux7egA6F2gYjJ4wyRoxZt6aPAI6Ohsw3a1vCSGQ/w640-h480/PXL_20230805_034158177.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjMj5peLQcP2ie7WL0sBtvE93v-ojxqVC6ZoSF1nWNnCBJYIG9aMJcPJIGwPgYN2OqN3pK8tIdbkATwnn5vqMhVnDE1PE7i5h2zTXKmgIVEZLKSMh6B_q72ocfD2gQtNLFOWdyDxXuAWVaXYIb7EgN4Ux7egA6F2gYjJ4wyRoxZt6aPAI6Ohsw3a1vCSGQ/s4032/PXL_20230805_034158177.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjMj5peLQcP2ie7WL0sBtvE93v-ojxqVC6ZoSF1nWNnCBJYIG9aMJcPJIGwPgYN2OqN3pK8tIdbkATwnn5vqMhVnDE1PE7i5h2zTXKmgIVEZLKSMh6B_q72ocfD2gQtNLFOWdyDxXuAWVaXYIb7EgN4Ux7egA6F2gYjJ4wyRoxZt6aPAI6Ohsw3a1vCSGQ/w640-h480/PXL_20230805_034158177.jpg)
 *All this for 1000 JPY (~$7 USD)*
 
 Chris, Arturo, and another young traveler named Katherine, and I played card games in the afternoon. For dinner, Chris, Arturo, and Keizen, who is a 17 year old student, and I had okonomiyaki at a restaurant that’s about ten minutes walk from the hostel. I ended up going to bed soon after dinner.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLupFXKYBg-khUhjxK4BVA4f9SHySJQ7o_16qDNNsv63v4nq8HMvN3YzVeNilZ08R6baNbM1pzT_tGhZHyGfHhrwELks6KVsDH_sU5UOh7F8_Gzdd96NozyfEw9bpaGg7eM0DRcr3HAvqwn29tntnk4kPDaiCYJDYNxlnRVJnTmOZtTqAz7U2jLvTrXl8/w640-h480/PXL_20230805_104736945.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLupFXKYBg-khUhjxK4BVA4f9SHySJQ7o_16qDNNsv63v4nq8HMvN3YzVeNilZ08R6baNbM1pzT_tGhZHyGfHhrwELks6KVsDH_sU5UOh7F8_Gzdd96NozyfEw9bpaGg7eM0DRcr3HAvqwn29tntnk4kPDaiCYJDYNxlnRVJnTmOZtTqAz7U2jLvTrXl8/s4032/PXL_20230805_104736945.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLupFXKYBg-khUhjxK4BVA4f9SHySJQ7o_16qDNNsv63v4nq8HMvN3YzVeNilZ08R6baNbM1pzT_tGhZHyGfHhrwELks6KVsDH_sU5UOh7F8_Gzdd96NozyfEw9bpaGg7eM0DRcr3HAvqwn29tntnk4kPDaiCYJDYNxlnRVJnTmOZtTqAz7U2jLvTrXl8/w640-h480/PXL_20230805_104736945.jpg)
 *Okonomiyaki with seafood on top*
 
 ### Day 5:
 
 I wanted to eat some fruits in the morning since I noticed the meals I had didn’t include many fruits. I bought some grapes at the supermarket. They were very small compared to the ones in America.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1GZhGgrDad_QDTSnDu2Su65aBN2tQ7uqzD7N9znUgwwfKuyTxsiynHbHkEnBVpcNP5vfHfcRuQJ0cQYfo118_4tok2MS3pjrO27DfCij9HU8igmk_wm1lvj4qM1Z1TkldrB_AAXFISl2eNeVJnZbnbI1rfQZM1YgjhR9W14L1jR2mzGbjqePr2tFuvZo/w640-h480/PXL_20230805_215308429.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1GZhGgrDad_QDTSnDu2Su65aBN2tQ7uqzD7N9znUgwwfKuyTxsiynHbHkEnBVpcNP5vfHfcRuQJ0cQYfo118_4tok2MS3pjrO27DfCij9HU8igmk_wm1lvj4qM1Z1TkldrB_AAXFISl2eNeVJnZbnbI1rfQZM1YgjhR9W14L1jR2mzGbjqePr2tFuvZo/s4032/PXL_20230805_215308429.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1GZhGgrDad_QDTSnDu2Su65aBN2tQ7uqzD7N9znUgwwfKuyTxsiynHbHkEnBVpcNP5vfHfcRuQJ0cQYfo118_4tok2MS3pjrO27DfCij9HU8igmk_wm1lvj4qM1Z1TkldrB_AAXFISl2eNeVJnZbnbI1rfQZM1YgjhR9W14L1jR2mzGbjqePr2tFuvZo/w640-h480/PXL_20230805_215308429.jpg)
 *Small Japanese grapes*
 
 I checked out of the hostel in the morning and took the subway to meet up with a woman named Lisa whom I had been chatting with on Coffee Meets Bagel. We met at 10 AM at Tim Ho Wan, a Chinese dim sum restaurant. The food was a bit expensive but good. After this brunch we walked to the nearby Hibiya Park and relaxed under a pavilion by the pond. We saw some koi fish and a tortoise. I thought the date went well, but I didn’t sense a romantic connection with her.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhergU-kwwdj21ozgD-dpewa4UY4vFbiOGlLx9kiJJv06u6GtjGo_sM7_MJslqxXd9q2ulFFBGKMPk_LGr7Q54jxSDKgbO1LKn_wX9AgZ3o3AC8h4xyWH_Gok9gYknPEZMT8TFHi7Ujogd92FoA57A45l1V-R15J18gcGjJXFxp4KAgUThRHVGqxKm3KX0/w640-h480/PXL_20230806_025147495.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhergU-kwwdj21ozgD-dpewa4UY4vFbiOGlLx9kiJJv06u6GtjGo_sM7_MJslqxXd9q2ulFFBGKMPk_LGr7Q54jxSDKgbO1LKn_wX9AgZ3o3AC8h4xyWH_Gok9gYknPEZMT8TFHi7Ujogd92FoA57A45l1V-R15J18gcGjJXFxp4KAgUThRHVGqxKm3KX0/s4032/PXL_20230806_025147495.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhergU-kwwdj21ozgD-dpewa4UY4vFbiOGlLx9kiJJv06u6GtjGo_sM7_MJslqxXd9q2ulFFBGKMPk_LGr7Q54jxSDKgbO1LKn_wX9AgZ3o3AC8h4xyWH_Gok9gYknPEZMT8TFHi7Ujogd92FoA57A45l1V-R15J18gcGjJXFxp4KAgUThRHVGqxKm3KX0/w640-h480/PXL_20230806_025147495.jpg)
 *One of the ponds in Hibiya Park*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiVz1wYkkoAia8sEt5aeRPGrQfQqTNe4qvOz02sw3B1rYX4HEXF_58eO0hNDRPPFopNIE7nLmpjhu9IFKdRjF-d5a0PZ7GBkk1TRHPGutRllkYYb_pT-94ZhJ-m8qrGsNOWicmwTW7wLvEfYDnNP1eJSRztzX6caXr-odMYgrCktC04WYnIB1jLklIfxv8/w480-h640/PXL_20230806_033151515.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiVz1wYkkoAia8sEt5aeRPGrQfQqTNe4qvOz02sw3B1rYX4HEXF_58eO0hNDRPPFopNIE7nLmpjhu9IFKdRjF-d5a0PZ7GBkk1TRHPGutRllkYYb_pT-94ZhJ-m8qrGsNOWicmwTW7wLvEfYDnNP1eJSRztzX6caXr-odMYgrCktC04WYnIB1jLklIfxv8/s4032/PXL_20230806_033151515.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiVz1wYkkoAia8sEt5aeRPGrQfQqTNe4qvOz02sw3B1rYX4HEXF_58eO0hNDRPPFopNIE7nLmpjhu9IFKdRjF-d5a0PZ7GBkk1TRHPGutRllkYYb_pT-94ZhJ-m8qrGsNOWicmwTW7wLvEfYDnNP1eJSRztzX6caXr-odMYgrCktC04WYnIB1jLklIfxv8/w480-h640/PXL_20230806_033151515.jpg)
 *Tortoise*
 
   
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgL9RGgCNFejmBnB3iqhNVLKtAboSEaPNVNqgcNN0miy9pMYD7wfV1c22V8rlc4jvD6UEo2_Ya20Zd4Fgegm0kvOuSPLG1TLZitpcBGq8eHvY8PMYDmIRJ6k1UzX45o8zUoyVHwA4KuOLm9__LQ_ocUKVm_x1F8qSLWi9taT0_6nuoPQmv0Hmt3Bl11IRg/w640-h480/PXL_20230806_033308569.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgL9RGgCNFejmBnB3iqhNVLKtAboSEaPNVNqgcNN0miy9pMYD7wfV1c22V8rlc4jvD6UEo2_Ya20Zd4Fgegm0kvOuSPLG1TLZitpcBGq8eHvY8PMYDmIRJ6k1UzX45o8zUoyVHwA4KuOLm9__LQ_ocUKVm_x1F8qSLWi9taT0_6nuoPQmv0Hmt3Bl11IRg/s4032/PXL_20230806_033308569.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgL9RGgCNFejmBnB3iqhNVLKtAboSEaPNVNqgcNN0miy9pMYD7wfV1c22V8rlc4jvD6UEo2_Ya20Zd4Fgegm0kvOuSPLG1TLZitpcBGq8eHvY8PMYDmIRJ6k1UzX45o8zUoyVHwA4KuOLm9__LQ_ocUKVm_x1F8qSLWi9taT0_6nuoPQmv0Hmt3Bl11IRg/w640-h480/PXL_20230806_033308569.jpg)
 *Another view of the park*
 
 I took the Shinkansen, also known as the bullet train, from Tokyo Station to Kyoto Station after having some difficulties buying the ticket. The ride was about 2:15 hours, which was very fast since the train’s max speed was 177 mph. I arrived in Kyoto at 4 PM.
@@ -68,7 +69,7 @@ I took the Shinkansen, also known as the bullet train, from Tokyo Station to Kyo
 
 - Chris: Chris is from Poland and works as a game developer. His Japanese is very good and have traveled extensively in Japan.
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj_MtEtUEBIyxHQJdgmBEVe9DiYkxzVhXZtH3_bjThpaUmF8LRGYUj2SSSEdJFYhW0Lh0kyxBhP6BDGVHuHOYNZOSPEPlJ6lWuRfFggzR5TUcr7cIOKfhKGyr1ykH6anOpqsOFG-EGn47vqxcNrctt92QUPH6SRDXbx62HlL4xO2Ur8R2SJRtzFpOhwtHo/w640-h480/PXL_20230804_133541408.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj_MtEtUEBIyxHQJdgmBEVe9DiYkxzVhXZtH3_bjThpaUmF8LRGYUj2SSSEdJFYhW0Lh0kyxBhP6BDGVHuHOYNZOSPEPlJ6lWuRfFggzR5TUcr7cIOKfhKGyr1ykH6anOpqsOFG-EGn47vqxcNrctt92QUPH6SRDXbx62HlL4xO2Ur8R2SJRtzFpOhwtHo/s4032/PXL_20230804_133541408.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj_MtEtUEBIyxHQJdgmBEVe9DiYkxzVhXZtH3_bjThpaUmF8LRGYUj2SSSEdJFYhW0Lh0kyxBhP6BDGVHuHOYNZOSPEPlJ6lWuRfFggzR5TUcr7cIOKfhKGyr1ykH6anOpqsOFG-EGn47vqxcNrctt92QUPH6SRDXbx62HlL4xO2Ur8R2SJRtzFpOhwtHo/w640-h480/PXL_20230804_133541408.jpg)
 *Arturo and Chris in Ueno Park*
 
 - Katherine: I didn’t talk to her too much. She’s from Hong Kong and studied in Beijing. She is doing some traveling before returning to college in the fall.
