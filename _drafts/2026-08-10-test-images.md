@@ -2,8 +2,6 @@
 layout: post
 title: "Test Images!"
 date: 2026-08-10
-categories: []
-tags: []
 ---
 
 Here's an image...
