@@ -88,6 +88,71 @@ permalink: /code
     </div>
     <div class="card">
       <picture>
+        <source srcset="/assets/images/personal/2018Blogger_400.webp 400w,
+                            /assets/images/personal/2018Blogger_800.webp 800w,
+                            /assets/images/personal/2018Blogger_1200.webp 1200w"
+          sizes="(max-width: 600px) 400px, (max-width: 1200px) 800px, 1200px" type="image/webp">
+        <img src="/assets/images/personal/2018Blogger_800.webp"
+          alt="Travel Blog - Journey documentation and travel experiences" loading="lazy" />
+      </picture>
+      <h3>Travel Blog <span>2018 to Present</span></h3>
+      <p>
+        This is my travel blog using Blogger/BlogSpot. It includes a
+        modified JavaScript page that displays all the blog posts in one
+        page.
+      </p>
+      <div class="tags">
+        <span>Blogger</span>
+        <span>JavaScript</span>
+      </div>
+      <div class="links">
+        <span><a href="https://hiattzhao.com" title="View Site"><img src="/assets/images/icons/view.svg"
+          alt="View Site" /></a></span>
+      </div>
+    </div>
+    <div class="card">
+      <picture>
+        <source srcset="/assets/images/personal/2023PhotoPortfolio_400.webp 400w,
+                            /assets/images/personal/2023PhotoPortfolio_800.webp 800w,
+                            /assets/images/personal/2023PhotoPortfolio_1200.webp 1200w"
+          sizes="(max-width: 600px) 400px, (max-width: 1200px) 800px, 1200px" type="image/webp">
+        <img src="/assets/images/personal/2023PhotoPortfolio_800.webp"
+          alt="Photography Portfolio - Archive of travel and landscape photography 2014-2016" loading="lazy" />
+      </picture>
+      <h3>Photography Portfolio <span>2020 to Present</span></h3>
+      <p>My current photography portfolio</p>
+      <div class="tags">
+        <span>HTML</span>
+        <span>CSS</span>
+        <span>Jekyll</span>
+      </div>
+      <div class="links">
+        <span><a href="https://photos.hiattzhao.com" title="View Site"><img src="/assets/images/icons/view.svg"
+          alt="View Site" /></a></span>
+        <span><a href="https://github.com/hiattzhao/photos-portfolio" title="View Code"><img
+          src="/assets/images/icons/code.svg" alt="View Code" /></a></span>
+      </div>
+    </div>
+    <div class="card">
+      <picture>
+        <source srcset="/assets/images/personal/2023PhotoSmugmug_400.webp 400w,
+                            /assets/images/personal/2023PhotoSmugmug_800.webp 800w,
+                            /assets/images/personal/2023PhotoSmugmug_1200.webp 1200w"
+          sizes="(max-width: 600px) 400px, (max-width: 1200px) 800px, 1200px" type="image/webp">
+        <img src="/assets/images/personal/2023PhotoSmugmug_800.webp"
+          alt="Photography Website - Abstract architecture reflection shop" loading="lazy" />
+      </picture>
+      <h3>Photography Website <span>2024</span></h3>
+      <p>
+        I used Smugmug CMS to create an online shop for my abstract
+        architecture reflection photographs.
+      </p>
+      <div class="tags">
+        <span>Smugmug</span>
+      </div>
+    </div>
+    <div class="card">
+      <picture>
         <source srcset="/assets/images/professional/2019CRD_400.webp 400w,
                             /assets/images/professional/2019CRD_800.webp 800w,
                             /assets/images/professional/2019CRD_1200.webp 1200w"
@@ -180,6 +245,34 @@ permalink: /code
     </div>
     <div class="card">
       <picture>
+        <source srcset="/assets/images/personal/2016Portfolio_400.webp 400w,
+                            /assets/images/personal/2016Portfolio_800.webp 800w,
+                            /assets/images/personal/2016Portfolio_1200.webp 1200w"
+          sizes="(max-width: 600px) 400px, (max-width: 1200px) 800px, 1200px" type="image/webp">
+        <img src="/assets/images/personal/2016Portfolio_800.webp"
+          alt="Web Developer and Photographer Portfolio - Showcase of web applications and photography"
+          loading="lazy" />
+      </picture>
+      <h3>
+        Web Developer and Photographer Portfolio
+        <span>2016 to 2022</span>
+      </h3>
+      <p>My web development and photography portfolio</p>
+      <div class="tags">
+        <span>HTML</span>
+        <span>CSS</span>
+        <span>JavaScript</span>
+        <span>jQuery</span>
+      </div>
+      <div class="links">
+        <span><a href="https://hiattzhao.github.io/webdev-photo-portfolio/" title="View Site"><img
+          src="/assets/images/icons/view.svg" alt="View Site" /></a></span>
+        <span><a href="https://github.com/hiattzhao/webdev-photo-portfolio" title="View Code"><img
+          src="/assets/images/icons/code.svg" alt="View Code" /></a></span>
+      </div>
+    </div>
+    <div class="card">
+      <picture>
         <source srcset="/assets/images/professional/2015dbsa_400.webp 400w,
                             /assets/images/professional/2015dbsa_800.webp 800w,
                             /assets/images/professional/2015dbsa_1200.webp 1200w"
@@ -249,99 +342,6 @@ permalink: /code
       <div class="links">
         <span><a href="https://nlhistoricalsociety.org" title="View Site"><img src="/assets/images/icons/view.svg"
           alt="View Site" /></a></span>
-      </div>
-    </div>
-    <div class="card">
-      <picture>
-        <source srcset="/assets/images/personal/2018Blogger_400.webp 400w,
-                            /assets/images/personal/2018Blogger_800.webp 800w,
-                            /assets/images/personal/2018Blogger_1200.webp 1200w"
-          sizes="(max-width: 600px) 400px, (max-width: 1200px) 800px, 1200px" type="image/webp">
-        <img src="/assets/images/personal/2018Blogger_800.webp"
-          alt="Travel Blog - Journey documentation and travel experiences" loading="lazy" />
-      </picture>
-      <h3>Travel Blog <span>2018 to Present</span></h3>
-      <p>
-        This is my travel blog using Blogger/BlogSpot. It includes a
-        modified JavaScript page that displays all the blog posts in one
-        page.
-      </p>
-      <div class="tags">
-        <span>Blogger</span>
-        <span>JavaScript</span>
-      </div>
-      <div class="links">
-        <span><a href="https://hiattzhao.com" title="View Site"><img src="/assets/images/icons/view.svg"
-          alt="View Site" /></a></span>
-      </div>
-    </div>
-    <div class="card">
-      <picture>
-        <source srcset="/assets/images/personal/2023PhotoPortfolio_400.webp 400w,
-                            /assets/images/personal/2023PhotoPortfolio_800.webp 800w,
-                            /assets/images/personal/2023PhotoPortfolio_1200.webp 1200w"
-          sizes="(max-width: 600px) 400px, (max-width: 1200px) 800px, 1200px" type="image/webp">
-        <img src="/assets/images/personal/2023PhotoPortfolio_800.webp"
-          alt="Photography Portfolio - Archive of travel and landscape photography 2014-2016" loading="lazy" />
-      </picture>
-      <h3>Photography Portfolio <span>2020 to Present</span></h3>
-      <p>My current photography portfolio</p>
-      <div class="tags">
-        <span>HTML</span>
-        <span>CSS</span>
-        <span>Jekyll</span>
-      </div>
-      <div class="links">
-        <span><a href="https://photos.hiattzhao.com" title="View Site"><img src="/assets/images/icons/view.svg"
-          alt="View Site" /></a></span>
-        <span><a href="https://github.com/hiattzhao/photos-portfolio" title="View Code"><img
-          src="/assets/images/icons/code.svg" alt="View Code" /></a></span>
-      </div>
-    </div>
-    <div class="card">
-      <picture>
-        <source srcset="/assets/images/personal/2023PhotoSmugmug_400.webp 400w,
-                            /assets/images/personal/2023PhotoSmugmug_800.webp 800w,
-                            /assets/images/personal/2023PhotoSmugmug_1200.webp 1200w"
-          sizes="(max-width: 600px) 400px, (max-width: 1200px) 800px, 1200px" type="image/webp">
-        <img src="/assets/images/personal/2023PhotoSmugmug_800.webp"
-          alt="Photography Website - Abstract architecture reflection shop" loading="lazy" />
-      </picture>
-      <h3>Photography Website <span>2024</span></h3>
-      <p>
-        I used Smugmug CMS to create an online shop for my abstract
-        architecture reflection photographs.
-      </p>
-      <div class="tags">
-        <span>Smugmug</span>
-      </div>
-    </div>
-    <div class="card">
-      <picture>
-        <source srcset="/assets/images/personal/2016Portfolio_400.webp 400w,
-                            /assets/images/personal/2016Portfolio_800.webp 800w,
-                            /assets/images/personal/2016Portfolio_1200.webp 1200w"
-          sizes="(max-width: 600px) 400px, (max-width: 1200px) 800px, 1200px" type="image/webp">
-        <img src="/assets/images/personal/2016Portfolio_800.webp"
-          alt="Web Developer and Photographer Portfolio - Showcase of web applications and photography"
-          loading="lazy" />
-      </picture>
-      <h3>
-        Web Developer and Photographer Portfolio
-        <span>2016 to 2022</span>
-      </h3>
-      <p>My web development and photography portfolio</p>
-      <div class="tags">
-        <span>HTML</span>
-        <span>CSS</span>
-        <span>JavaScript</span>
-        <span>jQuery</span>
-      </div>
-      <div class="links">
-        <span><a href="https://hiattzhao.github.io/webdev-photo-portfolio/" title="View Site"><img
-          src="/assets/images/icons/view.svg" alt="View Site" /></a></span>
-        <span><a href="https://github.com/hiattzhao/webdev-photo-portfolio" title="View Code"><img
-          src="/assets/images/icons/code.svg" alt="View Code" /></a></span>
       </div>
     </div>
   </div>
