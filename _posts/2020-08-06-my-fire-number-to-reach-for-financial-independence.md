@@ -16,7 +16,7 @@ Since the majority of my expenses is rent, with 66% of my expenses going toward 
 
 So my goal is two folds: 1) Find a way to eliminate my rent, which is my biggest expense, and 2) Save around $200,000 in the shortest time possible.
 
->Now you might be asking "Why does this simple FIRE formula work?" It works if you invest the savings in something that will return at least 4% per year. That way, if you spend 4% of your savings each year then your principle stays the same. In my example, 4% of $192,000 is $7,680, which is my annual expense if I eliminate my rent.
+Now you might be asking "Why does this simple FIRE formula work?" It works if you invest the savings in something that will return at least 4% per year. That way, if you spend 4% of your savings each year then your principle stays the same. In my example, 4% of $192,000 is $7,680, which is my annual expense if I eliminate my rent.
 
 One investment vehicle is the stock market. The stock market, on average, returns 7 to 8% per year with inflation accounted. So if I invest all my savings into a stock market index, like the S&P 500, then I would get a return of around 7% annually. With a 4% withdraw rate, I'm still gaining about 3% on my savings each year. This 3% is a good cushion in case the stock market drops, which it does once in a while.
 
