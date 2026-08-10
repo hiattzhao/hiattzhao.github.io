@@ -29,9 +29,9 @@ As Chris and I sat on the back porch, we watched the gentle flow of the river an
 
 This morning, Chris and I went grocery shopping in Perth. After breakfast, I weed-whacked some plants by the driveway and in the front yard of the house. I felt like a real working man doing real labor, rather than sitting behind a computer doing IT work. It was a good workout.
 
-To pass the time, I read some blog posts on[CyclingAbout.com](https://CyclingAbout.com) and relaxed a bit before Chris’s friends, Victor and Aili, came over.
+To pass the time, I read some blog posts on [CyclingAbout.com](https://CyclingAbout.com) and relaxed a bit before Chris’s friends, Victor and Aili, came over.
 
-Victor is a professor who specializes in borders between countries. He has been to China at least seven times! His wife, Aili, is an award-winning acrylic artist. Her website is[ailikurtis.fineartstudioonline.com](https://ailikurtis.fineartstudioonline.com). The four of us went to dinner at Ecotay, a nearby pizza restaurant that’s situated on a farm. We had a great time talking and enjoyed our pizzas.
+Victor is a professor who specializes in borders between countries. He has been to China at least seven times! His wife, Aili, is an award-winning acrylic artist. Her website is [ailikurtis.fineartstudioonline.com](https://ailikurtis.fineartstudioonline.com). The four of us went to dinner at Ecotay, a nearby pizza restaurant that’s situated on a farm. We had a great time talking and enjoyed our pizzas.
 
 After Chris and I came back home, Chris let me try his homemade calvados, a liquor that he made with Victor using apples. It tasted very good. I guess I’m starting to loosen up on my teetotalism.
 

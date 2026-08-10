@@ -4,6 +4,10 @@ layout: post
 date: 2021-01-07
 ---
 
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg6AT-6NEqJA9Fdo8YJ36uXHWou1680s1q0CCJ6y7WfrOvZ0_o3S8M_iCzbcDpFD0lLCaVo3YSps1u0mXgcOSezGYSQx6I9WzRm3waSk8Imm-SUEDA85D8MuczuKWQyhiFWBiSHzmLrfeo/w308-h400/2919444045_c961a7bc0b.jpg)
+*Image: "Financial free fall" by Brintam*
+
 Sometimes I wonder if any of this is worth my time. When the world seems to be falling apart, when our environment is in crisis, and when a country's political structure is frail.
 
 The Capitol siege that happened yesterday was a surprise to me. Never have I ever thought this would be possible. But it is. And it happened.

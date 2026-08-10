@@ -25,13 +25,13 @@ The most expensive countries in descending order are the United Kingdom, The Net
 
 Here's how I plan my trip:
 
-1. Visit[https://travel.state.gov/en/international-travel.html](https://travel.state.gov/en/international-travel.html) and research about visa requirements. I also use [https://www.passportindex.org](https://www.passportindex.org) to get an overview of visa requirements, but I rely on the state.gov website for official information.
+1. Visit [https://travel.state.gov/en/international-travel.html](https://travel.state.gov/en/international-travel.html) and research about visa requirements. I also use [https://www.passportindex.org](https://www.passportindex.org) to get an overview of visa requirements, but I rely on the state.gov website for official information.
 2. Check for ETA (Electronic Travel Authorization) for the destination country since some countries require you to register and submit an online form before arrival. Examples include the United Kingdom, The Philippines, and others.
 3. Make sure to check if the country requires an onward or a return flight ticket. You can do that by a simple Google search. Some places won't let you board the plane if you don't show an onward flight ticket.
-4. I book all my flights using[Google Flights](https://www.google.com/travel/flights). Another good option is [Skyscanner.com](http://Skyscanner.com).
-5. I research about my destination using[ChatGPT](https://chatgpt.com) by asking "Things to do in (fill in your city)." I also use [Wikivoyage.org](http://Wikivoyage.org) as an online guidebook so I don't buy paper guidebooks anymore.
+4. I book all my flights using [Google Flights](https://www.google.com/travel/flights). Another good option is [Skyscanner.com](http://Skyscanner.com).
+5. I research about my destination using [ChatGPT](https://chatgpt.com) by asking "Things to do in (fill in your city)." I also use [Wikivoyage.org](http://Wikivoyage.org) as an online guidebook so I don't buy paper guidebooks anymore.
 6. For restaurant recommendations I use Google Maps.
-7. As for housing, I mainly use[Booking.com](https://Booking.com). Sometimes I also use [Hostelworld.com](https://Hostelworld.com). When I was cycle touring, I used [Warmshowers.org](https://Warmshowers.org) and [Couchsurfing.com](https://Couchsurfing.com). I recently signed up for [Workaway.info](https://Workaway.info) but haven't used it yet.
+7. As for housing, I mainly use [Booking.com](https://Booking.com). Sometimes I also use [Hostelworld.com](https://Hostelworld.com). When I was cycle touring, I used [Warmshowers.org](https://Warmshowers.org) and [Couchsurfing.com](https://Couchsurfing.com). I recently signed up for [Workaway.info](https://Workaway.info) but haven't used it yet.
 8. Depending on the country, there are different ride sharing apps to download. In Europe, there's Bolt, in Southeast Asia it's Grab, and in the Middle East it's Careem. Uber works in some of these regions as well.
 
 As for this trip, and all my other trips, I have to thank all the wonderful people I've met. They truly made my trip special. I think the best thing about traveling is the people. They make me feel like humanity is on the right path, but there's still so much work to do. Thank you all for being part of my experience. I had a wonderful time!

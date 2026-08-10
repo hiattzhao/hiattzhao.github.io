@@ -5,8 +5,8 @@ date: 2018-04-16
 ---
 
 
-Yesterday morning I had a cup of coffee and a bagel at Square One coffee shop a couple blocks away. It’s one of the best coffee shops I’ve been to mainly because the baristas know every person who walked in, except for me of course. The place also has some great artwork for sale. Not too expensive either. I liked one print of a tree and a white tiger in the night and someone bought it just minutes after I looked at it. 
- 
+Yesterday morning I had a cup of coffee and a bagel at Square One coffee shop a couple blocks away. It’s one of the best coffee shops I’ve been to mainly because the baristas know every person who walked in, except for me of course. The place also has some great artwork for sale. Not too expensive either. I liked one print of a tree and a white tiger in the night and someone bought it just minutes after I looked at it.  
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhsbbM2j8CzZsXBwTKi2z4at7xqlDrQ76Ax-Vm6Bo-HtOTgqtZPB6RfSEcQHy_Kfn8svRDwGHBx9EM1kvfoU9U7Nk_45w8-ElOgb-N7zkRvrT1qMfz0CUCOPV7d5cMH1lM8lnzzNvLQabY/w640-h480/%255BUNSET%255D)
 *Square One Coffee*
 

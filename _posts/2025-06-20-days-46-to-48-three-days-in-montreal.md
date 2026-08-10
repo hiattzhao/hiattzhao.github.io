@@ -25,7 +25,7 @@ This morning Élise had to go to work early so I bid farewell to her. I stayed i
 
 In the afternoon, Anas and I walked to a dollar store nearby to buy some snacks. I’ve tried most of the Canadian candy bars so I picked some of my favorites, such as Coffee Crisp and Mr. Big. Anas also bought a travel size liquid soap container at a store on our walk back.
 
-I feel like I can stay a couple of more days in Montreal, but I might never leave. Montreal is ranked as the number one bicycle-friendly city in North America according to the[Copenhagenize Index](https://copenhagenizeindex.eu). It’s ranked in the top 20 cities in the world for cycling. I feel like I’ve only scratched the surface of this city.
+I feel like I can stay a couple of more days in Montreal, but I might never leave. Montreal is ranked as the number one bicycle-friendly city in North America according to the [Copenhagenize Index](https://copenhagenizeindex.eu). It’s ranked in the top 20 cities in the world for cycling. I feel like I’ve only scratched the surface of this city.
 
 Tomorrow, Anas and I will cycle to Berthierville where we will stealth camp since we couldn’t find a Warmshowers host. I might not be able to write tomorrow’s blog post since I might not have internet. We shall see.
 

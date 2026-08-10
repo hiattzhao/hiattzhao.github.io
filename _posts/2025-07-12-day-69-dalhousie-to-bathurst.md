@@ -21,7 +21,7 @@ After settling down and taking a shower, I walked to the KFC, or PFK in French, 
 
 Back in my room, I planned to see what my destinations looked like for the rest of Canada. I will most likely reach Halifax on July 19th or 20th. There are no boats going from Halifax to Europe on findacrew.com at the moment so I’ll have to book a plane ticket soon. Most likely I’ll go to Paris to start my European bike tour.
 
-This morning, I woke up around 5:30. I will leave soon to get some breakfast before riding to Miramichi and staying with a host from[couchers.org](https://couchers.org).
+This morning, I woke up around 5:30. I will leave soon to get some breakfast before riding to Miramichi and staying with a host from [couchers.org](https://couchers.org).
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjr8h0N1wTCOxJ_wE9pGH8biKwzeUGSRmbON1AxRPzP119KQ4CEo7HnmEryyYSgbggJy1CwoHs8LIwclDKKPmL-okN_jhkV7hSb7LDs1AzmV6-V7te4T78UgCsJKzaUfarj3ly2tURIRkzkwtDFgbxYJEv1YRWWjm1Vi22IzjTEkXNgKsP_Uuoi3IZ_2cg/w640-h480/PXL_20250711_122653091.jpg)
 *Along the coast of New Brunswick*

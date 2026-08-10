@@ -4,6 +4,10 @@ layout: post
 date: 2021-04-20
 ---
 
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgIE1yRzJxuvmO7vZQXX_Agznv6hQr4aqEve0waNWpbwZs8_ml-cVopPGTwv8nAUHAdFOj2WUGjI9ban0QJVwcfM4Aj4y2_4mivp9aIf6Nw90-jstWpL4RR_B9XfWTUVEsuz4HktYGGf94/w480-h640/investing.jpg)
+*"Diversification - Investing" by 401(K) 2013 is licensed under CC BY-SA 2.0*
+
 Recently, I checked my aggregate returns on my investment accounts. And it's 25.1% since I started investing in late 2016. It's actually not as good as I thought since that's about a 6-7% return compounded annually, But most of my deposits were made in late 2020 and early 2021 so I guess that figure makes sense.
 
 I want to take this time to explain my investing strategy and what I did to achieve a 25.1% return in a little over 4 years.

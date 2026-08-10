@@ -48,7 +48,7 @@ The last thing I did before heading back to Zak’s was to ride the gondola to M
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhrDJ-TjukZTUt3hf67CtnBrudh1ePJNgdDMWOznZf9VAxFaGkc8rjXimx3chJefa2uydg_aJgWzUhbptgXZlfM7wEaxZ-QgrECiur7148nhkYz49Ywox_fnB6hKTpkBE1BhhGfllv3tto/w640-h480/%255BUNSET%255D)
 *Gondola ride back into Telluride*
 
-I took the gondola back to Telluride and rode the cruiser back to Zak’s. Zak wasn’t home yet so I decided to walk around the neighborhood. Soon enough, Zak rode in with the new cyclist, Sarah. Sarah is an army sargent who is riding for PTSD (post traumatic stress disorder). Her goal is to start a nonprofit when she finishes her bike tour. She also has a website, it's at[www.aviciouscycle.org](http://aviciouscycle.org).  
+I took the gondola back to Telluride and rode the cruiser back to Zak’s. Zak wasn’t home yet so I decided to walk around the neighborhood. Soon enough, Zak rode in with the new cyclist, Sarah. Sarah is an army sargent who is riding for PTSD (post traumatic stress disorder). Her goal is to start a nonprofit when she finishes her bike tour. She also has a website, it's at [www.aviciouscycle.org](http://aviciouscycle.org).  
   
 All three of us clicked right away. Sarah is mentally and physically strong. She rode up Hayters Gap in Virginia without stopping, whereas I had walked the whole way.  
   

@@ -4,6 +4,9 @@ layout: post
 date: 2021-07-05
 ---
 
+
+It was mid-May when I received an email from Crispin, my old riding partner from my 2018 TransAmerica cycling trip. He invited me to cycle the GAP (Great Allegheny Passage) trail.
+
 I had heard of the GAP trail before. It's a bike trail that connects with the C&O (Chesapeake and Ohio) towpath at Cumberland, MD. While the C&O trail runs from Cumberland to DC for 185 miles, the GAP trail goes the other direction to Pittsburgh, PA, for 150 miles.
 
 I've been itching to ride a multi-day bike ride ever since I bought my bike in the fall of 2019. It's a used 2019 Trek Checkpoint ALR4 in matte black. It's the first bike I ever bought with my own money. My previous bike was a 1999 Cannondale M400 that I received as a Christmas gift and I rode it across the US and later sold for $350. I didn't realize how expensive bicycles are these days and how much bike technologies have evolved in the last twenty years. The Trek Checkpoint is a step up in price and tech compared to my old Cannondale. And I've always wanted to test this bike on a bike tour.
@@ -12,46 +15,54 @@ After some discussion about the timing of the bike tour, Crispin and I decided t
 
 On Tuesday, June 15, I drove from King of Prussia to Cumberland, MD, in about four hours. I had lunch at Cafe Mark in the historical downtown. It's a pedestrian only street, which reminded me of Charlottesville, VA. Cafe Mark made the best omelets and I can tell the chef is very meticulous by the way the eggs were folded.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhsFXfHhuHD97E1ctA7PHmfquFHQu6HOJwCQSc17S80Nn7qCG8lnpSL51R-21sSxlbHMZ7mOqiPiCEzxJ0YBM6sr1p0noCDcDosoAb1CJh-vSHpO43ZIzJsi2SAhUlJDNJaFDZXlT5aK4g/s2016/2021GAPTrail007%25400.5x.jpg)
-_Historical District in Cumberland_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhsFXfHhuHD97E1ctA7PHmfquFHQu6HOJwCQSc17S80Nn7qCG8lnpSL51R-21sSxlbHMZ7mOqiPiCEzxJ0YBM6sr1p0noCDcDosoAb1CJh-vSHpO43ZIzJsi2SAhUlJDNJaFDZXlT5aK4g/w400-h300/2021GAPTrail007%25400.5x.jpg)
+*Historical District in Cumberland*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEirDlG5lxh1xiSDOnkERnrJnqjBinSOoIVe4zLTKHluboy5Si_z8-X_lSBaw-brDDxtm9I7OPwD1TAg9T9hbBod2YUdrlhSNaWgrfRdzHVaqAyOljV3xT4yNv9T2FVXgedM6irDIVQeeWY/s2016/2021GAPTrail008%25400.5x.jpg)
-_Magnificent building in Cumberland_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEirDlG5lxh1xiSDOnkERnrJnqjBinSOoIVe4zLTKHluboy5Si_z8-X_lSBaw-brDDxtm9I7OPwD1TAg9T9hbBod2YUdrlhSNaWgrfRdzHVaqAyOljV3xT4yNv9T2FVXgedM6irDIVQeeWY/w400-h300/2021GAPTrail008%25400.5x.jpg)
+*Magnificent building in Cumberland*
 
 I walked around the town for about 20 minutes since it's not big, then checked into the Ramada Inn. The hotel wasn’t that good. Water was off for about three hours and the hotel room is not in good shape. I decided to explore the starting point of the GAP trail, which is near the visitor center, bought a caramel malt at Queen City Creamery, and waited for Crispin in the hotel. He arrived around 4 pm, driving from Greensboro, NC.
 
 It was great to see Crispin again! After bringing his bike to the room and settling in, Crispin and I ate an Italian dinner at Baltimore Street Grill in the historical downtown. We walked to the GAP trailhead before returning to the hotel to take showers and sleep.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEirfEoPas-wDt1NGGD30Rp3x0NhBPI1Z-wkr4wOgnv_HDNuZTTBxT882f9c4WgTfF4CzCi6zQErwIcHkeK1eEfLUxhDcpS5wR14bBcHgE15tb75dpgQucMUrZZYfmxhC6Vezbv6OSO4bIg/s2016/2021GAPTrail022%25400.5x.jpg)
-_Our first meal_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEirfEoPas-wDt1NGGD30Rp3x0NhBPI1Z-wkr4wOgnv_HDNuZTTBxT882f9c4WgTfF4CzCi6zQErwIcHkeK1eEfLUxhDcpS5wR14bBcHgE15tb75dpgQucMUrZZYfmxhC6Vezbv6OSO4bIg/w300-h400/2021GAPTrail022%25400.5x.jpg)
+*Our first meal*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhQ6XBpEm1606lcSSWiDmbYRobd_W26cbJl7rsjG_KjFCyn63pdMCt7z0GuDE9GkMgoQk7jblp9aZRmhDxpYUnwCRkXCQAdyE0ddL5ukb4G-VUL0izRS80GAhUBovk6ru7ajpD76XqmVNE/s2016/2021GAPTrail027%25400.5x.jpg)
-_Downtown Cumberland_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhQ6XBpEm1606lcSSWiDmbYRobd_W26cbJl7rsjG_KjFCyn63pdMCt7z0GuDE9GkMgoQk7jblp9aZRmhDxpYUnwCRkXCQAdyE0ddL5ukb4G-VUL0izRS80GAhUBovk6ru7ajpD76XqmVNE/w400-h300/2021GAPTrail027%25400.5x.jpg)
+*Downtown Cumberland*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgSPbY7XiraNAO-uz6eV-98L-g8chrC7EeO-lSXmEiEX-N41CuKFTXFvCANtZcsOznD7eln1EAT84AzGURKh7RYwwROUdBWalcTKgh03PXFRBqjNYG4tOJ837I9iotr9A22j_BesSkcYA8/s2016/2021GAPTrail028%25400.5x.jpg)
-_The canal in Cumberland_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgSPbY7XiraNAO-uz6eV-98L-g8chrC7EeO-lSXmEiEX-N41CuKFTXFvCANtZcsOznD7eln1EAT84AzGURKh7RYwwROUdBWalcTKgh03PXFRBqjNYG4tOJ837I9iotr9A22j_BesSkcYA8/w400-h300/2021GAPTrail028%25400.5x.jpg)
+*The canal in Cumberland*
 
+  
 The next morning, we grabbed our bagged breakfast from the hotel that consisted of two granola bars, a banana, a bottle of water, and a few other things. After we got everything ready we checked out of the hotel, re-parked our cars in the back lot of the hotel, ate a delicious breakfast at Cafe Mark, and started our trip at the GAP trailhead around 8 AM.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi2Y80xQ00ZpdiwagU15bFic8sXdZ_rh7yrj2g3-KKHiRNNb4h7BAjhFirIfhmybDr8E0-5fhyNgIm9xl6g277N_XGZcO-45x9IWEP1fhueSelQalB13RtCMvrcO3pbech23l2XUj5cLOU/s1632/2021GAPTrail035%25400.5x.jpg)
-_The mandatory first trail photo_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi2Y80xQ00ZpdiwagU15bFic8sXdZ_rh7yrj2g3-KKHiRNNb4h7BAjhFirIfhmybDr8E0-5fhyNgIm9xl6g277N_XGZcO-45x9IWEP1fhueSelQalB13RtCMvrcO3pbech23l2XUj5cLOU/w400-h300/2021GAPTrail035%25400.5x.jpg)
+*The mandatory first trail photo*
 
 We rode uphill for about 22 miles. It wasn’t really uphill like I had imagined. It was a gradual incline of 2 degrees. For the first 16 miles we rode parallel to railroad tracks, went around a fallen tree and through some tunnels.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEirto0P1gH2JW_zM5odZAmbQqb7hMJNPa_7VSzgjLRneeKhzj0sB8pWmONII_rmQu0KGnUaTcO6u3IJ9z7bRjEU7v0psklhOLiDfvpU2ortAVl70fpXEgddOg53iR0biSjZ_KXNKDqwXjQ/s2016/2021GAPTrail036%25400.5x.jpg)
-_Along the railroad_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEirto0P1gH2JW_zM5odZAmbQqb7hMJNPa_7VSzgjLRneeKhzj0sB8pWmONII_rmQu0KGnUaTcO6u3IJ9z7bRjEU7v0psklhOLiDfvpU2ortAVl70fpXEgddOg53iR0biSjZ_KXNKDqwXjQ/w400-h300/2021GAPTrail036%25400.5x.jpg)
+*Along the railroad*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgvT18QVLtQRsBw5b61l2EeWO0eVLA9BA4hCZ6NBc6V_1fSMb0I6YY3siTdXPIlMv22XGtSPqCypWInYhzlXRIrxNoZY8_C0IURRXkNTgjK8MCSIP8NSSEiQodpXRE35ZgKoi9jx40JrpI/s2016/2021GAPTrail037%25400.5x.jpg)
-_Obstacles_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgvT18QVLtQRsBw5b61l2EeWO0eVLA9BA4hCZ6NBc6V_1fSMb0I6YY3siTdXPIlMv22XGtSPqCypWInYhzlXRIrxNoZY8_C0IURRXkNTgjK8MCSIP8NSSEiQodpXRE35ZgKoi9jx40JrpI/w400-h300/2021GAPTrail037%25400.5x.jpg)
+*Obstacles*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgo1f2PhKH3QTwxhfI6xv_uCuqxV2Y496VuQgVAE5jdBRAx80OngDIxa3M8r80V7nHSCn4gfAUGa6nF3AgQaDiPfY5bCjnrZTTd-_MX8qs6uN7mSr1Jy13bRsLRjdJTQfSwZZwSx2UsKzE/s2016/2021GAPTrail041%25400.5x.jpg)
-_Markers_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgo1f2PhKH3QTwxhfI6xv_uCuqxV2Y496VuQgVAE5jdBRAx80OngDIxa3M8r80V7nHSCn4gfAUGa6nF3AgQaDiPfY5bCjnrZTTd-_MX8qs6uN7mSr1Jy13bRsLRjdJTQfSwZZwSx2UsKzE/w400-h300/2021GAPTrail041%25400.5x.jpg)
+*Markers*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh6IZHAyAGVV4mxRMYiWIV3SK5vGbIBELvqURsWeJem9rNsTVhOrl1_xpsF7ce4ovg9zcB45AWEQztbTMcPO8tXmq85LwGIY3c9tU135UnnWqlo5rTBPY_VTVA0daoxN-3DTHwkzks7XDk/s1949/2021GAPTrail043%25400.5x.jpg)
-_One of several tunnels_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh6IZHAyAGVV4mxRMYiWIV3SK5vGbIBELvqURsWeJem9rNsTVhOrl1_xpsF7ce4ovg9zcB45AWEQztbTMcPO8tXmq85LwGIY3c9tU135UnnWqlo5rTBPY_VTVA0daoxN-3DTHwkzks7XDk/w400-h300/2021GAPTrail043%25400.5x.jpg)
+*One of several tunnels*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZZ5RBvHCNzcrNbCTzpgmaJNCYwREI1_lU2RmBy7EH3gNHkNwYqG3WEzJMNbQ3x9hngJo7H34gZfxl59wRpJ-i-BnKq_-TbxL_MejgutCDrT_V_MCoydbPOhYOPidGBLeZhHF_f0kdG2c/s2016/2021GAPTrail049%25400.5x.jpg)
-_Roadside attraction_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZZ5RBvHCNzcrNbCTzpgmaJNCYwREI1_lU2RmBy7EH3gNHkNwYqG3WEzJMNbQ3x9hngJo7H34gZfxl59wRpJ-i-BnKq_-TbxL_MejgutCDrT_V_MCoydbPOhYOPidGBLeZhHF_f0kdG2c/w400-h300/2021GAPTrail049%25400.5x.jpg)
+*Roadside attraction*
 
 We heard the loud humming sound of cicadas during our entire ride. The trail was full of them, either dead or alive on the road.
 
@@ -59,123 +70,142 @@ Crispin named his bike Rocinante during our 2018 bike ride, after Don Quixote's 
 
 At a rest stop, we saw some tourists pedaling on rail cars on the train tracks. As it turned out, it's a new business that an entrepreneur started about a month ago where people can pay to cycle down the hill from Frostburg on the train tracks when the train isn't running. What an interesting idea and invention!
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgymV478nBllsXd-RG3gbF3bD3_dVjFFeEL8hlb7B2NLvmjT3P9QZ5GM2qT_X9dG1PoXSuwC-rQtYt7JMBBKzRuqsfMx4a9q_1TC-VrGX_LY5LF13oXgmXUDfJcF6gtgwc1YFovOyDVMtE/s1826/2021GAPTrail050%25400.5x.jpg)
-_Cycling rail cars_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgymV478nBllsXd-RG3gbF3bD3_dVjFFeEL8hlb7B2NLvmjT3P9QZ5GM2qT_X9dG1PoXSuwC-rQtYt7JMBBKzRuqsfMx4a9q_1TC-VrGX_LY5LF13oXgmXUDfJcF6gtgwc1YFovOyDVMtE/w400-h300/2021GAPTrail050%25400.5x.jpg)
+*Cycling rail cars*
 
 At Frostburg, we decided to take a break and walked up a steep hill to an inn and restaurant. Crispin is the outgoing type and chatted with the owner of the inn and later with the people working the rail cars.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLbFIDYlf3XVUEMlr9BGqAlxx32cWfeF2N9WiOfDOBy8PZBIk8t5jUVV_acPFQ9M4GVm53V5g5V2eDJ9gmcjg8LYJ_3RrS1ln78PUuC73NNzzD-_5iydl87pCosf9sb70YD8LRBWY88go/s1919/2021GAPTrail058%25400.5x.jpg)
-_Rail station at Frostburg_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLbFIDYlf3XVUEMlr9BGqAlxx32cWfeF2N9WiOfDOBy8PZBIk8t5jUVV_acPFQ9M4GVm53V5g5V2eDJ9gmcjg8LYJ_3RrS1ln78PUuC73NNzzD-_5iydl87pCosf9sb70YD8LRBWY88go/w400-h300/2021GAPTrail058%25400.5x.jpg)
+*Rail station at Frostburg*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi_bXCX3icFJZzu0d_hSKkxv841bnOWBUIL0gP6cj3iM5CljqRQ3Jr1hRSTFPfM4t4U_F2eAcqLOsiniMXKGwbQKrln9b46gXH2-29CNQxCAMPfM_fNTJ-LjIeFs_ABXWnGPNzEYDu6SI0/s2016/2021GAPTrail059%25400.5x.jpg)
-_Crispin taking a rest after lunch_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi_bXCX3icFJZzu0d_hSKkxv841bnOWBUIL0gP6cj3iM5CljqRQ3Jr1hRSTFPfM4t4U_F2eAcqLOsiniMXKGwbQKrln9b46gXH2-29CNQxCAMPfM_fNTJ-LjIeFs_ABXWnGPNzEYDu6SI0/w400-h300/2021GAPTrail059%25400.5x.jpg)
+*Crispin taking a rest after lunch*
 
 After our burgers and hotdogs lunch, we cycled uphill a bit more, rested at the lookout near the peak where Crispin saw his enemy, the windmills. We then went through the 3294 feet long Big Savage Tunnel and arrived at the Eastern Continental Divide, which is the highest point on the GAP trail at 2393 feet. After taking some photos and chatting with cyclists we started our downhill ride.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgcSpOKUMIQahd6ncNZFhJTcou5ETfCGUf-9Wp9nDFwqJs43fx9ni8etbLCUfOHBRUDSicuMPXol_0hHvZGVuTQpZNoD5n-lWe6fCPA2s7jV7s_8ETx9pSVwEMXle6O67aJGloIhBSUfxk/s2016/2021GAPTrail066%25400.5x.jpg)
-_Crossing the Mason Dixon line_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgcSpOKUMIQahd6ncNZFhJTcou5ETfCGUf-9Wp9nDFwqJs43fx9ni8etbLCUfOHBRUDSicuMPXol_0hHvZGVuTQpZNoD5n-lWe6fCPA2s7jV7s_8ETx9pSVwEMXle6O67aJGloIhBSUfxk/w300-h400/2021GAPTrail066%25400.5x.jpg)
+*Crossing the Mason Dixon line*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgxeub1TdFqfbsp20_PnXrbvazPgb8dvIylnm3HW6aPHitzuAPgX7JB3UI7bR0ZDZKFAitJtfmt-hGJDKJcWBGDKh57BPn1dc3oB8uTy1w2tPQrVbBik1vxaEuk1cyUGjA8vxQqYuEP2lA/s2016/2021GAPTrail067%25400.5x.jpg)
-_Top of the overlook_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgxeub1TdFqfbsp20_PnXrbvazPgb8dvIylnm3HW6aPHitzuAPgX7JB3UI7bR0ZDZKFAitJtfmt-hGJDKJcWBGDKh57BPn1dc3oB8uTy1w2tPQrVbBik1vxaEuk1cyUGjA8vxQqYuEP2lA/w400-h300/2021GAPTrail067%25400.5x.jpg)
+*Top of the overlook*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBjngNIzGKuyp-YSgA6tXRhttkFeko79s3XhFdS243pOyzJ5Rxf1svfPV3uM6BXoYOUjMrD8JurvkVRdVjDj5TmpH_hKcMwW1X1eBUUpDdBm7MypesIWk1B0jjE22QBAq7C7UYal7HQwE/s2016/2021GAPTrail069%25400.5x.jpg)
-_"Dragons"_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBjngNIzGKuyp-YSgA6tXRhttkFeko79s3XhFdS243pOyzJ5Rxf1svfPV3uM6BXoYOUjMrD8JurvkVRdVjDj5TmpH_hKcMwW1X1eBUUpDdBm7MypesIWk1B0jjE22QBAq7C7UYal7HQwE/w400-h300/2021GAPTrail069%25400.5x.jpg)
+*"Dragons"*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj2ZQ6LiwmMSf4X6LHOxC9XuleGr0u_bTx1H6GVhbmbYGsNbdIEO06pbS79usQ9LJi9xqcRb4ALvKULN0j45nwLvISQBSxFijuZ2JJ2IzYyufBGEeAsC9IKo7qftodQHnh5B9zo4tEVvfE/s2016/2021GAPTrail072%25400.5x.jpg)
-_Big Savage Tunnel_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj2ZQ6LiwmMSf4X6LHOxC9XuleGr0u_bTx1H6GVhbmbYGsNbdIEO06pbS79usQ9LJi9xqcRb4ALvKULN0j45nwLvISQBSxFijuZ2JJ2IzYyufBGEeAsC9IKo7qftodQHnh5B9zo4tEVvfE/w300-h400/2021GAPTrail072%25400.5x.jpg)
+*Big Savage Tunnel*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-UtUGiGg2JPEaxz8aQg4djT9fKVKKb1jCtp5AWdHY8AHiJTXsL9sr65Mtpzi-1FwScuD36rIwzEG3rWru0ofYuOTq5AghkrunkozcMaM5ryoXHAzaghiPUYcdiOU2wlObcHRqKYuzyis/s2016/2021GAPTrail074%25400.5x.jpg)
-_Eastern Continental Divide_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-UtUGiGg2JPEaxz8aQg4djT9fKVKKb1jCtp5AWdHY8AHiJTXsL9sr65Mtpzi-1FwScuD36rIwzEG3rWru0ofYuOTq5AghkrunkozcMaM5ryoXHAzaghiPUYcdiOU2wlObcHRqKYuzyis/w400-h300/2021GAPTrail074%25400.5x.jpg)
+*Eastern Continental Divide*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEheGmfIzWoYFa5LxICgEnvY6xapW-n8c8RoHQ9hisV0ZfuAW8emHWCK7hB61ChW_MclB0Q2Z_dlONjK_Ts0hkG1X0r33J0nPfgnB49ShzbD4TkckG7yrwfFuNn_5ApNsJ32ebo9oZAgyBQ/s1678/2021GAPTrail079%25400.5x.jpg)
-_We are here!_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEheGmfIzWoYFa5LxICgEnvY6xapW-n8c8RoHQ9hisV0ZfuAW8emHWCK7hB61ChW_MclB0Q2Z_dlONjK_Ts0hkG1X0r33J0nPfgnB49ShzbD4TkckG7yrwfFuNn_5ApNsJ32ebo9oZAgyBQ/w400-h300/2021GAPTrail079%25400.5x.jpg)
+*We are here!*
 
 There were no cicadas anymore after this point for some reason. My guess is that the continental divide separates the landscape and the cicadas aren't able to get to the other side of the mountain.
 
 The downhill was flatter and we made it to Meyersdale in the afternoon. After some searching, Crispin found the Morgan Tool Company hostel, which is in a converted old morgue. For dinner, we had pizza at Fox’s Pizza Den.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjanUgZ-81K_a1-gcxwkv3CSpR-J-AziRKLuEHWBXB7cbVfn8rtfeutbEABcc2Sb-9wWPtEYTuHUZHxJoQNEmJkBxq6BsqcIc-kQ0h5zIhwKiwpgU0dEB-xDP5Ru4KtC8Pp_iAoQDhocb8/s2016/2021GAPTrail084%25400.5x.jpg)
-_Pizza for dinner_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjanUgZ-81K_a1-gcxwkv3CSpR-J-AziRKLuEHWBXB7cbVfn8rtfeutbEABcc2Sb-9wWPtEYTuHUZHxJoQNEmJkBxq6BsqcIc-kQ0h5zIhwKiwpgU0dEB-xDP5Ru4KtC8Pp_iAoQDhocb8/w300-h400/2021GAPTrail084%25400.5x.jpg)
+*Pizza for dinner*
 
 The downtown wasn’t that big and only took about 15 minutes to walk around. We spent the night in the hostel while the temperature dropped to the low 40s. I woke up around 2:30 AM. Crispin was up at 4 AM. For breakfast, we went across the street to GI Dayroom Coffee Shop and had an early breakfast before heading out around 7 AM.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjV434JDxXYzSffZgkzXZw6lfrY3vXg5zax6H2APjI4DUrWeJfvR1W9-XtmqtNAQRdsM_qAhL7DJOBdQr-vxC-j3v4HGbIWrSNdBKAbkwVrSUL0HKqO-b76r3C58O_ObXySLy736FKbVjY/s1947/2021GAPTrail087%25400.5x.jpg)
-_Bridge in the mist_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjV434JDxXYzSffZgkzXZw6lfrY3vXg5zax6H2APjI4DUrWeJfvR1W9-XtmqtNAQRdsM_qAhL7DJOBdQr-vxC-j3v4HGbIWrSNdBKAbkwVrSUL0HKqO-b76r3C58O_ObXySLy736FKbVjY/w400-h300/2021GAPTrail087%25400.5x.jpg)
+*Bridge in the mist*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhfwo0rX14TWfisLtLvr8fTmvGiEhguN6H1wagA5IVgJWrsSyOsSH7ZLezPa7TUCMJw-hdqc7oUGpmwUff70DmhduhuFNp0f08oluKWNQ70bSDJ2i9XpMYUW5ku3UOJSLA3og8wnXsFF6M/s2016/2021GAPTrail090%25400.5x.jpg)
-_Misty morning ride_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhfwo0rX14TWfisLtLvr8fTmvGiEhguN6H1wagA5IVgJWrsSyOsSH7ZLezPa7TUCMJw-hdqc7oUGpmwUff70DmhduhuFNp0f08oluKWNQ70bSDJ2i9XpMYUW5ku3UOJSLA3og8wnXsFF6M/w400-h300/2021GAPTrail090%25400.5x.jpg)
+*Misty morning ride*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-XctJMIrtQC2d_yWyHrNw2snA2m8aKOHEgwZRMyFYlEAqSfnV2DxKC-VOLziY1wmuCzxwqjSZOE-pK-02ZjUh2UTObOepk18d2CRxPTaRzCqFcXNQEml1BOHqigclMIMrW0mT9Mw2xMA/s2016/2021GAPTrail092%25400.5x.jpg)
-_Riding under the shade_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj-XctJMIrtQC2d_yWyHrNw2snA2m8aKOHEgwZRMyFYlEAqSfnV2DxKC-VOLziY1wmuCzxwqjSZOE-pK-02ZjUh2UTObOepk18d2CRxPTaRzCqFcXNQEml1BOHqigclMIMrW0mT9Mw2xMA/w400-h300/2021GAPTrail092%25400.5x.jpg)
+*Riding under the shade*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgb6XMjreMBux7YYORkcvlmESvtAZp3lw3welwpJdUrS2AAJK4K108KbzE_tr_gXWyOX13sXUjiszp10O64N0xbB1cEhB2oQ52kW_F9jvUUfyIiH3iO0LiI8J7xD_9yph5usq7h0h6yEr4/s2016/2021GAPTrail093%25400.5x.jpg)
-_Crossing the river_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgb6XMjreMBux7YYORkcvlmESvtAZp3lw3welwpJdUrS2AAJK4K108KbzE_tr_gXWyOX13sXUjiszp10O64N0xbB1cEhB2oQ52kW_F9jvUUfyIiH3iO0LiI8J7xD_9yph5usq7h0h6yEr4/w400-h300/2021GAPTrail093%25400.5x.jpg)
+*Crossing the river*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgbuEfSJezMae0EiSJZODDQnAmtNYyrOc4QOGjkY30gEoexyCJ1e-SyWbmo_oSIbNy92VCwSP_bAzLrLHxwxxFdiatn0lhVmHf6yrV1gsFaWTAxRJ0nvEW8BPPW98IjtmRJ_teNunoZndU/s2016/2021GAPTrail099%25400.5x.jpg)
-_Bicycle portrait_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgbuEfSJezMae0EiSJZODDQnAmtNYyrOc4QOGjkY30gEoexyCJ1e-SyWbmo_oSIbNy92VCwSP_bAzLrLHxwxxFdiatn0lhVmHf6yrV1gsFaWTAxRJ0nvEW8BPPW98IjtmRJ_teNunoZndU/w400-h300/2021GAPTrail099%25400.5x.jpg)
+*Bicycle portrait*
 
 That second day, we rode over 60 miles. We had lunch at the River's Edge Cafe in Confluence. We had the best seat in the restaurant overlooking the river. The meal was really good, too. I had a delicious catfish sandwich. After chilling in the pavilion in the town center for a post meal break, we headed out again.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjRwu_gDOWeJ-NeS77u2W7rhICZp714wY94Lmy8Au-Jsb5FYPBLu1bxq23w2Z2y6vTywXcz7KOP1XGBiz-1-FDQD-86t1R0XUSKZ86dxc9D98_bC1RCYCYCYzGPLyRO3rAQrX4Af3VszK4/s2016/2021GAPTrail105%25400.5x.jpg)
-_Best seat in the house!_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjRwu_gDOWeJ-NeS77u2W7rhICZp714wY94Lmy8Au-Jsb5FYPBLu1bxq23w2Z2y6vTywXcz7KOP1XGBiz-1-FDQD-86t1R0XUSKZ86dxc9D98_bC1RCYCYCYzGPLyRO3rAQrX4Af3VszK4/w400-h300/2021GAPTrail105%25400.5x.jpg)
+*Best seat in the house!*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjapFil3Dcvp8oVGAQP42f9SQF7O-NPrZB18O1uY95THtwqiPBaKJNVrc_rC_o07SA6jAOIkNAszPYJlq3xc8eiD6KJXtsrEkIfHwjAke-EZm1lCvSCDEAIaSb5knlYfdbMqwJ2L6TQiAs/s2016/2021GAPTrail113%25400.5x.jpg)
-_"Turkey's Foot" - where three rivers meet_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjapFil3Dcvp8oVGAQP42f9SQF7O-NPrZB18O1uY95THtwqiPBaKJNVrc_rC_o07SA6jAOIkNAszPYJlq3xc8eiD6KJXtsrEkIfHwjAke-EZm1lCvSCDEAIaSb5knlYfdbMqwJ2L6TQiAs/w400-h300/2021GAPTrail113%25400.5x.jpg)
+*"Turkey's Foot" - where three rivers meet*
 
 In the afternoon, we had ice cream at Ohiopyle and talked to a guy who worked on satellites. He seemed very smart and was interesting to talk to. Crispin and I didn't stay too long in Ohiopyle since it was full of people and seemed touristy.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBXGSxK0t2Ibq1Ori0UxzM-veR1vLy04D-Tn9_HxdZ_xF-mPmep-DuEexZtfYAwB2E9OpFECRJTlPUSYqy4ifBSI7f7gG5k9FTacPoMCp1VkvlIZq-thMnn1XEMnj8uRoHcm5af0T9q5U/s2016/2021GAPTrail114%25400.5x.jpg)
-_Obligatory ice cream photo_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBXGSxK0t2Ibq1Ori0UxzM-veR1vLy04D-Tn9_HxdZ_xF-mPmep-DuEexZtfYAwB2E9OpFECRJTlPUSYqy4ifBSI7f7gG5k9FTacPoMCp1VkvlIZq-thMnn1XEMnj8uRoHcm5af0T9q5U/w300-h400/2021GAPTrail114%25400.5x.jpg)
+*Obligatory ice cream photo*
 
 Around 5 PM, we arrived at Connellsville. Crispin went to Bikes Unlimited bike shop to adjust his derailleur, but the mechanic didn't do a good job. We had dinner at Kickstand Kitchen where I enjoyed a pulled pork sandwich.
 
 After three more miles, we arrived at the KOA campground in Adelaide. We checked in, set up camp, went for a short swim in the pool, took a shower, and slept next to a troop of boy scouts.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg5d5MoAuqel-Ufw7TZhjRsBI4-x0keLu_GOeMrGAj4fELwHuWOFkjakjK6B0EZZ8MOxXg9K4CTIePcUdfe_D-s4uH9Dwzy86mimef17DRfzhbV1CwDfgERYiSBcYWIBxYcs2Cve49rm8w/s2016/2021GAPTrail121%25400.5x.jpg)
-_Setting up camp_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg5d5MoAuqel-Ufw7TZhjRsBI4-x0keLu_GOeMrGAj4fELwHuWOFkjakjK6B0EZZ8MOxXg9K4CTIePcUdfe_D-s4uH9Dwzy86mimef17DRfzhbV1CwDfgERYiSBcYWIBxYcs2Cve49rm8w/w400-h300/2021GAPTrail121%25400.5x.jpg)
+*Setting up camp*
 
 I was woken up by the birds chirping. It must have been around 5 AM. Our tents were wet from the dew. The outside of my sleeping bag was also wet since I didn't put a rain cover on my tent.
 
 I made some ramen for us, something I normally don't eat for breakfast. But then again, this isn't home and I can eat whatever I want whenever I want. So ramen it is! I also noticed that I brought too much snacks for the road. I planned to eat more snacks during our rest stops.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg2XayhBPUMHwaqf8XuLNGZo5N43yOg6PYSlOXZPz1VHf6MhrSHO5c-643z1baB7mtGGtnaQneNLcGCHYWkCWbzzqScpIhVNpPsbvG8oOFVe-MZNaItWExSkYgknWYtklGAfIhnAg25LEg/s2016/2021GAPTrail122%25400.5x.jpg)
-_Ramen for breakfast!_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg2XayhBPUMHwaqf8XuLNGZo5N43yOg6PYSlOXZPz1VHf6MhrSHO5c-643z1baB7mtGGtnaQneNLcGCHYWkCWbzzqScpIhVNpPsbvG8oOFVe-MZNaItWExSkYgknWYtklGAfIhnAg25LEg/w400-h300/2021GAPTrail122%25400.5x.jpg)
+*Ramen for breakfast!*
 
 After packing up our camp, we rode about 18 miles before getting brunch at Gary's Chuck Wagon in downtown West Newton. There is also a bakery next to the restaurant and the locals praised about it. I offered to pay Crispin to get dessert after our breakfast only if he finishes everything on his plate. He ended up not finishing his meal and thus no dessert for him.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuiNFHDFhJa_6-DtSqUPewblLqoyh7zRNdkkHNGFBAfGz5TNBQTmPFDegbTuqul6qhnRT0gOX7gr-Rtq_bPSnVVDOABxbj_fXH8qtrlYqR08tLtOoAvNV3ubEyxQNdTy7P_zru3OSMfV4/s2016/2021GAPTrail124%25400.5x.jpg)
-_100 miles!_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuiNFHDFhJa_6-DtSqUPewblLqoyh7zRNdkkHNGFBAfGz5TNBQTmPFDegbTuqul6qhnRT0gOX7gr-Rtq_bPSnVVDOABxbj_fXH8qtrlYqR08tLtOoAvNV3ubEyxQNdTy7P_zru3OSMfV4/w300-h400/2021GAPTrail124%25400.5x.jpg)
+*100 miles!*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDFE8CUbxwUktgQ9Kav11TA25r0F7mKr4mV4-9Px57OaE8M9F8y948er57zg2myopyVkGqvIgbqZXAGLlr2_tCZMkRcsz3WZyiGu0KJb0KIPSk27EyUSG1cAJCfy-5n-WVI2XNo0XmOKU/s2016/2021GAPTrail125%25400.5x.jpg)
-_Rest stop at Whitsett_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhDFE8CUbxwUktgQ9Kav11TA25r0F7mKr4mV4-9Px57OaE8M9F8y948er57zg2myopyVkGqvIgbqZXAGLlr2_tCZMkRcsz3WZyiGu0KJb0KIPSk27EyUSG1cAJCfy-5n-WVI2XNo0XmOKU/w400-h300/2021GAPTrail125%25400.5x.jpg)
+*Rest stop at Whitsett*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhF_iOfXc4UTt3QI60iUtGY11IRY2BIQLKCvLgrZdyILel4dWNidVnnze0Rw755Giy8Zwq360wCsGXp96MMzjqlCAFZLBklsM7prZBgvrFJ8SY-5pCH65ftzOK6Xki9ZSeAhB7nD7YH4Bo/s2016/2021GAPTrail126%25400.5x.jpg)
-_Another roadside attraction_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhF_iOfXc4UTt3QI60iUtGY11IRY2BIQLKCvLgrZdyILel4dWNidVnnze0Rw755Giy8Zwq360wCsGXp96MMzjqlCAFZLBklsM7prZBgvrFJ8SY-5pCH65ftzOK6Xki9ZSeAhB7nD7YH4Bo/w400-h300/2021GAPTrail126%25400.5x.jpg)
+*Another roadside attraction*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj2M5dEdheNbi9jBkjCQ6FZExE1z-hYqebRAYjv7pA4SOjImUe1hnVC9ygHGSQp55DPsk8CIuuUG8fmlbrhOTqJc48v5BMfyGFpQ9EsbbrvAeBJSUf1jd3UmStvCiT8ww8Mam9F1alKtS8/s2016/2021GAPTrail129%25400.5x.jpg)
-_Sulfuric rocks_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj2M5dEdheNbi9jBkjCQ6FZExE1z-hYqebRAYjv7pA4SOjImUe1hnVC9ygHGSQp55DPsk8CIuuUG8fmlbrhOTqJc48v5BMfyGFpQ9EsbbrvAeBJSUf1jd3UmStvCiT8ww8Mam9F1alKtS8/w400-h300/2021GAPTrail129%25400.5x.jpg)
+*Sulfuric rocks*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg4Fu2I90VH3fPPqJCXRmYfYWFUyeZ3K4LO2SSCWLLooRK3qcVEisZb4cC6mFbI9-rADMoiqgBV4TKUZw1zcsLWJLoj8YZIeA7Budw-TmaWhY8NMsdb6XcYtJGJtGw1blwPrdinErItJaM/s2016/2021GAPTrail130%25400.5x.jpg)
-_Dravos Cemetery_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg4Fu2I90VH3fPPqJCXRmYfYWFUyeZ3K4LO2SSCWLLooRK3qcVEisZb4cC6mFbI9-rADMoiqgBV4TKUZw1zcsLWJLoj8YZIeA7Budw-TmaWhY8NMsdb6XcYtJGJtGw1blwPrdinErItJaM/w400-h300/2021GAPTrail130%25400.5x.jpg)
+*Dravos Cemetery*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEieG6cszXAHx1bJ9bJJlp9-mWLsT0fxRWZVDqq-TD9RHG1YHE6G8EQP2z_95aSAI1-SMaqGzTQFHcSlg39zy3PcRNixAR7CLobSpWH3r-T8lU_J-Vw_3ovnuGg_dBYVtgm9ka-KidRuZTk/s2016/2021GAPTrail131%25400.5x.jpg)
-_More obstacles_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEieG6cszXAHx1bJ9bJJlp9-mWLsT0fxRWZVDqq-TD9RHG1YHE6G8EQP2z_95aSAI1-SMaqGzTQFHcSlg39zy3PcRNixAR7CLobSpWH3r-T8lU_J-Vw_3ovnuGg_dBYVtgm9ka-KidRuZTk/w400-h300/2021GAPTrail131%25400.5x.jpg)
+*More obstacles*
 
 The weather forecast indicated rain the afternoon. We stopped by a bar in Boston where one local told us it'll rain in 51 minutes. Another local gave us more advice on what we should do. The Fox News channel on the TV didn't sit well with either of us and we realized it's better to get on the road and try our luck.
 
 We rode about 60 miles that day and arrived in Pittsburgh at 4:30 PM at Point State Park. We didn't get rained on and had a little trouble following the trail near the end, but we made it!
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh0H0uIgaCBKAuOst9Fdcw7nhWWfs9IjiQyzbj05jpvMS1WDeq5ek7IlE3p-rbvEfYb7ljpWgYJcEqBFoMnUO4yK9DahM4PNx4PF2Jwzuk6OS3CQtcurUlRY9JWFJezdVyVwz3XAA2wjFQ/s2016/2021GAPTrail132%25400.5x.jpg)
-_Pushing coal up the river_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh0H0uIgaCBKAuOst9Fdcw7nhWWfs9IjiQyzbj05jpvMS1WDeq5ek7IlE3p-rbvEfYb7ljpWgYJcEqBFoMnUO4yK9DahM4PNx4PF2Jwzuk6OS3CQtcurUlRY9JWFJezdVyVwz3XAA2wjFQ/w400-h300/2021GAPTrail132%25400.5x.jpg)
+*Pushing coal up the river*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgXE_cneSbpRaz_XxJuE54_MHTrmuIXONxH9zTDi4b_ydXM1FvivY5fGX7tx_bwjkJeW5FoHh-vmKLbUL1SSKo2nQcxI6bs4I_vb1YqDMal6Kqw8U5WIiUDNjW7GmQKRurrC8rXSO6SJQE/s1967/2021GAPTrail137%25400.5x.jpg)
-_Pittsburgh is within sight!_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgXE_cneSbpRaz_XxJuE54_MHTrmuIXONxH9zTDi4b_ydXM1FvivY5fGX7tx_bwjkJeW5FoHh-vmKLbUL1SSKo2nQcxI6bs4I_vb1YqDMal6Kqw8U5WIiUDNjW7GmQKRurrC8rXSO6SJQE/w400-h300/2021GAPTrail137%25400.5x.jpg)
+*Pittsburgh is within sight!*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg4Vf1CGVc8VWE8e5JIqAIcyEzmrvBohj0lyKXRYguZCp6oTp-Jm20uvHYyMerx3xA2BZLSaSs2a2OakZ0KWlB0X-U9kEy2MOSynhjoLAXq1ye9jqiZioxTinVuaGhlwCFTgGSCouA3fqM/s2016/2021GAPTrail138%25400.5x.jpg)
-_City riding_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg4Vf1CGVc8VWE8e5JIqAIcyEzmrvBohj0lyKXRYguZCp6oTp-Jm20uvHYyMerx3xA2BZLSaSs2a2OakZ0KWlB0X-U9kEy2MOSynhjoLAXq1ye9jqiZioxTinVuaGhlwCFTgGSCouA3fqM/w400-h300/2021GAPTrail138%25400.5x.jpg)
+*City riding*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiOxjYu8JWMVBedq1nMgRHRI0P1jOZO3Dbc6Qphyphenhyphen91oAJ84y_eFqsA03qeDPAsmEoXGDt4gsEmhe6_Nq0mWME8NoZ4GMFHEvXZZkm9kIePKaSrNRPI-b6Mqpqn7FvTk4KYLXkP5_H6L840/s2016/2021GAPTrail143%25400.5x.jpg)
-_We made it!_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiOxjYu8JWMVBedq1nMgRHRI0P1jOZO3Dbc6Qphyphenhyphen91oAJ84y_eFqsA03qeDPAsmEoXGDt4gsEmhe6_Nq0mWME8NoZ4GMFHEvXZZkm9kIePKaSrNRPI-b6Mqpqn7FvTk4KYLXkP5_H6L840/w400-h300/2021GAPTrail143%25400.5x.jpg)
+*We made it!*
 
 After taking some photos at the point, it took us two more hours to find the 31 bus station downtown since there was a Juneteenth festival and the bus stop had changed. We arrived at my parents’ house a little before 7 PM.
 
@@ -185,36 +215,43 @@ The next morning, Crispin said his neck hurts and didn't sleep well. We played a
 
 Crispin and I spent three full days at my parent's house. On Saturday, we mainly rested. Sunday was Father’s Day and we went to the Red Tea House, a Chinese restaurant nearby, for lunch. The food was subpar. On Monday, Crispin and I took a walk in the morning to Big Daddy's donut shop in downtown Crafton. He bought some donuts and muffins for us. Later that day, dad drove all of us to Bicycle Heaven on the north side of Pittsburgh, where we walked around the museum and saw some very interesting bikes.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgl91V_WQXJP71e7f0QMcqLT5mlCjjK_M96xZis-8Tdg8oxO6-BQ_rSDJrf7pe7bL4ZdajlSBpeVBpBOKX5JvXX4Q3t0mE2gR5r1Ru_tSK_gUh3iy3g4l43yCukYKJL_D1ZnItLThFuwiI/s2016/2021GAPTrail146%25400.5x.jpg)
-_At Bicycle Heaven with parents and Crispin_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgl91V_WQXJP71e7f0QMcqLT5mlCjjK_M96xZis-8Tdg8oxO6-BQ_rSDJrf7pe7bL4ZdajlSBpeVBpBOKX5JvXX4Q3t0mE2gR5r1Ru_tSK_gUh3iy3g4l43yCukYKJL_D1ZnItLThFuwiI/w400-h300/2021GAPTrail146%25400.5x.jpg)
+*At Bicycle Heaven with parents and Crispin*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjVrSOAi6wWDjNExihYwUcv63gKKX8iRwER1agtLg59A6wtXpK1Sn26i4IqlAVzBiOBBVWn86UAb1A-juIfac9XJHrXv1qBgl5VYSDOyLiRhZXpKiLvSlLiYrsTR9HVzN_gmJvQa2N-OXc/s2016/2021GAPTrail148%25400.5x.jpg)
-_So many bicycles!_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjVrSOAi6wWDjNExihYwUcv63gKKX8iRwER1agtLg59A6wtXpK1Sn26i4IqlAVzBiOBBVWn86UAb1A-juIfac9XJHrXv1qBgl5VYSDOyLiRhZXpKiLvSlLiYrsTR9HVzN_gmJvQa2N-OXc/w400-h300/2021GAPTrail148%25400.5x.jpg)
+*So many bicycles!*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_1k6THyvxbgIF3S9SgNsomUpYTGoriWjhv5OaC-1pYvjt5Vd2aJR1a6emOhSTtZTbpDYR0SejpCQLx77zj4BHuXc5RPQfLUZjE1zqnc_9uoKBwyz7F7c8hw3ceS4-ftaZUTya-wI9BMs/s2016/2021GAPTrail150%25400.5x.jpg)
-_Rare bikes_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_1k6THyvxbgIF3S9SgNsomUpYTGoriWjhv5OaC-1pYvjt5Vd2aJR1a6emOhSTtZTbpDYR0SejpCQLx77zj4BHuXc5RPQfLUZjE1zqnc_9uoKBwyz7F7c8hw3ceS4-ftaZUTya-wI9BMs/w300-h400/2021GAPTrail150%25400.5x.jpg)
+*Rare bikes*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhFv8j9xcwE8TcGOsFJCFJ3mNqmWhnLGk75xLEWPGgsrjgWweCRJve9hU4EYp0GtbHB5rH5_deo2Guz9e-xNC51eHAHNl_xnQbCglTUlNAKoGrkrjtm3WI24qpzmYJdyQCjM0PnW3wbhkU/s2016/2021GAPTrail155%25400.5x.jpg)
-_Old bicycles_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhFv8j9xcwE8TcGOsFJCFJ3mNqmWhnLGk75xLEWPGgsrjgWweCRJve9hU4EYp0GtbHB5rH5_deo2Guz9e-xNC51eHAHNl_xnQbCglTUlNAKoGrkrjtm3WI24qpzmYJdyQCjM0PnW3wbhkU/w300-h400/2021GAPTrail155%25400.5x.jpg)
+*Old bicycles*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgOlRuu0Rh9zjV729bFNUCvvAqjnxPI4pNxgeVVvA8s4msMoFRcqpCZc84u9nitWPdimO7mhvhnZL90SGGOwiDWcdG49tPRC9dcEoFUIcObkxyDegxGZqW5P_3aPOgKcUbveo5ojCrxG3Q/s2016/2021GAPTrail158%25400.5x.jpg)
-_A bicycle that went around the world_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgOlRuu0Rh9zjV729bFNUCvvAqjnxPI4pNxgeVVvA8s4msMoFRcqpCZc84u9nitWPdimO7mhvhnZL90SGGOwiDWcdG49tPRC9dcEoFUIcObkxyDegxGZqW5P_3aPOgKcUbveo5ojCrxG3Q/w400-h300/2021GAPTrail158%25400.5x.jpg)
+*A bicycle that went around the world*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgbWjYShF81LczjQb_XszFqa0-DwDGNZSeRCsXPbRjAawoRWbZPv2XXhip0gsMdD3qAG-yTOt_aoaRB1OZFTemyLK2AsNNLn2-FYru7O-HL9cpx3BZOcTInXRoNxrmufLXpYBSmQ_s7bec/s2016/2021GAPTrail168%25400.5x.jpg)
-_One of the first bicycles: a wooden Boneshaker_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgbWjYShF81LczjQb_XszFqa0-DwDGNZSeRCsXPbRjAawoRWbZPv2XXhip0gsMdD3qAG-yTOt_aoaRB1OZFTemyLK2AsNNLn2-FYru7O-HL9cpx3BZOcTInXRoNxrmufLXpYBSmQ_s7bec/w400-h300/2021GAPTrail168%25400.5x.jpg)
+*One of the first bicycles: a wooden Boneshaker*
 
 Crispin and I took the time to wash our bikes and then lubricate the chains. We had a nice break at my parent's house to avoid some rain and Crispin's neck recovered from the pain. On Tuesday, dad drove us to West Newton. We had planned to eat brunch at Gary's Chuck Wagon, but the restaurant didn't open until 11 AM that day. My parents didn't want to wait another hour, so after a brief walk around downtown we unloaded our bikes from the van, took some photos, and said goodbye to my parents. I think Crispin was disappointed that he didn’t get to treat my parents breakfast.
 
 Right before we started riding, we saw a group of three cyclists buying some goods at the bakery. We would see them for about 7 or 8 times on our return trip as we passed each other on the trail or in restaurants and on rest stops.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjJt-AsJC3eGh3m0VczdkwCzfKmxOJ8Ia12CnjWeIoKeKs0ryMtWtZAYZkTK0KSg9ghO2rpx9_yZ4TKHUu3LElklviEDwGVsuK-Z-dmPEAg8k7JPMc9vQ90Gfv1bW7Mv8py3jLs_ezhwLw/s2016/2021GAPTrail172%25400.5x.jpg)
-_Back the way we came_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjJt-AsJC3eGh3m0VczdkwCzfKmxOJ8Ia12CnjWeIoKeKs0ryMtWtZAYZkTK0KSg9ghO2rpx9_yZ4TKHUu3LElklviEDwGVsuK-Z-dmPEAg8k7JPMc9vQ90Gfv1bW7Mv8py3jLs_ezhwLw/w400-h300/2021GAPTrail172%25400.5x.jpg)
+*Back the way we came*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhfCsMM8YfeOGOSv8IG_bUZEtbN4soYJKU8-kfzMQBEsTBnHLv9u56af2Y7sh6O4HvzAoj5A8si5PmmWbM2oLWq87JCMQwHKxMcYkt33T2h5UhEfwDq0JyQADZCXlWvhvGe67mSFO_-xFI/s2016/2021GAPTrail177%25400.5x.jpg)
-_River on our left, trail on the right_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhfCsMM8YfeOGOSv8IG_bUZEtbN4soYJKU8-kfzMQBEsTBnHLv9u56af2Y7sh6O4HvzAoj5A8si5PmmWbM2oLWq87JCMQwHKxMcYkt33T2h5UhEfwDq0JyQADZCXlWvhvGe67mSFO_-xFI/w400-h300/2021GAPTrail177%25400.5x.jpg)
+*River on our left, trail on the right*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgfceq58DBznwPYYfIibUks7anTda9y_qysgl2VsIQqrn3Ipd29wbJ-f6Ys5114-Q15wisQ7PRx0sA7Fr5w0LiP9acBjd96yScJgnnFXlqriHLCxunGgpAtqcluYH6PC6aNiaoR8KMxzvQ/s2016/2021GAPTrail181%25400.5x.jpg)
-_Going through the "wormhole"_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgfceq58DBznwPYYfIibUks7anTda9y_qysgl2VsIQqrn3Ipd29wbJ-f6Ys5114-Q15wisQ7PRx0sA7Fr5w0LiP9acBjd96yScJgnnFXlqriHLCxunGgpAtqcluYH6PC6aNiaoR8KMxzvQ/w400-h300/2021GAPTrail181%25400.5x.jpg)
+*Going through the "wormhole"*
 
 Since we didn't eat breakfast, I made another ramen breakfast at a rest stop in Whitsett before riding to Connellsville. I booked an AirBnb this time, but the check-in wasn't until 6 PM. Crispin and I had dinner at the Double Dragon Chinese restaurant. The food again was subpar. I concluded that there aren't any good ethnic restaurants on the GAP trail.
 
@@ -228,36 +265,38 @@ I noticed that my crank cap fell off in West Newton. I was not lucky in finding 
 
 We headed all the way to Rockwood. Crispin knew the way to the hostel in town and after checking in and showering, we met two other cyclists who showed up. They are two cousins, Ty and Rio, riding to Washington DC. Almost immediately we got along well. In fact, we ate dinner together at the Rock City Cafe, sharing our stories and giving cycling tips. Ty and Rio didn’t sleep well the night before because they were camped at the Adelaide campground and the temperature dropped overnight. They were cold and wet. That night, we slept well in the hostel even though the railroad was close to the hostel and we heard some trains.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDMnS2KLEDkg0oOlvyV9sY3qUGS2AlIK4S-grafQuG-KAuGxMvyZwkWI0CGcWGzqIDjXLDznRrLQdOXdeuBAGQLsor-yq82zJHR3SzPDOjAVU431LFx69qK81zJia0fnBFQo9c66UtrNA/s2016/2021GAPTrail182%25400.5x.jpg)
-_Ty, Rio, Crispin, and I at the Rock City Cafe_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiDMnS2KLEDkg0oOlvyV9sY3qUGS2AlIK4S-grafQuG-KAuGxMvyZwkWI0CGcWGzqIDjXLDznRrLQdOXdeuBAGQLsor-yq82zJHR3SzPDOjAVU431LFx69qK81zJia0fnBFQo9c66UtrNA/w400-h300/2021GAPTrail182%25400.5x.jpg)
+*Ty, Rio, Crispin, and I at the Rock City Cafe*
 
 Thursday was our last riding day together. I was the first one up at 3 AM. Crispin and I got on our way first while Ty and Rio were still packing. I let Rio borrow my Therm-A-Rest sleeping pad. He’ll return it to me once he gets back to Chester Springs, which is close to where I live.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBvNSfPp_mk0NBn5PPKCF6F3Tqq-HRnE94VkU3hFOZrDwyJFn2XhF5xPl4hk5_Wg_wIoIJBl0IoNMHry0fCFFvGv4NDxVJFsDaNdw8VWm_acTR8MFJUekn-oy6uTnUSTAF-zWXD41dJ2s/s2016/2021GAPTrail183%25400.5x.jpg)
-_Crispin writing his blog in the hostel_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBvNSfPp_mk0NBn5PPKCF6F3Tqq-HRnE94VkU3hFOZrDwyJFn2XhF5xPl4hk5_Wg_wIoIJBl0IoNMHry0fCFFvGv4NDxVJFsDaNdw8VWm_acTR8MFJUekn-oy6uTnUSTAF-zWXD41dJ2s/w400-h300/2021GAPTrail183%25400.5x.jpg)
+*Crispin writing his blog in the hostel*
 
 Crispin and I reached the G. I. Dayroom Coffee Shop in Meyersdale around 8:30 during their rush hour. By the time we were almost done with breakfast Ty and Rio walked in. Crispin and I ended up resting at the visitor center after breakfast so that we don’t immediate ride after a meal. Crispin also bought a GAP T-shirt at the visitor center.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBMmOfb5F5-FahQdGqsuy9Qza9uwz41nbBmuRkL370sQxbPNnPPsOI_AW6pxfQPjEK5oRZZfq9WJwekoqfAUrZK_POR0ggbJdLiltob8yygo43Xbj-qBo_HU7JUHlfmJjtBskQcv4uvQk/s2016/2021GAPTrail187%25400.5x.jpg)
-_Meyersdale visitor center_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjBMmOfb5F5-FahQdGqsuy9Qza9uwz41nbBmuRkL370sQxbPNnPPsOI_AW6pxfQPjEK5oRZZfq9WJwekoqfAUrZK_POR0ggbJdLiltob8yygo43Xbj-qBo_HU7JUHlfmJjtBskQcv4uvQk/w400-h300/2021GAPTrail187%25400.5x.jpg)
+*Meyersdale visitor center*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPV1PxJrRq5YsOqREpSdtF8Xbg3E0dUGKuuk5OVtjNcYCNwqWRLMQNRvx-jC4QahjCZUlMTfQrtO8w2TgWsdMG5y6MPh0G8YTqIQMH53-Dt8HMV7Qf2D_qHkB_PnwQ_g2SQYg5dvyFeCo/s2016/2021GAPTrail188%25400.5x.jpg)
-_Breakfast is served at the G.I. Dayroom Coffee Shop_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPV1PxJrRq5YsOqREpSdtF8Xbg3E0dUGKuuk5OVtjNcYCNwqWRLMQNRvx-jC4QahjCZUlMTfQrtO8w2TgWsdMG5y6MPh0G8YTqIQMH53-Dt8HMV7Qf2D_qHkB_PnwQ_g2SQYg5dvyFeCo/w300-h400/2021GAPTrail188%25400.5x.jpg)
+*Breakfast is served at the G.I. Dayroom Coffee Shop*
 
 As we were riding to the Eastern Continental Divide, Ty and Rio caught up to us. The four of us rode to the top, took pictures, went through the Big Savage Tunnel, and rested at the overlook where Crispin wants his memorial bench to be built after his death. It has been a long running joke on the trail that Crispin would like to be remembered on the GAP trail. A $200 bench should satisfy his request.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXKt3_DVowPKdFuekVMaE_UUuPtwusFuIHbhc0_fjz9zAcutzyTU7ikIsC7LDsleo5QDmMgFnBQB0sb87E0AWDah8oKpeGRwxVJani2DtwuxHrgR58S742o5TL4ii2JaM8vgwlR7QJFiI/s1632/2021GAPTrail192%25400.5x.jpg)
-_Me, Ty, Crispin, and Rio reached the top of the GAP trail_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXKt3_DVowPKdFuekVMaE_UUuPtwusFuIHbhc0_fjz9zAcutzyTU7ikIsC7LDsleo5QDmMgFnBQB0sb87E0AWDah8oKpeGRwxVJani2DtwuxHrgR58S742o5TL4ii2JaM8vgwlR7QJFiI/w400-h300/2021GAPTrail192%25400.5x.jpg)
+*Me, Ty, Crispin, and Rio reached the top of the GAP trail*
 
 From there, Ty and Rio headed first to Cumberland on the downhill. Crispin and I rested a bit more before we headed down the hill. We stopped one more time at the rest stop where we saw the bicycle rail cars during our first day of riding. We knew our time was coming to an end on this trip and there's a bittersweet feeling in both of us.
 
 We arrived in Cumberland around 2 PM. We had our last restaurant meal at The Crabby Pig before meeting Ty and Rio at Luke’s Pizza to say our goodbye to them. Crispin and I then cycled to the Queen City Creamery to get some ice cream. We saw the group of three cyclists for the last time. We just had to get our picture taken at this point!
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiTTM31knDo7JxVnPsjdg5S3TOAPseA_-DKyQAaasqovgSfY2WVcjVB-J9BlmjKmqOjdfE3YVE3PBtCLAxtHEQgNWNQzQLr7S5FFtKF5NznPDNcPDeoO9wTcFgn4HgCINOGzh5uddzkToA/s2016/2021GAPTrail198%25400.5x.jpg)
-_Back in Cumberland!_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiTTM31knDo7JxVnPsjdg5S3TOAPseA_-DKyQAaasqovgSfY2WVcjVB-J9BlmjKmqOjdfE3YVE3PBtCLAxtHEQgNWNQzQLr7S5FFtKF5NznPDNcPDeoO9wTcFgn4HgCINOGzh5uddzkToA/w300-h400/2021GAPTrail198%25400.5x.jpg)
+*Back in Cumberland!*
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEheX9zTwffDWgy5vTDIiuhkJcbN8rBKhHxkiogXEYZvO0U58j4bJzi5lP67vf7Zdp4c8r7BZSyPgqtC9oID078ApjzbFWbcGL1e1AhdjrGFpml6RX9t1du8ohRIym0YWe1tI7BEzqj6v_k/s1712/2021GAPTrail201%25400.5x.jpg)
-_Me, Richard, Sharon, Aven, and Crispin - we saw them at least 8 times!_
+  
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEheX9zTwffDWgy5vTDIiuhkJcbN8rBKhHxkiogXEYZvO0U58j4bJzi5lP67vf7Zdp4c8r7BZSyPgqtC9oID078ApjzbFWbcGL1e1AhdjrGFpml6RX9t1du8ohRIym0YWe1tI7BEzqj6v_k/w400-h300/2021GAPTrail201%25400.5x.jpg)
+*Me, Richard, Sharon, Aven, and Crispin - we saw them at least 8 times!*
 
 After enjoying our desserts, we went to our cars parked at the Ramada and packed our bikes. I booked another AirBnb, a more expensive one, to make up for the lousy one we stayed at Connellsville. This time, the AirBnb was great. David, our host, gave us a tour of our room in his house on the other side of town. I was planning to eat a pizza dinner with Crispin, but after showering I passed out for three hours and woke up at 10 PM. By that time, we were both in sleeping mode.
 
@@ -265,11 +304,11 @@ We were up before the sunrise again. By now, this is normal. We had coffee at Sh
 
 After we got back the room and finished packing one last time, we said our goodbyes. It has been a great trip and it rekindled my love of cycling since 2018. I enjoyed cycling with Crispin very much since we matched very well. An old man who likes to talk and a young man who is more introverted.
 
-![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiB3-p1NB9snDBf_L5nEUdwyKjcjoQnMeD-0TOaia-S2CEYIY9GjqojD1X41Q4GLUZXqcTVrVj0323p0zCsVSw9awf9xt0E4dutuuN70IMirKAJElgtKwbCIruuWS_u9BZBs72OFky11kc/s1632/2021GAPTrail203%25400.5x.jpg)
-_Until next time!_
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiB3-p1NB9snDBf_L5nEUdwyKjcjoQnMeD-0TOaia-S2CEYIY9GjqojD1X41Q4GLUZXqcTVrVj0323p0zCsVSw9awf9xt0E4dutuuN70IMirKAJElgtKwbCIruuWS_u9BZBs72OFky11kc/w400-h300/2021GAPTrail203%25400.5x.jpg)
+*Until next time!*
 
 I drove back home in 3:30 hours and arrived at 9:30 AM. Crispin got home to Greensboro, NC, around 1 PM.
 
 We agreed to bike the C&O towpath together in the fall. Maybe this year or the next. I hope for more cycling adventures ahead.
-
-Link to Crispin's blog: [http://www.crazyguyonabike.com/doc/GAP2021Tour](http://www.crazyguyonabike.com/doc/GAP2021Tour)
+  
+Link to Crispin's blog: [http://www.crazyguyonabike.com/doc/GAP2021Tour](http://www.crazyguyonabike.com/doc/GAP2021Tour)

@@ -4,11 +4,15 @@ layout: post
 date: 2020-08-06
 ---
 
+
+![My FIRE Number](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjUkkqCSW8q6E48gm9tr_jtPvkYCmZTjMueVEkTLrr3omn3dKnp7FyejvKquznpn1oW95KdCOBO1D3Ix0ajE3QdKfQX3Oai2tAQUZYWAzj826vA80kheqRQUsV0FAQ2Qu18Tmcr6adQdBU/w640-h480/2017MemorialDay18.jpg)
+*My FIRE Number*
+
 It was about a year ago that I learned about FIRE (Financial Independence, Retire Early) and that's when I realized I don't need a million dollars (or more) to retire. Although my intention is not about retiring early, but the idea of financially independence always intrigued me.
 
 Soon I came across a simple formula for calculating how much money I would need to retire or, in my case, not to worry about money. This is commonly known as the FIRE number, and the formula is 25 times the annual expense:
 
-FIRE Number = 25 X Annual Expense<
+FIRE Number = 25 X Annual Expense
 
 Plugging in this formula with my current annual expense of $22,368, the result is $559,200. This is my FIRE number if I were to live with my current lifestyle with my current expenses not changing. However, I feel like I can do better.
 

@@ -19,7 +19,7 @@ When I came back to the apartment, I was a bit tired. I used the time to decide 
 
 When Laura and Koen came back to the apartment we had dinner. Then we decided to take a walk downtown so Laura can show me the wharf by the old canal.
 
-Koen pointed out some really cool murals on the way to downtown, which I had completely missed. I bought ice cream for Koen and myself. Later, I bought Laura and Koen some beer at a bar called ’t Oude Pothuys, which is located in the basement next to the canal wharf. Laura showed me her sculptures on the canals since she works as a sculptor. Her website is[https://hf-projects.nl/](https://hf-projects.nl/). She also showed me her studios, one by the old canal and one by the new canal. It was a really nice walk and when we got back home it was close to 11 PM.
+Koen pointed out some really cool murals on the way to downtown, which I had completely missed. I bought ice cream for Koen and myself. Later, I bought Laura and Koen some beer at a bar called ’t Oude Pothuys, which is located in the basement next to the canal wharf. Laura showed me her sculptures on the canals since she works as a sculptor. Her website is [https://hf-projects.nl/](https://hf-projects.nl/). She also showed me her studios, one by the old canal and one by the new canal. It was a really nice walk and when we got back home it was close to 11 PM.
 
 I slept until 7:30 this morning. We just had breakfast and I will get ready to head out. It was great having a rest day at Utrecht and staying with Laura and Koen. We got along great!
 

@@ -39,7 +39,7 @@ I cycled on route 17 a couple more times before I reached Myrtle Beach. The plac
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEje7qhfgEaxyoB8yZqlOgic3pUAHxO9lj6c-yCK2hIcv_kzwAVekbAqVvnsnY0FD_1SpVyOuBFnqiD_iY_fLSjE0dKRsJE_ndqiO60WSxxX1kuMUKq4OiVUuALlg4KYSBPRFm8fAQL7q0S-sPbCIEwDqKavFKqXDz5IWtBY49mRdvLoE0gB2YOy6PeU/w640-h480/PXL_20230419_170911105.jpg)
 *Downtown Myrtle Beach*
 
-Around 2:45 PM, I arrived at David’s house situated in a very nice community, several miles south of Myrtle Beach. David is involved with his ministry and goes on bike tours with his church. They helped raise over one million dollars to churches in other countries. Their website is[endscycling.com](https://endscycling.com).
+Around 2:45 PM, I arrived at David’s house situated in a very nice community, several miles south of Myrtle Beach. David is involved with his ministry and goes on bike tours with his church. They helped raise over one million dollars to churches in other countries. Their website is [endscycling.com](https://endscycling.com).
 
 I took a shower, which felt great since I didn’t get an opportunity to do so last night. My cycling gloves was torn so I decided to throw them out. I brought an extra pair just in case.
 

@@ -32,7 +32,7 @@ Rahul lives in a gated community, like some hosts I’ve already stayed with. Ga
 
 We went through downtown Ocala. It's a small downtown and has some shops. Then Rahul and I stopped by the post office. We then went to lunch at an Indian restaurant that’s also a grocery store. I wasn’t too hungry so we had Indian tea, samosas, and pakoras, which is the Indian version of tempura. We chatted the entire time about cycling, life, work, and China.
 
-From our conversations, I learned that Rahul is a very interesting person, having studied computer science at Carnegie Mellon University and later got a PhD at Harvard. Rahul is now the founder and CEO of the[Razdan Research Institute](https://www.razinstitute.com) where he focuses on education, consulting, among other things.
+From our conversations, I learned that Rahul is a very interesting person, having studied computer science at Carnegie Mellon University and later got a PhD at Harvard. Rahul is now the founder and CEO of the [Razdan Research Institute](https://www.razinstitute.com) where he focuses on education, consulting, among other things.
 
 The last stop on the tour was the World Equestrian Center. It was built by trucking executives for approximately a billion dollars. I feel like Florida is the place where if I build it someone will come, like this center and The Villages. At this equestrian center, many horses were bred and sold. There was a graduation event for the local community college so we had to drive in from a different entrance.
 
@@ -43,7 +43,7 @@ The highlight of the equestrian center was the big hotel. I bought ice cream con
 
 When we got back to Rahul’s guest house it was about 3 PM. I bought a plane ticket to Philadelphia from Orlando for next Wednesday and a bus ticket from Gainesville to Orlando for next Tuesday. I decided to ask Jon, the Warmshowers host in Orlando, to see if I can stay with him again on Tuesday night.
 
-After finishing the traveling logistics, I soaked in Rahul’s pool for a bit and talked to Merritt on the phone for about an hour. Rahul told me that he’ll order pizza for dinner. To pass away the time, I hung out in the guest room and watched some YouTube videos, including Rahul’s[TedTalk](https://www.youtube.com/watch?v=_e5Q1L9IqAQ) that he presented in 2017.
+After finishing the traveling logistics, I soaked in Rahul’s pool for a bit and talked to Merritt on the phone for about an hour. Rahul told me that he’ll order pizza for dinner. To pass away the time, I hung out in the guest room and watched some YouTube videos, including Rahul’s [TedTalk](https://www.youtube.com/watch?v=_e5Q1L9IqAQ) that he presented in 2017.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgM_LeYom3VUAERkDrapXiZT7tfmltvVL3MhTkTW8olGjqdXO3sHFCWJAme_EDm04XlCMYFLeRLSxYWJ8agZNtGnPvnaf3YDwV4L6fJMTP0Du45vNQqcrxLV7nLSmdtr2A4OgRkLPxmMOtO9aZtD5d8GIPIDv2IetXL795uexYEsXMetsDDXp82-dEM/w480-h640/PXL_20230511_201204113.jpg)
 *Relaxing in the pool*

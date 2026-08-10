@@ -4,6 +4,10 @@ layout: post
 date: 2021-08-26
 ---
 
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjRq_-6Qvqob1keMlr9p7mEvYRPNZXJg2ceH_CLCTfkN-jzpfd3YSWiSrCRcM8Rvb2-iWIUlWpbPdTk4RVGkOYW9CS6jMZznPzoo2vT8HaNkJ-ERKYlSBB5Zf_5O1sWI4WPzrW8M784MTY/w400-h266/358207157_cbc94cdffa_o.jpg)
+*"Blue Water" by fox_kiyo is licensed under CC BY-SA 2.0*
+
 Maybe I'm just bored but I've been thinking. I've been thinking about what is the purpose of doing this FIRE thing and this minimalism thing. It was just over a year ago that I decided to document my FIRE and minimalism journey. Now I begin to question the foundation of both movements from a personal level.
 
 First of all, I want to say that it's great if someone has reached his or her FIRE number and has the option to retire early from work. I'm still on that path to reach my FIRE number. Judging by the speed I'm going, it'll take me about another 3 to 4 years. However, my mind always wants to experience novelty and I have a hard time sitting still. Thus, I always want to learn something new, do something different, meet new people, and travel somewhere. Recently, my determination of reaching my FIRE number has wavered. I can see myself not reaching FIRE according to my current plan and continue to live a life I want.

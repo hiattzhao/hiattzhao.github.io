@@ -25,7 +25,7 @@ I cycled east on the road and got on a bike path that paralleled Ridge Road. The
 
 After lunch, I joined the Suncoast Trail again, then switched to the road to get to my Warmshowers host Tom’s house in Brooksville. I arrived around 1 PM after riding 37 miles from Port Richey.
 
-Tom is 70 years old, but he still works. He’s a manager at the Army Corps of Engineers and he also helps his son’s business in air ambulance. Tom also[cycled across the country](http://oldmanridingabike.com) on the Southern Tier in 2016.
+Tom is 70 years old, but he still works. He’s a manager at the Army Corps of Engineers and he also helps his son’s business in air ambulance. Tom also [cycled across the country](http://oldmanridingabike.com) on the Southern Tier in 2016.
 
 After I walked into his house, I realized Tom is a Trump supporter since he has a picture of Trump sitting with all the other Republican Presidents. Tom also has a Trump bobblehead on his desk that said “Fuck the Media” with Trump's middle finger out. Needless to say, I had to watch myself and not say the wrong things.
 

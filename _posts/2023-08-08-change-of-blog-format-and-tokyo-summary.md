@@ -108,7 +108,7 @@ I took the Shinkansen, also known as the bullet train, from Tokyo Station to Kyo
 
 - Shinkansen (bullet train) Ticket: Buying a Shinkansen ticket was confusing for me when I was going from Tokyo to Kyoto. I had the option of buying an express ticket, a local ticket, or both. At first I bought the local ticket, then the information center staff told me I had to buy the express, so I did. The Shinkansen requires both express and local tickets.
 
-See[https://www.jrailpass.com/blog/shinkansen-tickets](https://www.jrailpass.com/blog/shinkansen-tickets) for more info.
+See [https://www.jrailpass.com/blog/shinkansen-tickets](https://www.jrailpass.com/blog/shinkansen-tickets) for more info.
 
 The best seat to see Mount Fuji on the Shinkansen train is the window seat E if you are going from Tokyo to Kyoto. Unfortunately, I couldn’t get an E seat since they were all reserved and no E seats were open in the non-reserved sections. If you are going to Tokyo from Kyoto, then the best window seat is A.
 
@@ -122,9 +122,9 @@ The best seat to see Mount Fuji on the Shinkansen train is the window seat E if 
 
 ## Other
 
--[Daijob.com](https://www.daijob.com) - website to look for jobs in Japan
+- [Daijob.com](https://www.daijob.com) - website to look for jobs in Japan
 
-- Watch YouTube videos to learn Japanese. JapanesePod101 is a great YouTube channel to learn Japanese. Also[https://www.youtube.com/watch?v=sISIVKJh_EA](https://www.youtube.com/watch?v=sISIVKJh_EA) is a good starting video to watch.
+- Watch YouTube videos to learn Japanese. JapanesePod101 is a great YouTube channel to learn Japanese. Also [https://www.youtube.com/watch?v=sISIVKJh_EA](https://www.youtube.com/watch?v=sISIVKJh_EA) is a good starting video to watch.
 
 ## Thoughts
 

@@ -19,7 +19,7 @@ Lastly, if I travel long distances in an airplane I will buy the first class tic
 
 Other than these things, I don’t think there will be much difference in how I live or what I consume.
 
-In fact, most of my money will go to people in need. I think it’s fun to give money away. That’s why I like[Kiva.org](https://Kiva.org) so much. Kiva.org is a micro-loan website and I get to choose who I want to loan my money to. My investments help small business owners in foreign countries.
+In fact, most of my money will go to people in need. I think it’s fun to give money away. That’s why I like [Kiva.org](https://Kiva.org) so much. Kiva.org is a micro-loan website and I get to choose who I want to loan my money to. My investments help small business owners in foreign countries.
 
 Maybe this is also why I will unlikely be a millionaire or a billionaire. I always said that if I had a million dollars then I’m too rich, need to give my money away.
 

@@ -4,6 +4,10 @@ layout: post
 date: 2020-11-16
 ---
 
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg89VQLYXgA-OYnqf6k9HR0sZ8OE0jNcC3Jo9Vu7IMC-49XSPJDvDwlV2lmU_jeUVb-RVxe9cDOgvYFZ62Plo38GRU7Ig4mrzovO9PViQB9RP87KZLDd5N-MIgzw_O2JhgNp7HVOAEast0/w640-h214/work.jpg)
+*"work" by Sean MacEntee is licensed under CC BY 2.0*
+
 I currently only have one main job, a developer at a financial services company, but I feel my pursuit of financial freedom is actually good for my job and vice versa.
 
 The first thing that FIRE does for me is that it gives me a goal to achieve. I know I can reach my FIRE goal in ten years if everything remains the same so it's not much of a challenge. I want to reach financial freedom by the end of 2024, just four more years. This gives me the motivation to work at my main job so that the decision of leaving will have a detrimental effect on my FIRE goal. My previous two jobs didn't last long. The first job lasted a year and half at a medium sized software company and I only stayed for three months at my second job, which was a small software company. For some reason, when I feel I'm not being treated well I simply quit and do something else. However, at this current job I want to be more permanent, and a long-term goal of achieving FIRE will ground me for a while.

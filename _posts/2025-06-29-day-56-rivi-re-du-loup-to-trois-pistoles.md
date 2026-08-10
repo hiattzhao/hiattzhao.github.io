@@ -17,7 +17,7 @@ I wasn’t that hungry but I needed to eat something. At Cantine D'Amours, I ord
 
 After lunch, I cycled only a couple of blocks to Iléana’s place. She’s my Warmshowers host for the night. Iléana has a five years old son. She was also babysitting her son’s friend who was about his age.
 
-I took a shower and did laundry, which I’m so grateful since my clothes needed a wash badly. While waiting on laundry, I signed up on[findacrew.com](https://findacrew.com), a website where I can look for sailboats to go across the Atlantic Ocean to Europe. If I can get on a boat then I don’t have to box my bike and take a flight.
+I took a shower and did laundry, which I’m so grateful since my clothes needed a wash badly. While waiting on laundry, I signed up on [findacrew.com](https://findacrew.com), a website where I can look for sailboats to go across the Atlantic Ocean to Europe. If I can get on a boat then I don’t have to box my bike and take a flight.
 
 After everything was done, I took a walk to Quai de Trois-Pistoles, the dock in town. Before coming back to the house I stopped by the IGA grocery store to buy a few things for dinner. Iléana was making pita pizzas and I bought Boursin cheese, radishes, two small cakes, and more pita bread.
 

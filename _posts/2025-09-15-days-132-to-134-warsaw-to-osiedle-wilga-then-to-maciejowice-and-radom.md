@@ -51,7 +51,7 @@ I took Route 737 all the way to Radom and arrived at my Warmshowers host Renataâ
 
 Renata showed me the guesthouse thatâ€™s next to her greenhouse. I settled there until it was time for a late lunch/early dinner in the main house.
 
-Renata cooked some pierogies and prepared some sliced tomatoes for us. We chatted about bike touring and Taoism, of all things. I had a great time talking to her and learned about two Polish cyclists who cycled around the world for ten years. Their instagram account is[biketheworld.pl](https://instagram.com/biketheworld.pl).
+Renata cooked some pierogies and prepared some sliced tomatoes for us. We chatted about bike touring and Taoism, of all things. I had a great time talking to her and learned about two Polish cyclists who cycled around the world for ten years. Their instagram account is [biketheworld.pl](https://instagram.com/biketheworld.pl).
 
 After the meal, I took a shower then retired to the guesthouse and went to bed around sunset, which is a little before 7 PM.
 

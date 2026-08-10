@@ -4,8 +4,9 @@ layout: post
 date: 2021-05-17
 ---
 
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg9nSfHhjR47feWMFKzyERQf6Er3eZIn2pOoDvPXJLzlkGZKVAeL_Euql9aPILGwfpXFfHI4CK12J-lzUg6j34WhS7aNCzviA_M6z923TGdv2U_hnkhGy73tUzlabkOSwYeLiQ_rFRRSQg/w640-h328/Screen+Shot+2021-05-17+at+2.35.11+PM.png)
-_Facebook Marketplace_
+*Facebook Marketplace*
 
 Wouldn't it be nice if everything I owned fit in my bedroom? I used to not have this problem when growing up since everything I owned did fit in my bedroom. For some reason, over the years, I accumulated more stuff. Now, I have an apartment full of things! At least it's not a house.
 

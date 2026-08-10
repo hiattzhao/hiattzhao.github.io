@@ -6,7 +6,6 @@ date: 2018-06-07
 
 
 Yesterday morning, Joe and I bid farewell to Maureen and Angie. We rode our bikes to Squawk Coffee. The owner already got a text from Maureen that we were coming. I had a ham, egg, and cheese sandwich, with a cup of coffee. The owner of the coffee shop talked to us about Austin, Texas, where he was from. He said Austin got too crowded and the traffic is terrible. That’s why he moved to Pueblo. I bet it was due to poor city planning. Pueblo doesn’t seem to have that problem right now.  
-
 After breakfast, I rode one last time with Joe to the corner of 4th Street and Main Street, where we said goodbye. I wished him best of luck going home to Ohio then I started riding out of town.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiLTAlgwFO7eGMc0Nt8yGCO9X-iHMAQrW7H2f9jJqXiG2g0ttJqKPSVHtp9Bq97Esp3q4XDJtK2-di0SsEr0qE9bVog5RXzpInjyANP5sCxphaUP8mRqrnRC5mCrKeFvrWfS8Xxmghs6VA/w480-h640/%255BUNSET%255D)

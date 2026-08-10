@@ -4,6 +4,7 @@ layout: post
 date: 2020-08-16
 ---
 
+
 The idea of being in debt - whether be a mortgage, a car loan, a student loan, or something else - is the same as being chained down, as if I'm a slave or a serf.
 
 This society makes it so easy for me to be in debt. Banks will loan me at least $400,000 for a house just because I have a good credit. They don't ask me if I really need that much money. If I go along with it, who really owns the house? On the surface it looks like I do, but in reality it's the banks. They own me if I choose to go along and take out the mortgage. It will take me 30 years to pay off that house. Fifteen if I pay more per month. Why is it that a mole rat can dig a hole for himself in one day and it takes a human 30 years to own his house? Good thing I didn't fall into this trap. Not yet at least.

@@ -21,7 +21,7 @@ After enjoying this moment, I rode my bike through Vondelpark and went to the Jo
 
 Colin and I went to college together. Even though we weren’t close friends we had a lot of friends in common. It was great to connect with him again.
 
-After settling in, Colin and I walked to Café Enté where we had some tea and appetizers. Colin and his friend Joe were one of the main inspirations for my first bike tour. They cycled across the US in 2008, ten years before I did my trip. Colin and Joe were like heroes to me. They still have their blog up on the internet. It’s at[theroll.wordpress.com](https://theroll.wordpress.com).
+After settling in, Colin and I walked to Café Enté where we had some tea and appetizers. Colin and his friend Joe were one of the main inspirations for my first bike tour. They cycled across the US in 2008, ten years before I did my trip. Colin and Joe were like heroes to me. They still have their blog up on the internet. It’s at [theroll.wordpress.com](https://theroll.wordpress.com).
 
 Colin and I chatted everything from personal finance to mental health to bike touring. It was great to relax outside a cafe with a friend on a sunny afternoon.
 

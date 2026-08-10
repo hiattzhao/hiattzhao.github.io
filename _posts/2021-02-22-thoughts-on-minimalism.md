@@ -4,6 +4,11 @@ layout: post
 date: 2021-02-22
 ---
 
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhmtq2cR1dUmuoAozSbFAwpdY1iCC07nqG_qAyM0ZuKp6ui6TFIC1hfng_ulM-XeNMdAKUpKW1p7QBVq8SWmBWL7AzaardjI0VVeUlrhZrTguSTe4cvTMXPmsEZceG0bHH0LHoWypjsUKI/w640-h480/minimal.jpg)
+*"Minimal Duck" by origami_madness is licensed under CC BY-NC 2.0*
+
+  
 Minimalism is different to each person. Someone's minimalistic lifestyle could even be considered by someone else as maximalistic. Some people who don't consider themselves as minimalists are actually more so than those who do. Certainly, my minimalistic lifestyle is more about the idea and the mindset of having enough and get rid of things that I don't use.
 
 Growing up in China, my grandparents and I didn't have a lot of things, but we had the essentials, such as food, shelter, and clothing. We were happy. When I came to America, I was culture shocked by the many things in stores. For my first Christmas, I must have received about 20 presents, mostly toys. I was not aware of the concept of minimalism at that time and certainly didn't practice it.

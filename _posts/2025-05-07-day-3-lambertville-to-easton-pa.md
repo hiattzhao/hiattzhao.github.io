@@ -21,7 +21,7 @@ After reaching Riegelsville on the Pennsylvania side, I got on the canal trail a
 
 It took me about three hours to ride about 22 miles from Frenchtown to Easton that afternoon. Once I reached Easton I went through downtown and then had to walk my bike up a steep hill to get to my Warmshowers host’s house. I arrived at 4:15 PM, having ridden just shy of 39 miles total.
 
-Elizabeth is my host. She’s actually the mother of[Henry](/2023/05/days-47-and-48-orlando-to-withla-then.html), a Warmshowers host whom I stayed with in Florida back in 2023. Elizabeth is also a painter and works at a salvage place. Her website is [elizabethsnelling.com](https://elizabethsnelling.com).
+Elizabeth is my host. She’s actually the mother of [Henry](/2023/05/days-47-and-48-orlando-to-withla-then.html), a Warmshowers host whom I stayed with in Florida back in 2023. Elizabeth is also a painter and works at a salvage place. Her website is [elizabethsnelling.com](https://elizabethsnelling.com).
 
 We had Chinese takeout for dinner and chatted about politics. I was glad that we agreed politically so there wasn’t a conflict in our conversation.
 

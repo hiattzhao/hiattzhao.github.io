@@ -4,6 +4,10 @@ layout: post
 date: 2020-12-09
 ---
 
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhLYLmEZym6JWCFstVdzcUEn_YW-mIs8qkqTtN2zIew33Xy0CyA4N6RyCVYf6xppE_O7etOqmCRIa33obpQpIO9xw2ptH6-vNxvqfA1CHH9Qn8Zx9zM5q_q7FZddlw3bwdEUz-sy3ZtBCw/w640-h326/Screen+Shot+2020-12-09+at+10.06.02+AM.png)
+*Ting Mobile*
+
 A few weeks ago, I was browsing on another FIRE blog and came across an article where the blogger cut down her phone bill to only $15 per month. That's when I learned about MVNO.
 
 MVNO stands for Mobile Virtual Network Operator. It's a phone provider that doesn't own the wireless infrastructure and leases it from one of the big four mobile providers, such as Verizon or AT&T. As a result, the MVNO's mobile plans are much cheaper than any of the big four providers.
@@ -12,7 +16,7 @@ I've been using Google Fi for the last three years, after switching from Verizon
 
 I thought Google Fi was the best deal I can get until I heard about MVNOs. Google Fi is actually an MVNO, but there are cheaper ones.
 
-I did a little research and saw that [Ting Mobile](https://tingmobile.com) is pretty popular. I chose the Flex plan where it's $10 for unlimited calls and texts and $5 per GB of data. Since I rarely go over 1 GB of data per month, especially staying home most of the time, my bill would be reduced from $30 to $15 per month. That's a 50% reduction!
+I did a little research and saw that [Ting Mobile](https://tingmobile.com/) is pretty popular. I chose the Flex plan where it's $10 for unlimited calls and texts and $5 per GB of data. Since I rarely go over 1 GB of data per month, especially staying home most of the time, my bill would be reduced from $30 to $15 per month. That's a 50% reduction!
 
 The only downside is that when I do travel internationally I would have to pay for higher rates than Google Fi. Due to the pandemic, I doubt I'll be traveling outside the US in the next year or so. However, when I do travel internationally I can switch back to Google Fi since Ting and Google Fi are contract free.
 

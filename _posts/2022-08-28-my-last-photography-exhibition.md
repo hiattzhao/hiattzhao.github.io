@@ -10,7 +10,6 @@ I'm having my last photography exhibition at the Gryphon Café in Wayne, PA ([ma
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgRQMloEELXgKlNTyrWw4gfvh_UQ2iB0ezEx5elk49907_xqb7UKZP9HuR9qRPcXIR1UprlWBbzNEVpJheW2xKsmSo3vHx9oCC4dulvLLSRuuhaPRkzojR4oeK2iyZwMdTUoKlTFZkYwX5A3SLut-dapyjXlhcxliyc660QsjVwVDBJTQRDc9g7el7s/w640-h480/PXL_20220828_171532728~3.jpg)
 *Exhibition Postcard*
 
-  
 This exhibition is dedicated to my late Grandmother, who was also an artist. I will display one of her Chinese watercolor paintings in the café as a tribute to her.
 
 All photographs are for sale, from $0 to $1,000,000. Most photos range from $200 to $500. For more information about the $1,000,000 photograph, see [here](https://photos.hiattzhao.com/special.html).

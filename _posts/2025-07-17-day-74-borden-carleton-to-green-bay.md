@@ -19,7 +19,7 @@ Mike gave me a tour of the 150 acres farm. They have some cows, vegetable garden
 
 This is the biggest farm that I’ve ever been to. I thought Donna’s 100 acre farm in Ontario was big. This one is 50% bigger. This farm is also situated on top of a hill so the main house has a great view of the surrounding areas.
 
-After taking an outdoor shower, I chatted with Mike and Paul a bit more. They hiked the Camino de Santiago from the French side back in 2012 and wrote a blog, which Mike turned it into a book. They also have traveled to many countries over the years and hosted many people through Couchsurfing. Not only that, they are also on[HelpX.net](https://HelpX.net) and [WorkAway.info](https://WorkAway.info) where they host volunteers to work on their farm.
+After taking an outdoor shower, I chatted with Mike and Paul a bit more. They hiked the Camino de Santiago from the French side back in 2012 and wrote a blog, which Mike turned it into a book. They also have traveled to many countries over the years and hosted many people through Couchsurfing. Not only that, they are also on [HelpX.net](https://HelpX.net) and [WorkAway.info](https://WorkAway.info) where they host volunteers to work on their farm.
 
 Mike was telling me that it’s a shame that I’ll only be on PEI for a couple of days where it’s so beautiful here. He offered to host me as a volunteer on the farm if I choose to stay longer. I wish I didn’t purchase my plane ticket to Edinburgh. Since I bought the cheapest ticket there is no refund or reschedule. I have to think about it as a sunk cost if I want to stay for a week or longer at the farm.
 
