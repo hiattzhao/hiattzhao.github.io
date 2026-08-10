@@ -5,6 +5,8 @@ date: 2018-06-04
 ---
 
 
+This morning, I didn’t eat breakfast because there were no convenience stores nearby. The cafe in town was closed. So I only ate a granola bar. Joe and I started riding after we got ready.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjMHdxavUG6uJU2Rn4iNR8390LOzbpAXv4DgLMv8MevPmdnBvaCN3HFUN1T9euRv1LGyo6KgFevuRZl2N7HoRnrCBDMtyz82IFF19YoNKCryOYxw9ZOalZhVjUMZmEQORzY6V_s4N9f_Sc/w480-h640/%255BUNSET%255D)
 *My body needed the fuel, which I only got from a granola bar and some trail mix*
 
@@ -35,7 +37,7 @@ His name is Chris and he’s 29 years old, from Australia. He’s riding the Tra
 
 I rode about 5 miles to Ordway with a strong headwind. I could only ride about 8 mph. I met up with Joe, who was at a convenience store. I told him there’s a Warmshower host named Gillian and we should find her house. In her profile, she indicated to ask the locals in town for directions to her house. Luckily, Helga and the owner of Sugar City Cafe told me the directions to Gillian’s. Joe had missed her place. We rode to Gillian’s place together and found the trailer for cyclists.  
   
-After parking our bikes, we went to Gillian’s house and met Gillian. She is a very nice lady from New Zealand. We talked for awhile then I took a shower. She wants some help with her website, [alternativecolorado.com](http://alternativecolorado.com/), so I’ll be helping her after writing this post. I plan on making a bag of ramen for dinner then get a good rest for tomorrow’s ride to Pueblo.
+After parking our bikes, we went to Gillian’s house and met Gillian. She is a very nice lady from New Zealand. We talked for awhile then I took a shower. She wants some help with her website, [alternativecolorado.com](http://alternativecolorado.com/), so I’ll be helping her after writing this post. I plan on making a bag of ramen for dinner then get a good rest for tomorrow’s ride to Pueblo.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhvU6e_MDS5tpkoUckLWdaiWao_HL3IzrbsazANRATBiAeyg2rppl_dSUxzehfHzrNBYRuRoAT2JDmrs5N-zbpKKx6rPOgZnzMaCNlnFYxtSWM_AhP4KAuj3KMYxPnbslMX7hEk7gNOkDQ/w480-h640/%255BUNSET%255D)
 *Gillian*

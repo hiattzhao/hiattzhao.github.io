@@ -5,6 +5,8 @@ date: 2018-05-17
 ---
 
 
+This morning, Crispin and I woke up at 4:45 AM. Crispin made some coffee for the both of us and we packed up everything soon after drinking the coffee. I put in $20 in an envelope as a donation from both of us. We didn’t ride back into town to get breakfast. Instead, we rode ahead before the sunrise.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgACvRXhRkYSGSJeRZZdgadl3bgYikP2kJDTuTvXOh-_fiiORMY55QFaeurjaCgEvZMgrghgRKPj5WGnb_9hpb4XWiVGdGn2pwqnhH7XmxYnWpr5JAy_kSH-28lUZ8J56P1n6MsOgWp0tI/w640-h480/%255BUNSET%255D)
 *Storm clouds welcoming our day*
 

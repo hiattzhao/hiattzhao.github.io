@@ -5,6 +5,8 @@ date: 2018-04-26
 ---
 
 
+Yesterday morning, I woke up in the bunk bed of the Acorn Comunne in Mineral. Most of my things already had dried. The ones didn’t get dried fully, such as my gloves, were placed in front of the space heater. Then I went to the main building of the commune and boiled three eggs for myself. I ate two and saved the other for the road. I also took two clementines for the road.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjQ5EfFzqLiFS84U3TY3boum1-uAMrMB6AB6oGKtzSBcjYJ8DFbk94OtKkIuwR0jIbqDu77vQ_B0udViRPF_hf-GZLAOBcsEypeMFck2HsWCP6x4TsmXcu0eedL5xh1XgHemt97-VoA3QE/w640-h480/%255BUNSET%255D)
 *Heartwood building in Acorn Commune*
 

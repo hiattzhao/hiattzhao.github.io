@@ -5,9 +5,13 @@ date: 2018-05-22
 ---
 
 
+Last night, I camped out at the city park behind a motel. There was a strange sound coming from the pond all night long. It sounded like a moaning sea monster. Or maybe it was a water pipe.  
+  
 After I got up at 4:45 AM, I packed everything while it was still dark. I rode to the convenience store next to the motel and had a SEC (sausage, egg, and cheese) croissant, along with a cup of coffee. Once there was enough sunlight I started riding.  
   
-Just like yesterday morning, there was a thick fog covering the landscape. After awhile, I thought I had got out of the fog, but then the fog appeared again. The road to Houston didn't have wide shoulders. Two large semi trucks came very close to me. At one time, I was pushed to the rumble strips.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhIWVXid_VYjS9w3FoiBA7a1rE8TNtNA5IQ9KYmIS9NSMZaVkZQXWF8DLFahx8jiO-e508abtHcTRnMfyQykGGhEg3KFnuijzUZKAZrs3fNQMAR60sbJ-pIBeurJwH4mLgxWMpMsS6yODo/w640-h480/%255BUNSET%255D)
+Just like yesterday morning, there was a thick fog covering the landscape. After awhile, I thought I had got out of the fog, but then the fog appeared again. The road to Houston didn't have wide shoulders. Two large semi trucks came very close to me. At one time, I was pushed to the rumble strips.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhIWVXid_VYjS9w3FoiBA7a1rE8TNtNA5IQ9KYmIS9NSMZaVkZQXWF8DLFahx8jiO-e508abtHcTRnMfyQykGGhEg3KFnuijzUZKAZrs3fNQMAR60sbJ-pIBeurJwH4mLgxWMpMsS6yODo/w640-h480/%255BUNSET%255D)
 *Foggy road without any shoulders to ride on*
 
   

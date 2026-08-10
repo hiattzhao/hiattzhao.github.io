@@ -5,6 +5,8 @@ date: 2018-05-11
 ---
 
 
+Yesterday, after hanging out in the library in Berea, Crispin and I took a walk downtown. We came across a sculpture about the Berea schools. They were very progressive in that they accepted black students before the Civil War. On the walk back, we decided to have dinner at El Rio Grande, a Mexican restaurant recommended by Dan, who was in Berea the day before.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhcNkPTkOL_o6H1vMGFg9e6dW_4QWW7FVGKRuLk8z6OI21BgogE7DKxJpxl242-gaFeanwPrFyh_dJI0eh7gTBLT0d4bBVUIEBeHPjZdI5ibxnW0L3SmNRMQ8ymOITK7YwvXR2crAn7qWs/w640-h480/%255BUNSET%255D)
 *Berea schools statue*
 
@@ -24,7 +26,7 @@ When the sky turned dark, we went to our tents and called it a night.
   
 This morning, we were woken up by the sound of thunder at 5 AM. Crispin decided to fold up everything and place his things under the firehouse training building. I did the same thing. Luckily the storm was short lived and none of our things got wet.  
   
-We headed back into downtown Berea to grab some breakfast. A fireman in the downtown fire station told us to have breakfast at the Dinner Bell restaurant, so we went there. We had western omelettes and coffee. At 8 AM, we started riding toward Danville rather than following the TransAmerica route. Dan had warned us the bridge was flooded near Burgin, so Crispin and I decided to use Google Maps on my Pixel 2  phone for an alternate route. We planned on stopping at a bicycle shop in Danville and get lunch some where in town.  
+We headed back into downtown Berea to grab some breakfast. A fireman in the downtown fire station told us to have breakfast at the Dinner Bell restaurant, so we went there. We had western omelettes and coffee. At 8 AM, we started riding toward Danville rather than following the TransAmerica route. Dan had warned us the bridge was flooded near Burgin, so Crispin and I decided to use Google Maps on my Pixel 2 phone for an alternate route. We planned on stopping at a bicycle shop in Danville and get lunch some where in town.  
   
 The ride was indeed flatter than previous days, but there were still some inclines to go up. We came to a town called Lancaster and decided to have a break in Grate Day’s Grille and Cafe. I had some caramel ice cream and Crispin got a fruit cup with ice cream on top. Crispin is a very friendly person and talked to the waiter about our trip. By the time we were finished, the waiter, whose name is Andrew, decided to buy us the ice cream. I wasn’t going to let him do that, but then I realized the lesson I had learned: if people want to help you, accept their kindness. So I accepted Andrew’s kindness.
 

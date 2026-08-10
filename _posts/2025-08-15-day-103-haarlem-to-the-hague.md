@@ -19,7 +19,7 @@ I walked to the Binnenhof, which is the world oldest center of government that i
 
 I really wanted to see*The Girl with the Pearl Earring* painting by Vermeer so I went to the Mauritshuis. From my past experience, I learned that I need to go faster in a museum so I won’t miss anything. That particular painting is like the *Mona Lisa*. Many people gathered to take photos of it and some people even dared to take a selfie with it. I couldn’t get too close to the painting because of the crowd. In any case, it was good to see the world famous painting.
 
-Another famous painting called*The Bull* is under restoration. All in all, I’ve seen a lot of art in The Netherlands since it has so many museums. Glad I have the Museum Pass.
+Another famous painting called*The Bull* is under restoration. All in all, I’ve seen a lot of art in The Netherlands since it has so many museums. Glad I have the Museum Pass.
 
 I had a very subpar Zhajiang Noodles at Xi’an Delicious Foods restaurant. It was a completely different dish than what I had expected. That’s the risk I take when I go to a Chinese restaurant in a different country.
 
@@ -113,7 +113,7 @@ There is free breakfast at the hostel, which I’m glad. I will cycle over 50 mi
 *The Bull is under restoration.*
 
   
-[*![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg068rT_LQSVgjuVwGJwWy818DDd2XUJq1S7v9gF3XlVLGla5RlqeIBr7mHCEY49-JeaMAqW_nghE-gixoear2r3w-X4azhCFs07awlHnNlm7x3rzic1Rl2pjSjHAU9j-HTbWFc78vqUKgnZ5oNxGPfy8murggA566pP9z9IO6heIKOxgCCYHoskOfGxTc/w480-h640/PXL_20250814_142248712.jpg)*](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg068rT_LQSVgjuVwGJwWy818DDd2XUJq1S7v9gF3XlVLGla5RlqeIBr7mHCEY49-JeaMAqW_nghE-gixoear2r3w-X4azhCFs07awlHnNlm7x3rzic1Rl2pjSjHAU9j-HTbWFc78vqUKgnZ5oNxGPfy8murggA566pP9z9IO6heIKOxgCCYHoskOfGxTc/s4624/PXL_20250814_142248712.jpg)
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg068rT_LQSVgjuVwGJwWy818DDd2XUJq1S7v9gF3XlVLGla5RlqeIBr7mHCEY49-JeaMAqW_nghE-gixoear2r3w-X4azhCFs07awlHnNlm7x3rzic1Rl2pjSjHAU9j-HTbWFc78vqUKgnZ5oNxGPfy8murggA566pP9z9IO6heIKOxgCCYHoskOfGxTc/w480-h640/PXL_20250814_142248712.jpg)
 *The Girl with the Pearl Earring*
 
   

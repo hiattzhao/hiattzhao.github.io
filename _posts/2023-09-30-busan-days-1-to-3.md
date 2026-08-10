@@ -5,6 +5,8 @@ date: 2023-09-30
 ---
 
 
+Three days ago, I took the train from Seoul to Busan. It was the worst train ride during my Asia trip so far. First, I thought I had bought the express train ticket, but it was the local train that took close to five hours to Busan. Second, due to a Korean holiday that's similar to American's Thanksgiving, there was only standing room tickets available at the ticket counter. Most people had reserved their tickets on the website, which I didn't do. So for a good part of the train ride I was standing with some other unfortunate Koreans. Luckily for me I spotted an open fold up seat next to the door that allowed me to have a proper seat for the last couple of hours.
+
 When I arrived in Busan around 3:30 PM, I was so hungry since I didn't eat anything. I walked over to Chinatown and had an Uzbekistan wrap. I took the subway to the hostel and checked in. When I went to the dorm room I noticed some people were sleeping. That's quite unusual. I thought I'm the only one who slept that early. In any case, I didn't think too much of it and went to bed soon after.
 
 That night, I didn't sleep well. My throat was hurting and my joints were aching. I might also had a fever since I felt myself feeling hot. The following morning, I walked around the vicinity of the hostel trying to find a coffee shop that's open. Due to the holiday I mentioned before, which is called Chuseok, almost all the restaurants are closed. I ended up having a Hawaiian pizza at the only restaurant that's open near the hostel. My next few meals were packaged food from the local GS25 convenient store since that pizza restaurant was closed the following day.

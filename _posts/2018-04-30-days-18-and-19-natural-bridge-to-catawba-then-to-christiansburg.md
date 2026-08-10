@@ -5,6 +5,8 @@ date: 2018-04-30
 ---
 
 
+Yesterday morning, Wendy and Mike made pancakes, biscuits, and sausages for breakfast. I’m so lucky that all of my hosts are great cooks! I packed up my things soon after the meal and said goodbye to Doug, Barbara, Mike, and Wendy. I started my ride at 9:15 AM.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh0YPUcaIQJMn2SKdSldu-HYBbvixqepRxrurrtk0HPqd7jTH0h2a4QKbuNdGd5-yW4E_yAnypzYBnC4WpwwJsblMovPcHtDnQ9hUETP65alLGJUSWWVj4Kq9vAuKfUMv6rOowmPSZCVVE/w640-h480/%255BUNSET%255D)
 *Riding along the highway*
 

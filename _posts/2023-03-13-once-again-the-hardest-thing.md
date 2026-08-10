@@ -5,7 +5,9 @@ date: 2023-03-13
 ---
 
 
-I had written about this[in 2018](https://www.hiattzhao.com/2018/04/the-hardest-thing.html) when I was embarking on my bicycle tour across America. This time it seems like the world is falling.
+I always think the hardest thing about any trip is the beginning. This time, it's no exception.
+
+I had written about this [in 2018](https://www.hiattzhao.com/2018/04/the-hardest-thing.html) when I was embarking on my bicycle tour across America. This time it seems like the world is falling.
 
 This past Friday, my parents came to Valley Forge, PA, for a convention. I happen to live in King of Prussia, just the next town over. My mom texted me to visit them and so I did.
 

@@ -5,7 +5,9 @@ date: 2023-09-01
 ---
 
 
-I didn't do much in Kitakyushu since it rained when I arrived. I was also tired. The hostel I stayed wasn't good, either. I think the manager's relatives were staying at the hostel, too. There were two little kids running around in the living room. The following morning, I walked to the Kokura Castle and the Yasaka Shrine, which is next to the castle. I didn't even take too many photographs in Kitakyushu. Soon after, I took an express train to Fukuoka.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgd01iBBpgrXOFn6U6CabnsSp-UFoxVWKktU0ug3RfqiCEVrazNAr7KMq39srATKVf9EqKwjWQKQ-EQPXnnVq5vIN_x9zCllcnj9N-pN8o6bv64MjHzo6WTfl5K_GSn8sDCGVHXzW29OsWcKAaAypCXRX6Ehc9H7S747dqXbhtGwHVm0faD3QjQrB4YISU/w640-h480/PXL_20230831_021943442.jpg)
+I didn't do much in Kitakyushu since it rained when I arrived. I was also tired. The hostel I stayed wasn't good, either. I think the manager's relatives were staying at the hostel, too. There were two little kids running around in the living room. The following morning, I walked to the Kokura Castle and the Yasaka Shrine, which is next to the castle. I didn't even take too many photographs in Kitakyushu. Soon after, I took an express train to Fukuoka.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgd01iBBpgrXOFn6U6CabnsSp-UFoxVWKktU0ug3RfqiCEVrazNAr7KMq39srATKVf9EqKwjWQKQ-EQPXnnVq5vIN_x9zCllcnj9N-pN8o6bv64MjHzo6WTfl5K_GSn8sDCGVHXzW29OsWcKAaAypCXRX6Ehc9H7S747dqXbhtGwHVm0faD3QjQrB4YISU/w640-h480/PXL_20230831_021943442.jpg)
 *The Shinkansen bullet train*
 
   

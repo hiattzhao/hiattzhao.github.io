@@ -5,9 +5,13 @@ date: 2018-05-23
 ---
 
 
+The Warmshower host came through yesterday! After hanging out at the library, I rode just a little over a mile west to my hosts’ place. Upon arriving, I noticed there were a lot of things out on the front yard. Bret, the hosts’ son, greeted me. My hosts, Ted and Nancy, drove in soon after I arrived.  
+  
 The house has all kinds of things in it. The kitchen is Coca-Cola themed, the bathroom has seashells on the ceiling with walls painted ocean blue, and the living room is decorated with military and Christianity objects. The family also has several dogs and cats. I actually felt a little clusterphobic.  
   
-Nancy told me they are working on a shower. In the mean time, I can use the bath. After cleaning myself in the bath, I watched a little TV in the living room with Bret. Bret is a little younger than I am. I feel like he’s still trying to find what he wants to do. While Ted and Nancy were out in the yard cutting the grass, I decided to set up my tent out in the front yard.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKgu6voNw9M7I9gt388SUr9UEemCjGR0CCiik9AexT_bm_C-R0a9yiN5-2YSBJdQSUH_cJqar_Cbg70W0HPctirP83VBghwTmKpQyJgXociXPyZO7gLwOwa5DG_PtxlsH1R3s7bltcCIU/w640-h480/%255BUNSET%255D)
+Nancy told me they are working on a shower. In the mean time, I can use the bath. After cleaning myself in the bath, I watched a little TV in the living room with Bret. Bret is a little younger than I am. I feel like he’s still trying to find what he wants to do. While Ted and Nancy were out in the yard cutting the grass, I decided to set up my tent out in the front yard.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKgu6voNw9M7I9gt388SUr9UEemCjGR0CCiik9AexT_bm_C-R0a9yiN5-2YSBJdQSUH_cJqar_Cbg70W0HPctirP83VBghwTmKpQyJgXociXPyZO7gLwOwa5DG_PtxlsH1R3s7bltcCIU/w640-h480/%255BUNSET%255D)
 *Ted mowing the lawn using a 1950 tractor*
 
 For dinner, we grilled some burgers in the fire pit. Nancy baked some ham and beans. I had a total of three burgers. Guess I must be really hungry.

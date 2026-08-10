@@ -5,11 +5,15 @@ date: 2018-04-29
 ---
 
 
-I rode to downtown Lexington around noon and stopped at Napa Thai restaurant to have some Pad Thai. The pollen level must be really high because I kept on rubbing my eyes. They were watery as I rode out of town.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkvnzLiWrgxIbKDh_fXGFL_stpxH_h_b3DmN-QYEMa4V88KHpAwmrFdBMVpRmsty5rTXZYxRrvLLdXEfwFqQyzRBGl30nqhFlnwvBnHClDzlZ5r5aD4lLmEHsRMgifmAiXtjpwcYE-9Gs/w480-h640/%255BUNSET%255D)
+Yesterday around 10:30 AM, Dirk and Chrissy rode with me on the Chessie Nature Trail from the back of their house closer to the town of Lexington. They wished me luck near the end of the trail before I got on the paved road. I thanked them for all their hospitality.  
+  
+I rode to downtown Lexington around noon and stopped at Napa Thai restaurant to have some Pad Thai. The pollen level must be really high because I kept on rubbing my eyes. They were watery as I rode out of town.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjkvnzLiWrgxIbKDh_fXGFL_stpxH_h_b3DmN-QYEMa4V88KHpAwmrFdBMVpRmsty5rTXZYxRrvLLdXEfwFqQyzRBGl30nqhFlnwvBnHClDzlZ5r5aD4lLmEHsRMgifmAiXtjpwcYE-9Gs/w480-h640/%255BUNSET%255D)
 *Downtown Lexington*
 
   
-As I was on the path, following along the river, I saw another cyclist. His name is Kevin and he is going across the country, too. His bike has a trailer attached to it and he told me he was carrying about 35 pounds of photography gear. As we were talking, two other cyclists came. They were the couple from The Netherlands, whom I had met at the First Run Cafe in Palymra a couple of days ago. We had a good time chatting about bikes and our destinations. Kevin is not rushing in any way. He said he’s letting his photography determining his pace. The Dutch couple, whose names are Tom and Dineke, said they want to be on the west coast by August. Their website is at [fietsmeemettend.reislogger.nl](http://fietsmeemettend.reislogger.nl/). We must have talked for over half an hour on the side of the road. In the end, we got going.
+As I was on the path, following along the river, I saw another cyclist. His name is Kevin and he is going across the country, too. His bike has a trailer attached to it and he told me he was carrying about 35 pounds of photography gear. As we were talking, two other cyclists came. They were the couple from The Netherlands, whom I had met at the First Run Cafe in Palymra a couple of days ago. We had a good time chatting about bikes and our destinations. Kevin is not rushing in any way. He said he’s letting his photography determining his pace. The Dutch couple, whose names are Tom and Dineke, said they want to be on the west coast by August. Their website is at [fietsmeemettend.reislogger.nl](http://fietsmeemettend.reislogger.nl/). We must have talked for over half an hour on the side of the road. In the end, we got going.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjwVVbIQ2bDjapZkafMi6a32VQiDmNM3rxU4Q84F3kLgw5SYGduNvPoekIyTYPeH7Kk-ts1G2sIqlY5RxjDRCLfxt2e8tFR1WlsLpto7QIPBs8R85Fu6rzXjKi0Ous5x_g-5DxaQn7ogJ0/w640-h480/%255BUNSET%255D)
 *Kevin, Tom, and Dineke*

@@ -5,6 +5,8 @@ date: 2023-12-31
 ---
 
 
+This past week, I didn't do much in terms of exploration. I'm more living like a local. The dorm that I'm staying at doesn't get direct sunlight and it doesn't feel good. It's almost as bad as the hostel in Osaka. Most nights, I would sleep for 12 hours. That's two hours more than my average.
+
 I try to go outside everyday so that I don't get stuck inside and feeling down for myself. Though there were a couple of days of that. To be productive, I've walked to Taipei City Hakka Cultural Park and Treasure Hill Artist Village, revisited Chiang Kai-Shek Memorial Hall and Daan Park, and went to Huashan 1914 Creative Park.
 
 Dating is harder in Taipei for some reason and I don't get a lot of matches, unlike Vietnam and the Philippines. However, I did meet a few people from Coushsurfing.com who were willing to join me for a meetup. I played a tour guide for an afternoon to Shooni, a girl from Myanmar who was studying in Korea before coming to Taipei. Then I went bicycling around Sanchong district in New Taipei with a girl named Evelyn. It was a fun, two hour long bike ride. Then two days ago, I met Dora and her friends, Julien and Natalie, in a cafe in Taipei 101 tower. We went to lunch then explored the 44 South Military Village.

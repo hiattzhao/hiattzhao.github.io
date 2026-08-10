@@ -5,7 +5,11 @@ date: 2018-05-08
 ---
 
 
-I also noticed in Kentucky every house had at least one pickup truck and at least one dog. And the only other thing on the road are churches unless there’s a major town.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKOO8mluSiIv1z49TsloD7KpqLZRIu613TCyw2uvnL4oq-jQC-OjSVKTQksmecW_PmzsD4hLld685wuPszc7BC4OyGFfBgzb_1fwTw3e54kWWt0WBcnuXmI0PZ7S-5N7Vj34uQBR6ijiw/w640-h480/%255BUNSET%255D)
+Two nights ago, Crispin, Tom, Dineke, and I had a simple dinner bought from a convenience store in Hindman. We chatted a lot. Crispin is a very talkative guy and Dineke informed of us why this area is considered the poorest in the United States. It was because the money never came back to the area after the coal companies got their profits. The people here were all coal miners and suffered health issues.  
+  
+I also noticed in Kentucky every house had at least one pickup truck and at least one dog. And the only other thing on the road are churches unless there’s a major town.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKOO8mluSiIv1z49TsloD7KpqLZRIu613TCyw2uvnL4oq-jQC-OjSVKTQksmecW_PmzsD4hLld685wuPszc7BC4OyGFfBgzb_1fwTw3e54kWWt0WBcnuXmI0PZ7S-5N7Vj34uQBR6ijiw/w640-h480/%255BUNSET%255D)
 *Where I slept in the youth center*
 
   

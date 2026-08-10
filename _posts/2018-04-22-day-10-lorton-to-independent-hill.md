@@ -5,7 +5,11 @@ date: 2018-04-22
 ---
 
 
-After stopping by a local bicycle shop that Adrian wanted to visit, we went home so I can send my other stuff home, such as the fleece sleeping bag, the bigger stowaway pot I had brought, the helmet mirror that I don’t use, and a few other small things. After we walked to the post office to send everything, I took Adrian out for lunch at Pho Chateau that’s two doors down. I wanted to thank Adrian for his military service, for hosting me, and for the trip to REI.Once we’re back at Adrian’s place, I packed up everything. Adrian also gave me a pair of pants that can be unzipped to become shorts. I was able to pack everything on my bike. The panniers now weighed a little over 20 pounds. Along with the sleeping bag, the sleeping pad, and the tent, I’m estimating that the total is about 25 pounds. Not bad.
+After writing my previous post, I went to REI with Adrian. I bought a few things that included a small MSR Alpine stowaway pot, a pack of antibiotic ointment, a package of Katadyn Micropur purification tablets to purify water, toothbrush covers to replace the more bulky container, a Nemo 15 degree sleeping bag, a Sea to Summit compression dry sack, and an REI membership. The total was $411.22. The sleeping bag is one that cost the most at $300.  
+  
+After stopping by a local bicycle shop that Adrian wanted to visit, we went home so I can send my other stuff home, such as the fleece sleeping bag, the bigger stowaway pot I had brought, the helmet mirror that I don’t use, and a few other small things. After we walked to the post office to send everything, I took Adrian out for lunch at Pho Chateau that’s two doors down. I wanted to thank Adrian for his military service, for hosting me, and for the trip to REI.
+
+Once we’re back at Adrian’s place, I packed up everything. Adrian also gave me a pair of pants that can be unzipped to become shorts. I was able to pack everything on my bike. The panniers now weighed a little over 20 pounds. Along with the sleeping bag, the sleeping pad, and the tent, I’m estimating that the total is about 25 pounds. Not bad.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiG5xpvb6_K4u00j8E_ZV5zx02X35XEC11pnazzMnMQ9TaVPgIxzLaXQsau6PwhyphenhyphenAz05y8KDjjiSSC1p0alR69If9CW571speiIUIXsKVizAQfYd3RyTM0U_V1FM0bbBhdii2XBKd79bes/w640-h480/%255BUNSET%255D)
 *On the road again*

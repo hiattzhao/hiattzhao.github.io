@@ -5,6 +5,8 @@ date: 2018-06-16
 ---
 
 
+After writing my previous blog post, I carried my bike down from Zak’s apartment and got all my things ready. I rode into town and arrived at The Phoenix Bean coffee shop, where I had a breakfast sandwich and a cup of coffee. There were a few cyclists in there, too. They were doing a five day trip around the area.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7sU2_080Xnv_mBCCd8DDBG1kvBT-iPAEL1JJH8j7oRflZ_aZt-EpuT7uJTjqSeZWmAIp40InP5bBUgo7YE0-dhyphenhyphenithKHFGsy-YnN1lrbKNm2a3fq23G411vVFtKFHKXa3oJggVp_uT3w/w640-h480/%255BUNSET%255D)
 *Goodbye Telluride!*
 

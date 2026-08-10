@@ -5,6 +5,8 @@ date: 2023-09-04
 ---
 
 
+On day three, I went to Japan's first Zen temple, the Shofuku Temple. Then I walked to the Kushida-jinja Shrine. I browsed some shops in Canal City, then went to the Ramen Stadium. Ramen Stadium has eight ramen shops. Unfortunately, I had ramen earlier in the day so I didn't get to eat lunch there.
+
 Yesterday, I didn't do much except going to the Fukuoka Asian Art Museum that's on the 7th and 8th floor of an office building that's very close to my hotel. The art there was art from Asian artists, not particularly Asian art. None of the artworks spoke to me.
 
 In the afternoon, I did laundry and played some pool in the lounge of the hotel. I met Miguel, Paulo, and Victor, whom are all related to each other. We had a good time playing pool together. Miguel is a cook in Sydney, Australia. Paulo works for the Australian government. And Victor is a civil engineer.

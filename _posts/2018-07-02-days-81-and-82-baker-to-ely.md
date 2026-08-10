@@ -5,7 +5,11 @@ date: 2018-07-02
 ---
 
 
-The party to raise money was put on by the owner of the Whispering Elms. His son, Austin, played the guitar very well. He sang some country songs. I tried to play the guitar a bit, but I'm useless without the guitar tabs. In the end, I simply enjoyed the music and had a cheeseburger, two hot dogs, and some salads. I was so full.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiHCcpIKtXHNLPMTTMM24_pdNGxn1Tn7l5pb6Xt7K7oGVFayClJQQbr10e-0MqD6scG4NH5748_qkNiSFNtazU12N05WhYKc1e1BoTJO7_V6wgzLvdPpZHCHqMwINzwjqB-j2Ur_Cwoosw/w480-h640/%255BUNSET%255D)
+Two days ago in Baker, I was hanging out in the Whispering Elms motel bar. I met Rick, Delaine, and Steve. They were part of a local organization fighting the government from diverting water away from Baker to Las Vegas. They have won five court cases against the government since the early 2000s. I donated $20 to their effort.  
+  
+The party to raise money was put on by the owner of the Whispering Elms. His son, Austin, played the guitar very well. He sang some country songs. I tried to play the guitar a bit, but I'm useless without the guitar tabs. In the end, I simply enjoyed the music and had a cheeseburger, two hot dogs, and some salads. I was so full.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiHCcpIKtXHNLPMTTMM24_pdNGxn1Tn7l5pb6Xt7K7oGVFayClJQQbr10e-0MqD6scG4NH5748_qkNiSFNtazU12N05WhYKc1e1BoTJO7_V6wgzLvdPpZHCHqMwINzwjqB-j2Ur_Cwoosw/w480-h640/%255BUNSET%255D)
 *Austin playing the guitar*
 
 Due to the time zone change, it was only 8 PM local time when I went back to my tent. I slept for ten hours. The next morning, nothing in town was open except for a coffee cart. I bought a cup of coffee there and waited outside of a restaurant called Kerouac's until they opened at 7 AM. I had a really good breakfast even though they didn't give me a lot, but I had enough energy to start my ride.

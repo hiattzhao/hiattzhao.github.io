@@ -5,7 +5,11 @@ date: 2018-05-16
 ---
 
 
-Crispin and I woke up a little before 5 AM. It was still dark out. We did our usual morning packing routine then walked across the street to the convenience store for breakfast. I had a sausage and egg biscuit with a cup of coffee.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj1n62has8Fz5hDCFM5zcdwphorS7Dd4dNmhO21qzU8oRsWYkMdVNbWX2MasJf5-un2Slm5WM0Md06Mwv2LOG4vZnSYis-kC0y2rWu3N38Ja_cC1SvRnNJlEkeb75wxrkEK4cQ1a-GV9W0/w480-h640/%255BUNSET%255D)
+Last night, I didn’t sleep well. I couldn’t stretch my legs because the couch was too short, so I ended up sleeping on the floor.  
+  
+Crispin and I woke up a little before 5 AM. It was still dark out. We did our usual morning packing routine then walked across the street to the convenience store for breakfast. I had a sausage and egg biscuit with a cup of coffee.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj1n62has8Fz5hDCFM5zcdwphorS7Dd4dNmhO21qzU8oRsWYkMdVNbWX2MasJf5-un2Slm5WM0Md06Mwv2LOG4vZnSYis-kC0y2rWu3N38Ja_cC1SvRnNJlEkeb75wxrkEK4cQ1a-GV9W0/w480-h640/%255BUNSET%255D)
 *Another convenience store meal*
 
 I was looking at our route for the day and thought we could go further than Sebree, maybe past Dixon and go to Clay since Sebree is only 26 miles or so from Utica. Crispin agreed we should go as far as we can before the heat hits in the afternoon.

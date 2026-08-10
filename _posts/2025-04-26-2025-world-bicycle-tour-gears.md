@@ -5,7 +5,9 @@ date: 2025-04-26
 ---
 
 
-[post about my bicycle setup and all the things I was bringing](/2023/03/world-bicycle-tour-gears.html). I had a rack bag on the back rack in addition to the four panniers. I ended up breaking five spokes on my bike during the Florida trip so I had the back wheel to be rebuilt when I was in Daytona, FL.This time, I decided to stick with the four panniers setup, minus the rack bag, and add a frame bag in the middle of my bike so the overall weight is more evenly distributed. Each rear pannier weighs about 15 pounds or less for a total of about 30 pounds in the back. The frame bag will weigh about 8 pounds once I pack in the snacks. And each of the front panniers weighs about 5 pounds or less, making a total of 10 pounds in the front. I'm hoping this setup will prevent any spoke issues on my tour.
+Two years ago, I was planning to cycle to Florida then around the world. As it turned out, I only completed the Florida part. Back then I created a [post about my bicycle setup and all the things I was bringing](/2023/03/world-bicycle-tour-gears.html). I had a rack bag on the back rack in addition to the four panniers. I ended up breaking five spokes on my bike during the Florida trip so I had the back wheel to be rebuilt when I was in Daytona, FL.
+
+This time, I decided to stick with the four panniers setup, minus the rack bag, and add a frame bag in the middle of my bike so the overall weight is more evenly distributed. Each rear pannier weighs about 15 pounds or less for a total of about 30 pounds in the back. The frame bag will weigh about 8 pounds once I pack in the snacks. And each of the front panniers weighs about 5 pounds or less, making a total of 10 pounds in the front. I'm hoping this setup will prevent any spoke issues on my tour.
 
 Below are all the things I'll be carrying as pictured in photos and in a spreadsheet.
 

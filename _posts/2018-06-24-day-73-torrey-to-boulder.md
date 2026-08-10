@@ -5,6 +5,8 @@ date: 2018-06-24
 ---
 
 
+For dinner yesterday I had an Outlaw Burger and a root beer float at Slackers Burger Joint. The burger was very filling and the root beer was good, too. When I came back to Sand Creek RV Park there was a young couple who had set up their tent behind me. I decided to chat with them.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgm7XMHK1imhMLLiVOA5yUwvHVawNmGjnfSjVkfRd9oa0IANNirMxrBI4GW1Jt2IztOxV3AYzXUziEddTDVXabp0E98dqynvaq4NSB6z2TIHvqoVPSzDKnsCI3vvkSxQh4DHcvUbAAcBgo/w640-h480/%255BUNSET%255D)
 *A root beer float and an Outlaw Burger*
 

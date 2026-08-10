@@ -5,6 +5,8 @@ date: 2018-06-22
 ---
 
 
+After I left the library in Blanding, I rode back to the Four Corners Inn. It was an early afternoon, so I decided to eat a weed gummy, take a shower, and see what will happen next.
+
 The effect of the gummy kicked in about 15 minutes. I was watching some finance videos on Facebook and browsing Instagram when I started to laugh. In Telluride, when I ate half of a gummy I was sleepy. This time, a whole one gave me some energy and made me high. I started to get hungry and ended up eating all of my trail mix and beef jerky.
 
 Since John was taking a nap in the room and Sarah was at the Homestead restaurant writing her blog, I decided to walk to Pop’s Burritos and get dinner. The burrito was so good! On my way back, I stopped by an ice cream parlor and got a cone. The ice cream was also very good.

@@ -5,6 +5,8 @@ date: 2018-06-03
 ---
 
 
+Joe had left ahead me at the convenience store since I was writing my blog post. But I caught up to him after 12 miles or so. The wind was blowing from the north at about 20 mph. I was able to make 11 mph on average. I rode to the border of Colorado and waited for Joe to catch up. We each took a photograph of the Colorado sign and continued on.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiH_LyGZh9qMBdIl2tXYMXG-9A4UdY0NwAjmiVF-DENVQThxi7utE46Kit-1Za1KpE9JEEymtx7XAtSuaKa4Z2BwIq12rpixHbjljyDUwoWZhtsnHOX1WDZNImva2NR9iiCpLcGn87-rqM/w640-h480/%255BUNSET%255D)
 *Welcome to Colorado!*
 

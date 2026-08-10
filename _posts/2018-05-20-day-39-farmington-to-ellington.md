@@ -5,6 +5,8 @@ date: 2018-05-20
 ---
 
 
+In front Al’s Place is the Route 76 sign. Crispin and I took our last pictures there. Crispin had became a really good friend. As I rode away I started to cry. I don’t know when I will see him again. I hope to visit him in Greensboro, North Carolina, sometime soon.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiEE7f-B2mvrWkjHACuAKKVj-Tjqn9rOFGepEsQrao2Vy2zTEGQHdevtV_9asw_LwlINlwuyExuu6q-Y3I6hLfQ3AmDAM7sOIp2WIlAx_SRIWaybIGW6uegkB0U-Q2nzPa8NZ8kd5o_MHo/w480-h640/%255BUNSET%255D)
 *Last photo of Crispin on our trip*
 

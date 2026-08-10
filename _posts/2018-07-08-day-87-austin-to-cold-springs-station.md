@@ -5,6 +5,8 @@ date: 2018-07-08
 ---
 
 
+This morning, I had a ham and cheese omelette at the Toiyabe Cafe. After I came back to the motel room, I finished packing. Soon after, I started riding west on route 50.
+
 It was downhill in the beginning, then some flat sections, then some inclines. The road had construction cones for about 24 miles. I guess they will be repaving the road. In any case, I was making good speed, about 15 mph.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPtLsY7wfMaahaAA8c8nhmxESRN0X-qVD_WT4q32ITLkkW75CKYlWKkNcRKQUh5sZRnrAMnKwU3FcsNVLh0MEM_5GkbA7xT_LYrkq896KGIMfmDxulKp4OSQJrMd6ioOj8V54K8CFVf_U/w640-h480/%255BUNSET%255D)

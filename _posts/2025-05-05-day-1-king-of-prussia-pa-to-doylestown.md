@@ -23,7 +23,7 @@ I waited for the rain to die down before I left the cafe to continue my ride. So
 
 At around 3:15 PM, I reached her house in Doylestown. I rode just shy of 33 miles today, which is more than I expected. I wanted to ride only about 25 miles on the first day to prevent body aches on the second day. I guess I’ll have to see what happens to my body tomorrow.
 
-I met Shary, who is a painter. Her website is[SharyArt.com](https://SharyArt.com). Her husband Fred is a patent lawyer. After changing to dry clothes, I chatted with Shary about traveling and bike touring. She showed me two photo albums of her other property in Costa Rica and invited me to go there. The only issue is that it’ll be hard to cycle there.
+I met Shary, who is a painter. Her website is [SharyArt.com](https://SharyArt.com). Her husband Fred is a patent lawyer. After changing to dry clothes, I chatted with Shary about traveling and bike touring. She showed me two photo albums of her other property in Costa Rica and invited me to go there. The only issue is that it’ll be hard to cycle there.
 
 Fred, Shary, and I then played my favorite board game, Settlers of Catan. I haven’t played that game in over ten years. We had a good time and Fred won the game by a large margin.
 

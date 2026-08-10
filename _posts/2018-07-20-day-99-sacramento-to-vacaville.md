@@ -5,6 +5,8 @@ date: 2018-07-20
 ---
 
 
+Yesterday morning, Bob drove me to Old Sacramento and dropped me off by the Tower Bridge. After our farewell, I rode through West Sacramento and got on the bike path toward Davis. Part of the path paralleled route 80. There was only a divider and a fence that separated the path and the interstate highway.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj9XtBoQ1in3z-tM2hIphbb0nrSj7rv6OX4tObv6IhoEQqtWUzFBtLaoQatK2IO2xY6owvkpYTHEtm4NqJKi6BLQwFPec3_0B9XZRrKsx9Yl_SHGccWDSd2KMO7c9rS74DV6xQtIqStHUY/w640-h480/%255BUNSET%255D)
 *Riding parallel to the highway*
 

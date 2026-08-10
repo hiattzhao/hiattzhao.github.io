@@ -51,7 +51,9 @@ Addendum:
 
 I just want to add a few things about the road condition in case any future cyclists go through the area. Going through downtown Paspébiac, there are a lot of potholes on the shoulder of the road. I had to be extra careful during the morning rush hour traffic due to the large number of trucks.
 
-I also had lunch at Le Panier à frites in New Richmond where I chatted with a couple of people. One of them was a woman named Melanie who works at the nearby railroad. Upon hearing me talking about my trip to another couple, Melanie requested my contact card from me. I hope she finds my journey interesting.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhn_aK1chSwKq2GWS4zKcb6LL3Ge9EnIIp2fe2CCWX4EB-98HtfR3WQpvV5RTeE-NnTIA0jkr8DmYmDICtdGuHb84XgYohuqPpjB_-4XYpKDtcW2602WGSRoK3J4Mp1M7uF1As2yfu1qJpufUcLG8yvxw8TYljh1cKhTyRkLLlrqn23lKr4i1bh-pgexc0/w640-h480/PXL_20250709_122822150.jpg)
+I also had lunch at Le Panier à frites in New Richmond where I chatted with a couple of people. One of them was a woman named Melanie who works at the nearby railroad. Upon hearing me talking about my trip to another couple, Melanie requested my contact card from me. I hope she finds my journey interesting.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhn_aK1chSwKq2GWS4zKcb6LL3Ge9EnIIp2fe2CCWX4EB-98HtfR3WQpvV5RTeE-NnTIA0jkr8DmYmDICtdGuHb84XgYohuqPpjB_-4XYpKDtcW2602WGSRoK3J4Mp1M7uF1As2yfu1qJpufUcLG8yvxw8TYljh1cKhTyRkLLlrqn23lKr4i1bh-pgexc0/w640-h480/PXL_20250709_122822150.jpg)
 *Love riding by the water*
 
   

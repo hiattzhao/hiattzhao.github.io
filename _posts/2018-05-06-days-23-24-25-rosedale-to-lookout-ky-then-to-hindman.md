@@ -5,6 +5,8 @@ date: 2018-05-06
 ---
 
 
+Two days ago, I was in Rosedale. I awoke in the cyclist church at 7 AM. Tom and Dineke were already up. I ate two ham and cheese hot pockets and Tom made some coffee. We really enjoyed staying at this church. I made a $10 donation to cover the cost of the food I ate.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi0YYA97e6_5xMi0m6PXcWpk0rOwfCI8iI9bkuJRpuuPpUtFHilnTY9eRMLMl-QhFCARodCI4rDAo7dpdCI0gf5u9tvFg7ATViRShjLxRCOXcREw7md_CI1J2ZlWr_AsqgGaqvk5lMfiaU/w640-h480/%255BUNSET%255D)
 *Elk Garden United Methodist Church near Rosedale*
 
@@ -83,7 +85,7 @@ As I rode on the road I almost ran over an orange gecko and a large turtle. I at
   
 When I arrived at Hindman, I called the Knott Historical Society, a place that also hosts cyclists. No one picked up the phone. That’s weird. I wonder where else I can stay around town. Then I received text messages from a guy named David, who said the place is temporarily closed and I should go to the Hindman Student Ministries down the street. Seth, a leader of the ministry, showed me in and it looks like I’ll be sleeping on the couch tonight.  
   
-Just when I was starting to write this post, another cyclist showed up with the pastor. I met Crispin, who is cycling out to Iowa and back to North Carolina, making a loop. He has a cycling blog at [crazyguyonabike.com/energizedcris](http://crazyguyonabike.com/energizedcris). And I also met the pastor, whose name is Stephen.
+Just when I was starting to write this post, another cyclist showed up with the pastor. I met Crispin, who is cycling out to Iowa and back to North Carolina, making a loop. He has a cycling blog at [crazyguyonabike.com/energizedcris](http://crazyguyonabike.com/energizedcris). And I also met the pastor, whose name is Stephen.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgBEh8cCFQU8iaLCfIidiqD_H337ecQrrin78sgUMjiTmTjlSUIzEdBoSsytpZxyCFAg1pMTApKcsiKOHwE_O59IOnNws8KoHv75FvbEgZNqD2TSasLuG0qfTKh5HQKWSwBvKsrVXIRs0s/w480-h640/%255BUNSET%255D)
 *Crispin, another fellow cyclist*

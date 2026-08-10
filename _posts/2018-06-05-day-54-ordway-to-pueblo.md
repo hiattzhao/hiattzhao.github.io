@@ -5,6 +5,8 @@ date: 2018-06-05
 ---
 
 
+After cooking and eating ramen, I ended up helping Gillian clean some old light bulbs before going to bed two nights ago.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiSk4sY3V6rQ4feUNrUmAVywtRPj6zuVhR07DUJSZfhcw5tTfXdeYvR6kcCuPrf3kEuWddy-WZ6V3M10C_Lr9z5ESc7izA6dbOZ8AAqhjPxZn31T-nB68i1ihlls2nC6FutHJGuPt4xTvU/w640-h480/%255BUNSET%255D)
 *The goats at Gillian's farm*
 

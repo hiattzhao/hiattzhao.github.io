@@ -5,9 +5,13 @@ date: 2018-05-30
 ---
 
 
+Yesterday in Nickerson, as I was working on my bicycling website at the library a lady invited me to the community center for dinner at 6 PM. I said sure!  
+  
 The librarian had a family emergency so she closed the library at 5 PM. I bought a bag of potato chips at the local grocery store to snack on before the dinner. While sitting on the bench, I saw a mom and her three children walked by. They were going to the dinner at the community center, too. So I joined them.  
   
-There were about 20 people at the community center. The mom's name is Sherri. I mainly talked with her. At 6 PM, dinner was served. It was a potluck. I had some enchiladas, a variety of salads, and some deviled eggs. The food was really good!![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgbEY1-jZuYDeDKzO99viO8y7JNjzVH25-x_DVooZsmFsl8riT6ITvFFLv5IoZ8Vh4PNMwQ_49f2Ig7jRNtdNioeuLEN1eEE1lVsMALp4do3u19g8imOVRdkQzJoClywwF8fPDPvn7Z5nc/w640-h480/%255BUNSET%255D)
+There were about 20 people at the community center. The mom's name is Sherri. I mainly talked with her. At 6 PM, dinner was served. It was a potluck. I had some enchiladas, a variety of salads, and some deviled eggs. The food was really good!
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgbEY1-jZuYDeDKzO99viO8y7JNjzVH25-x_DVooZsmFsl8riT6ITvFFLv5IoZ8Vh4PNMwQ_49f2Ig7jRNtdNioeuLEN1eEE1lVsMALp4do3u19g8imOVRdkQzJoClywwF8fPDPvn7Z5nc/w640-h480/%255BUNSET%255D)
 *Community members at the potluck, with Sherri on the right*
 
 Soon after the potluck, rain started to pour. I hurriedly rode my bike back to the pavilion. After setting up my tent, I noticed the rain had stopped. Then around 8:30 PM, it started to pour again. This time, much more. I moved my tent closer to the center of the pavilion since water was coming in. Luckily, it stopped short of my tent. I went to bed soon after the rain had stopped.

@@ -5,6 +5,8 @@ date: 2018-05-19
 ---
 
 
+After I finished writing my blog post this morning, Joe made bacon and scrambled eggs for Crispin and I. Joe was actually a winner for a cooking show on The Food Network. Naturally, he made a great breakfast.
+
 We packed up our panniers soon after the meal and decided to ride the alternate levee route that Joe described to us last night. It had rained overnight and was still drizzling. Luckily, the road was mostly flat.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg0lRObmoVrl0JEmJvQQ7nJ4h6nCjX2ose-WPG1x5QZjs-vIQQP-hSLWb5ZJeyPS1xrtGTEPvQ_oJnacgUOkH2MkkzJppdwQCeZnuZjWWrmnYZ9yHDXnPm6wPWk7dOlDcP96mT2vuZFMCU/w640-h480/%255BUNSET%255D)

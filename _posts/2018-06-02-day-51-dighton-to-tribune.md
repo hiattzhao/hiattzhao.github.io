@@ -5,7 +5,11 @@ date: 2018-06-02
 ---
 
 
-Yesterday, we woke up at dawn. I lubricated my chain and my crankset since I heard some clicking sounds yesterday while riding. After packing, we went to the same convenience store to get breakfast then started riding. The ride was about evenly split up between three towns, Scott City, Leoti, and Tribune, each about 24 miles apart.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgrF1c9aYSRKKoTSZTvf7JggL0Uol3sNMN9ugPsS1g6-Z9M7Kb6rDjlSgiM4h6VmKIYPTrpFnCAsTDFFtjb3xk4yCdS7kJfHnUXqN1Vw1Ca08xQVe5Vt-rK3Mb-Q5A4aSF_lAszNXcBw9U/w640-h480/%255BUNSET%255D)
+Two days ago, after I left the library in Dighton I rode to the city park. After taking a shower at the shower house, I went to the convenience store with Joe to get something to eat for dinner. I had two hotdogs with some soda and two donuts. They weren’t very healthy but that’s the best I could do. Back at the park, we pitched up our tents under the pavilion and went to sleep soon after.  
+  
+Yesterday, we woke up at dawn. I lubricated my chain and my crankset since I heard some clicking sounds yesterday while riding. After packing, we went to the same convenience store to get breakfast then started riding. The ride was about evenly split up between three towns, Scott City, Leoti, and Tribune, each about 24 miles apart.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgrF1c9aYSRKKoTSZTvf7JggL0Uol3sNMN9ugPsS1g6-Z9M7Kb6rDjlSgiM4h6VmKIYPTrpFnCAsTDFFtjb3xk4yCdS7kJfHnUXqN1Vw1Ca08xQVe5Vt-rK3Mb-Q5A4aSF_lAszNXcBw9U/w640-h480/%255BUNSET%255D)
 *Riding with sun*
 
 The ride to Scott City was the best because the weather was cooler. I rode ahead of Joe since he’s slower with the trailer. Once I got to Scott City, I went to Casey’s General Store and bought a slushy to cool me off then I waited for Joe. He arrived about 20 minutes later.  

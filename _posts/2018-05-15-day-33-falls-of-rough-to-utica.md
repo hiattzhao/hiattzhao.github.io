@@ -5,6 +5,8 @@ date: 2018-05-15
 ---
 
 
+This morning, Crispin and I woke up around 5 AM. After packing, we went to the gas station convenience store next door from the motel. At 6 AM, the waitress opened the door for us. I had two eggs, sausages, and biscuits for breakfast. Crispin chatted with the waitress about our trip thus far. We learned the waitress’s name is Nicole and she’s been working as a cook and a waitress for a long time. I guess there just isn’t much opportunities around the area. She’s probably one of the few people who stayed around.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiHqZ8eg-G0LloQ587h8QZS2PnTizlw7Uh1hmV_IK4uZb1g7KpQ6CL3xVrMFwTcGITAD7bJKu2gGGJi1Y5rXyCUAF326owyrXcp52sRH3WQ7Zycs9bmwUHdqRkLgtXQUTxeOH0gBW4yXwM/w640-h480/%255BUNSET%255D)
 *The morning sun hiding behind the trees*
 

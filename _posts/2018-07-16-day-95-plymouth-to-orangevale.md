@@ -5,7 +5,11 @@ date: 2018-07-16
 ---
 
 
-I must have slept for about ten hours. When I awoke the sun was about to rise. I packed up everything and decided to go south about half a mile to Donut Street Cafe for breakfast. I had a donut, obviously, and a cup of coffee. The sun came up the horizon as I enjoyed my meal.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiTX91hCa6sFQSHCHr4gR9uiLu7Fv1S6uIsnNdBzSdi8p8HQZ3PU2paLCDLAY09jeZYULQuI9g2kJ8FlmCZ4TZIdhk__YpHxeq4te2NOddX2c_Lwm65CMkYENM3foAzHcTJJ3-9SAngpuc/w480-h640/%255BUNSET%255D)
+Two days ago, I came back to the Plymouth fairgrounds after writing my blog post at the Prospect Cellars. Once I set up my tent I hung around the campsite until the sun was about to set, then I went to sleep.  
+  
+I must have slept for about ten hours. When I awoke the sun was about to rise. I packed up everything and decided to go south about half a mile to Donut Street Cafe for breakfast. I had a donut, obviously, and a cup of coffee. The sun came up the horizon as I enjoyed my meal.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiTX91hCa6sFQSHCHr4gR9uiLu7Fv1S6uIsnNdBzSdi8p8HQZ3PU2paLCDLAY09jeZYULQuI9g2kJ8FlmCZ4TZIdhk__YpHxeq4te2NOddX2c_Lwm65CMkYENM3foAzHcTJJ3-9SAngpuc/w480-h640/%255BUNSET%255D)
 *Watching the sunrise as I ate my breakfast*
 
   

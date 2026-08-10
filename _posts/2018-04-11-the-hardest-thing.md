@@ -5,6 +5,8 @@ date: 2018-04-11
 ---
 
 
+In two days I will going on the greatest solo journey of life so far. I can’t help but think about my previous solo trips: when I traveled to Europe alone for 30 days in 2016, my road trip up the Hudson River in 2014, and my 45 days around the US solo bus trip in 2003 when I was 19 years old. I want to take a moment to reflect on that particular trip.  
+
 I remember I didn’t sleep well at all the night before my bus trip. My grandma and mom put an enormous amount of guilt on me by saying that my grandma would have a heart attack if I go. They told me I would get SARS, a disease that was infamous at the time. And they called me selfish, among other things. The only person who really supported me secretly was my stepdad. He knew that the world is generally a safe place and that 99.99% of the people are good.
 
 I was stressed out before my trip. It was the first trip I’m taking as a young adult and I did my best to prepare, putting everything I think I’ll need in one backpack. In Newark, NJ, once I got on the first of many Greyhound buses, I felt a great relief and everything turn out fine throughout my trip.

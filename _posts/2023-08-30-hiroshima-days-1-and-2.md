@@ -7,7 +7,9 @@ date: 2023-08-30
 
 # Day 1 (August 28)
 
-I arrived in Hiroshima two days ago via the Shinkansen bullet train. Hiroshima is famous because of the detonation of the first atomic bomb dropped by the United States in WWII.When I first arrived at the train station, I walked by the Hiroshima Castle. I didn't bother to go in because I was separated by a moat from the castle, and the fact that I've seen enough castles that they all looked the same to me except different colors. The Hiroshima Castle's nickname is the Carp Castle.
+I arrived in Hiroshima two days ago via the Shinkansen bullet train. Hiroshima is famous because of the detonation of the first atomic bomb dropped by the United States in WWII.
+
+When I first arrived at the train station, I walked by the Hiroshima Castle. I didn't bother to go in because I was separated by a moat from the castle, and the fact that I've seen enough castles that they all looked the same to me except different colors. The Hiroshima Castle's nickname is the Carp Castle.
 
 At the Peace Memorial Park, I saw the Atomic Bomb Dome, which the bomb exploded right above it. Somehow it stood standing and marked as a symbol of the bombing. I walked to other sights around the park before checking into the hostel. I ended up having a delicious tsukemen, or ramen dipped in sauce, at a local restaurant called Karabu that's ran by two guys.
 

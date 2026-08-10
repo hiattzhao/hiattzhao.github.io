@@ -5,6 +5,8 @@ date: 2018-06-06
 ---
 
 
+Yesterday after breakfast, Joe and I rode south into town. We parked our bikes in front of the bike shop and decided to walk around a bit. First, we each had a frosty at Wendy’s. Then we walked down to Rita’s Mexican Food restaurant. I had a combination plate consisted of a taco, a burrito, and an enchilada. The food was average, I’ve had better.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhfCxq5YlfmFIDWu-mfpBqbadHILYjGVlZVGZ_v9kGExPy7vcSLAaM5vZ2EmbmDLrVm8q-EA9BynxWPul8v2qYTtBmCb2DflHz3YkrlOeHFx9j7l-2zEK2JSTmHPCVyAT-4nW6cPKB_TWg/w640-h480/%255BUNSET%255D)
 *Architecture in Pueblo*
 

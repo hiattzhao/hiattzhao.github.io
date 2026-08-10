@@ -5,6 +5,8 @@ date: 2018-04-19
 ---
 
 
+The night before last night, I had camped out behind the fire station in Hunt Valley. With the wind, the cold, the intercom speaker, and the birds chirping starting at 3:30 AM, I barely slept. I went to a McDonald’s nearby but it wasn’t open until 5 AM. I ended up talking to a gentleman named Rich (whose real name is Eric) for about half an hour while we both waited to get in. I ordered a cup of coffee so that I can be more awake.  
+
 Paul, my host from York, had suggested that I take the light rail from Hunt Valley to BWI (Baltimore Washington International airport) then ride to Washington DC area. He even printed out the directions for me from BWI to Union Station in DC. So I got on the light rail at 6 AM.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg9hgt5FZyaZtTegQsjdufC_8xFZj-m2ousef58ZFhnPyx8FBCM1uc8ZDLve8pK1bQ1QpZKOV4DSG8zj0ddZHcuMSOqJghoFGD6_d3EKULS_PAd0AQIAtFdPzOnTzZZ0CkUMGlRO7wosGM/w640-h480/%255BUNSET%255D)

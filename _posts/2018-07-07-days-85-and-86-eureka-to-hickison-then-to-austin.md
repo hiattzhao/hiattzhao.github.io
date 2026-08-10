@@ -5,6 +5,8 @@ date: 2018-07-07
 ---
 
 
+Three days ago, at the Eureka city park, I was just listening to some music at the pavilion when two men showed up with some picnic items. They were going to have dinner at this park and enjoy the July Fourth fireworks before driving down the road to a campground. I learned that their names are Gary and Bob. They have been friends for a very long time. Every year, they take some time off to camp and hike together. Gary and Bob invited me to eat dinner with them. Bob made a killer salad and Gary cooked some corn and peas. I didn't expect this meal at all and I'm so grateful for these wonderful hosts!
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEig7GoOxa9mqNlY0AHV-rYpIOij87oHelCOt_GKbA7fpifjJL1XgqzySmQcw0puhVlvCRL60ZitiAkZKXJVMwhryQ21gquMxuZcmATP1fNSqq2W091koPFmaX0V0-TQGoAmavSRIV5gSOo/w640-h480/%255BUNSET%255D)
 *Bob and Gary*
 

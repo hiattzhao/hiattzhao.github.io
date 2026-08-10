@@ -5,6 +5,8 @@ date: 2018-05-27
 ---
 
 
+Just as I was finishing writing my post, a cyclist arrived. His name is Joseph and he’s riding from Pueblo, Colorado, to Ohio to visit his family. He told me that he loves this park because of the WiFi and the showers. I showed him the flies and the raw meat on the picnic table. He was disgusted but still determined to stay. Joseph ended up removing the raw meat with sticks and bought liquid soap and rags to clean the picnic table. I went to Jim’s Steakhouse not far away to have a chicken sandwich for dinner.
+
 When I came back to the park, the picnic table is all cleaned thanks to Joseph. I’m so grateful for him. I would have not done that at all. After Joseph ate his meal, he started to play his ukulele. I’m surprised at the things he brought with him, and the things he didn’t bring, such as a tent. We ended up sleeping underneath the pavilion for the night.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjjtQL0FP-KEO8eRfj4KwjW__k-0bseE8Z8H7FEiacE0NI9pbve3vo2vO_z3YTSrC87JIOjuDMEyVhff_2mUPhP9fVwb_wLGCXrRrjVXfaf4RYm_K-WTFlsZ32PKBjQ_eDIMjMF_jWTGQk/w480-h640/%255BUNSET%255D)

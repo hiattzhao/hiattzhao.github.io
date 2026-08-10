@@ -5,6 +5,8 @@ date: 2025-12-15
 ---
 
 
+I've been back home for four days and it's time to do a trip report. I'm also including some websites and apps that have helped me with planning and traveling. I hope they will help others as well.
+
 First is a summary of my trip in terms of the routes I've taken. I started the trip on a bicycle and bike toured to Canada, United Kingdom, The Netherlands, Germany, and Poland. I had to store my bicycle in Wroclaw, Poland, since the weather got cold. Then I backpacked to Prague and Dresden before taking a flight to Cyprus to get out of the Schengen Area. I then went to Jordan and Egypt before coming back to the US.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpldD5tDK72pX5xKQGN6dB0pCy4xpxsGWPzDsX7gnbX4KcSSGGEFJyGJVTQtE4MVZO-xJlC8o5yiJmB-597euxJklseRJeBNwwpIdEQhVtrfCX8XMVVopqDctN4RfgVvods6LMMAuhUxRF32175eDLQ4Bmq54ymXaFnjq19i1C0wRtFuDKn9R-0UHOYnQ/w640-h418/1Map.jpg)
@@ -23,7 +25,7 @@ The most expensive countries in descending order are the United Kingdom, The Net
 
 Here's how I plan my trip:
 
-1. Visit[https://travel.state.gov/en/international-travel.html](https://travel.state.gov/en/international-travel.html) and research about visa requirements. I also use [https://www.passportindex.org](https://www.passportindex.org) to get an overview of visa requirements, but I rely on the state.gov website for official information.
+1. Visit[https://travel.state.gov/en/international-travel.html](https://travel.state.gov/en/international-travel.html) and research about visa requirements. I also use [https://www.passportindex.org](https://www.passportindex.org) to get an overview of visa requirements, but I rely on the state.gov website for official information.
 2. Check for ETA (Electronic Travel Authorization) for the destination country since some countries require you to register and submit an online form before arrival. Examples include the United Kingdom, The Philippines, and others.
 3. Make sure to check if the country requires an onward or a return flight ticket. You can do that by a simple Google search. Some places won't let you board the plane if you don't show an onward flight ticket.
 4. I book all my flights using[Google Flights](https://www.google.com/travel/flights). Another good option is [Skyscanner.com](http://Skyscanner.com).

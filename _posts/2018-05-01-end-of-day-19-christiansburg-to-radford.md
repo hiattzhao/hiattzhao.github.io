@@ -5,7 +5,11 @@ date: 2018-05-01
 ---
 
 
-After I took a shower, Keith gave me a ride to Latino’s Taste, a local restaurant not too far. I ordered three pupusas, a tamale, and four tacos. I was a happy camper. After dinner I decided to walk a little further downtown, but there wasn’t much to see. I decided to walk back to the house.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhgcM6LiPJ_tssbny90TflfqwWs9rAyrqT4xfiarkpdGc8Pbtt1-yKFG9pmqcL6icn5Gog3wDSjb1WhVPnxEimRWkGy059Jmdg0NNwsbxKxdZ4pfdyc0R9twYBwmsDpUKVxpz52L3AFE_M/w640-h480/%255BUNSET%255D)
+After leaving the Burger King in Christiansburg I rode about 12 miles to Radford. The road is the usual ups and downs. I was able to find a host so I got lucky. His name is Keith and his girlfriend, Shannon, lives with him. They also have a three legged dog named Ida Mae.  
+  
+After I took a shower, Keith gave me a ride to Latino’s Taste, a local restaurant not too far. I ordered three pupusas, a tamale, and four tacos. I was a happy camper. After dinner I decided to walk a little further downtown, but there wasn’t much to see. I decided to walk back to the house.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhgcM6LiPJ_tssbny90TflfqwWs9rAyrqT4xfiarkpdGc8Pbtt1-yKFG9pmqcL6icn5Gog3wDSjb1WhVPnxEimRWkGy059Jmdg0NNwsbxKxdZ4pfdyc0R9twYBwmsDpUKVxpz52L3AFE_M/w640-h480/%255BUNSET%255D)
 *Pupusas, among others*
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEihfaKVuzPQyEDYkVzSafW2aSSCAedy8UPcnbRQUYMo_RrGMYCOQoNVVrXYq9hV_aMf8a8-y8Fci3r4OMUsZbIEarMSG22ZRCcKojCe2bcHrjQa3YrwwQaZTI9FlOT3F3hCEa5lHUmGBcE/w640-h480/%255BUNSET%255D)

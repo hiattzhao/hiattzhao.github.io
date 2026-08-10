@@ -5,6 +5,8 @@ date: 2018-05-28
 ---
 
 
+This morning at Rick’s, I had a bagel and fruits for breakfast, along with a cup of coffee. Soon after, I packed my bike and said my goodbye to Rick. Rick was very kind and gave me two bottled water to help sustain my ride.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiUwlatVBdv0AIJ7heCz9pYla1EFo2Vy4Gl_lwxX9Qkgo_IOp7YGt9EtzaijvPsPkjPOO9gT3WzELWDaKG-ulTaGSv_KH6xWfG7bwvKdtyp6wDTddC4C5T9kaJcKIzIZ_f0ne6FjKpGBGU/w640-h480/%255BUNSET%255D)
 *The flat road and the repetitive scenery of Kansas*
 

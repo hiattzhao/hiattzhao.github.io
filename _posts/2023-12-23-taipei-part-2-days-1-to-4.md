@@ -5,6 +5,8 @@ date: 2023-12-23
 ---
 
 
+I arrived from Taichung to Taipei four days ago and stayed for three nights at Meander Hostel, the same hostel I stayed before in Taipei back in October. I had good memories of the place when I met Chris, Christine, Jonathan, and Hyun here. The hostel has replaced some old furnitures and there are now new people staying there. I did see Will, the hostel volunteer, there from last time. He returned to Meander to be with his new girlfriend.
+
 I didn't do much in Taipei in terms of exploration. The weather has gotten colder, around 13 C, or about 55 F. I thought about buying a long sleeve shirt or a thicker jacket, but I have not done so yet.
 
 Yesterday, I moved to a sublet apartment called The Meeting Place that I found on Airbnb. It feels more like a dorm. It has four bedrooms and each bedroom has about four beds. Most of the people staying here are either students or workers. I paid NTD 8000, which is about $260, for 30 days of staying. This is much cheaper than any hostel in Taipei. For some reason, the hostel prices are much more expensive during this time of the year.

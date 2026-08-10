@@ -5,7 +5,11 @@ date: 2018-04-21
 ---
 
 
-The ride was mainly on the roads with the morning commute. When I got to a bagel shop in Chevy Chase, I wasn’t hungry. The tricky part was getting on the trail to Bethesda. There was a gate at the trail that said “No Trespassing, Trail Closed,” but the gate was open. I decided to give it a shot and see if I can just ride it anyway. The trail was very muddy and bumpy so I had to go slow. By the time I got to the end, there was another another gate, only this time it’s locked and I can’t get out. I was disappointed and thought I might have to ride my bike back to Chevy Chase and find another way. But then I saw a side gate and it’s unlocked for some reason. So I opened it and got out of the closed trail. That was a close one. I guess sometimes when one gate is closed, another one is opened. Such is life.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimZfNcSHTTK0gpnc4y4APo6ZlprIk6uEtkXsJCsrOumgJrgq8NNJPLiegcsD75QooqfMibCF0XoJ2jVMWwL5fbHkT9xp-iiV23Cc5QMQYOnXaRZIhPGQlUqXNGWN7oHcIe8PWUhg2KpW8/w640-h480/%255BUNSET%255D)
+Yesterday morning, I woke up with sneezes and woke up Brandi by accident. After taking an allergy pill I felt all better. Brandi and I chatted a bit in the morning, and I had another slice of her amazing banana and strawberry bread. After we bid farewell, I started my ride to Chevy Chase, hoping to get breakfast there.  
+  
+The ride was mainly on the roads with the morning commute. When I got to a bagel shop in Chevy Chase, I wasn’t hungry. The tricky part was getting on the trail to Bethesda. There was a gate at the trail that said “No Trespassing, Trail Closed,” but the gate was open. I decided to give it a shot and see if I can just ride it anyway. The trail was very muddy and bumpy so I had to go slow. By the time I got to the end, there was another another gate, only this time it’s locked and I can’t get out. I was disappointed and thought I might have to ride my bike back to Chevy Chase and find another way. But then I saw a side gate and it’s unlocked for some reason. So I opened it and got out of the closed trail. That was a close one. I guess sometimes when one gate is closed, another one is opened. Such is life.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimZfNcSHTTK0gpnc4y4APo6ZlprIk6uEtkXsJCsrOumgJrgq8NNJPLiegcsD75QooqfMibCF0XoJ2jVMWwL5fbHkT9xp-iiV23Cc5QMQYOnXaRZIhPGQlUqXNGWN7oHcIe8PWUhg2KpW8/w640-h480/%255BUNSET%255D)
 *When one gate is closed...*
 
   

@@ -5,6 +5,8 @@ date: 2018-05-29
 ---
 
 
+This morning, I departed Janet's place soon after writing my previous blog post. I had a mediocre breakfast buffet at The Breadbasket restaurant in downtown Newton. Today's ride is an easy one since I'll be only going about 50 miles on mostly flat roads.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiKEsV68d5ZJKd-d5DsrFisPnpCu1maECuScS6QISNg7Z_mfIYNORbq-OYLDGUCCuaTNY1HjLoDwM8lgzcuuBOcdiynC7Ew1kn0fN7GtQrrzoSs175OvxbRsJBvsRg_TxhZT0P51dCqJkk/w640-h480/%255BUNSET%255D)
 *Breakfast buffet at The Breadbasket*
 

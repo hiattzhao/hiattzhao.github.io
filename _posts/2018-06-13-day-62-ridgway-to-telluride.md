@@ -5,7 +5,11 @@ date: 2018-06-13
 ---
 
 
-Back at the Warmshowers host’s house, I sat in the backyard and watched the mountains, with the cows in the foothills, while eating my chips and drinking iced tea. I went to sleep on the living room floor quite early, around 8 PM.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiq6vasA7p_ptsy5vU5jrClwDwMmIcMxXKfagmPPiy0NrOXlxwLkAiV8d7xrtkLY7WkgImTIC7CwOOrcdoVcFvrT6QgONPeeIxbGDt1MeybS5BDu7WpvLhZIQGFZfERsonFiSuimBCpdvI/w480-h640/%255BUNSET%255D)
+Day before yesterday, after I went to the library in Ridgway, I ate a delicious burger at Eatery 66. I walked around downtown a bit more, but I was still feeling a little hungry. At the Mountain Market, I bought a bag of vegetable chips and an iced tea. I would have bought more things but the prices are almost doubled to what I’m used to at home.  
+  
+Back at the Warmshowers host’s house, I sat in the backyard and watched the mountains, with the cows in the foothills, while eating my chips and drinking iced tea. I went to sleep on the living room floor quite early, around 8 PM.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiq6vasA7p_ptsy5vU5jrClwDwMmIcMxXKfagmPPiy0NrOXlxwLkAiV8d7xrtkLY7WkgImTIC7CwOOrcdoVcFvrT6QgONPeeIxbGDt1MeybS5BDu7WpvLhZIQGFZfERsonFiSuimBCpdvI/w480-h640/%255BUNSET%255D)
 *Enjoying the afternoon*
 
 The next morning, I was awaken by the sound of the fireplace. It had automatically started. I texted Deborah as to what I should do. She told me to unplug the power cord. After doing that, I slept for about an hour more and got up at around 6:30 AM.

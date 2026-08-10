@@ -5,6 +5,8 @@ date: 2023-12-08
 ---
 
 
+I arrived in Kaohsiung, Taiwan, four days ago. The hostel here is the best hostel I've stayed in terms of its facilities. It's called Ahiruyah. Everything is clean and tidy. The staff cleans the place everyday. One thing that I had an issue with was the dryer. It didn't dry.
+
 The first morning at Ahiruyah, I met a Slovakia traveler named Juraj. He was going to take the subway then the bus to Fo Guang Shan Buddha Museum to volunteer for a month. I decided to go with him since the Buddha Museum is on my list of places to visit.
 
 Actually, Fo Guang Shan has some significance for me. My grandma, who has now passed away, used to visit the Fo Guang Shan temple in Flushing, New York. She would have loved to visit the headquarters of Fo Guang Shan.

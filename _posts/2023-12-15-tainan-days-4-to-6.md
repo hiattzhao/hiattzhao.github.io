@@ -5,6 +5,8 @@ date: 2023-12-15
 ---
 
 
+I'm really not sure what I have is Covid or a bad cold. I tried to find a Covid test kit at a 7-Eleven and a drug store called Watsons, but none of them have a test kit. I can taste and smell after all, so maybe it was just food was bland.
+
 I couldn't sleep the night before last night since I thought I was allergic to the bedding in the hostel. I would cough and wheeze every time I came into contact with the blanket, the bedding, and the pillow case. I tried to sleep in the common room the night before since it's more ventilated and that was better. But I still coughed for the most part.
 
 I didn't walk too far out during the day since I needed to rest more, but I did walked around the neighborhood immediately surrounding the hostel. I checked out Snail Alley and some nearby temples, which I'm beginning to get tired of seeing. Yesterday, I walked to Anping Old Street that's about an hour away. I visited the historical Anping Old Fort where the first Westerners arrived in Taiwan and admired the Anping Tree House that has old trees roots growing over the walls of an abandoned building.When I came back the hostel, the staff changed my bedding, the duvet, and the pillow case. My guess is that I was allergic to the chemicals used in the cleaning of the sheets. The hostel owner suggested that I move to a different hostel, so I checked out. Instead of giving me a full NTD 400 refund, he gave me NTD 350. I didn't ask why he shorted me 50 and I thought I wouldn't care, but it bugged me on my walk to the new hostel.

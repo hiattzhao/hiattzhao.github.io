@@ -5,6 +5,8 @@ date: 2018-05-03
 ---
 
 
+Yesterday morning, I woke up at 6 AM. Soon, Tripp woke up too. We gathered up our things and then went to the cafe on Main Street, but I didn’t open until 8 AM. The place that opens the earliest is Skeeter’s at 7:30. So we rode two blocks and waited for 30 minutes for the restaurant to open.
+
 We ate breakfast together. Nothing special, just fried eggs, sausage, and toast. It was the calories I needed. We bid farewell after breakfast since Tripp is going east and I’m going west.  
   
 I rode about 12 miles to Rural Retreat. At the Subway, I ordered a foot long turkey sub and ate half of it. The other half I carried on the road to eat later.

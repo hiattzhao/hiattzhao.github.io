@@ -115,7 +115,3 @@ Having little to live on, one knows better than to value life too much.
 These passages are life reminders to live a simple life. I view them as guide posts, but they ring so true to me that they are a set of life laws to follow.
 
 I hope you’ve also found wisdom in these passages. Also check out the book in its entirety as it also talks about leadership, which is a great asset to any business person. I can’t recommend this book enough!
-
-```css
-p, li { white-space: pre-wrap; }
-```

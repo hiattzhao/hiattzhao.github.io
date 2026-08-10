@@ -5,11 +5,15 @@ date: 2018-04-13
 ---
 
 
+Today I got up around 9 AM. After moving my bed in the basement and cleaned my room in the morning, I was able to fit my bike in the trunk of my car with my girlfriend Diem’s help. At 11 or so, I drove for about 25 minutes to Riverbend Cycles bicycle shop in Conshohocken, just northwest of where I live.  
+  
 I checked out the shop briefly. It has a nice cafe attached to it. There I talked to two bicycling ladies about cycling. I noticed one of them has the exact bicycle mirror as me. I saw she had attached it to her glasses, not on the helmet. That gave me the idea to do the same since I know the mirror would fall off the helmet for sure.  
   
 Diem’s friend, Hoang, took an Uber to meet us at the bike shop. He will be the one driving my car back. We grabbed lunch at Cafe Zoe and Pizza nearby. I had a lamb gyro and some fries, along with soda. It was pretty filling.  
   
-We walked back to the bike shop and I got my bike out of the trunk. Before attaching everything, just for fun, I let Diem sit on the bike rack and took her for a short ride in the parking lot. After I loaded everything, Hoang said the back tire is a little flat. I think it’s because of the weight of the panniers.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEidyP6iDUXeIwZ-EPggOD4HkQw25hwUqeIhkefeFyBv4SCZJccWXWecHCKxVrMmbYWT8PVSXVeUt41s5SC6p7VXSryCPOE7dKsLa2ZiROEEscR1Vu5exmw8zkP0VZOO3uawyc-ZkMTzjHw/w640-h480/%255BUNSET%255D)
+We walked back to the bike shop and I got my bike out of the trunk. Before attaching everything, just for fun, I let Diem sit on the bike rack and took her for a short ride in the parking lot. After I loaded everything, Hoang said the back tire is a little flat. I think it’s because of the weight of the panniers.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEidyP6iDUXeIwZ-EPggOD4HkQw25hwUqeIhkefeFyBv4SCZJccWXWecHCKxVrMmbYWT8PVSXVeUt41s5SC6p7VXSryCPOE7dKsLa2ZiROEEscR1Vu5exmw8zkP0VZOO3uawyc-ZkMTzjHw/w640-h480/%255BUNSET%255D)
 *The starting point with me, Diem, and Hoang*
 
   

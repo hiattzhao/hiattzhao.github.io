@@ -5,6 +5,8 @@ date: 2018-04-14
 ---
 
 
+This morning I got up at 6:45 AM. I didn’t sleep well last night since my legs and my back were aching the entire night. I left Mark and Sue’s house at 8, after taking a picture of both of them in front of their cherry tree.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEheBCXBd31-letlJoTGa-Cs2234cIntJCkwkluHUTXPNpNfXxTxRisXLEw06G5JphEXqXq4vG7js0KNOkAbQ25KkMTAWjk8OW9d7xnMqJKlHKi5w1zj9o-OZ0zcml2ExkwxQtC1vs2tDc0/w480-h640/%255BUNSET%255D)
 *Mark and Sue*
 

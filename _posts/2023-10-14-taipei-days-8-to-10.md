@@ -5,6 +5,8 @@ date: 2023-10-14
 ---
 
 
+I don't remember doing too much on Wednesday. I hung out with Hyun and a German traveler named Dominic for a bit when we went out for a late lunch. Thursday around noon time Chris arrived at the hostel. He immediately clicked with the few friends I had met at hostel. These include Jonathan, a French traveler, Christine, a Chinese-French girl, and Hyun. In the afternoon, Jonathan, Chris, and I went to Sun Yat-Sun Memorial Hall. We then went up to the 89th floor of Taipei 101 and watched the sunset. We also met Hyun at Taipei 101 by chance. I had to go on a date with a Taiwanese girl at 6 PM so I left Chris, Jonathan, and Hyun.
+
 The date was good overall. I had never dated a Chinese girl before so I felt awkward during the conversation at times. I think it's a cultural difference. When I came back to the hostel I met up with Chris, Jonathan, Hyun, and Christine at an izakaya restaurant, which is a Japanese bar. We ended up going to a karaoke place and didn't come back to the hostel until 1:30 AM. I was so tired by the time I came back.
 
 Yesterday, I was the tour guide again and brought Chris to the 228 Park and the Chiang Kai-shek Memorial Hall before meeting Christine, Hyun, and Jonathan for a late lunch at a noodle shop. In the afternoon, Chris and I went to Longshan Temple and the night market nearby called Guangzhou Street Night Market.

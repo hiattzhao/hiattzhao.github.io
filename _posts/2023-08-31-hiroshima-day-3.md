@@ -5,6 +5,8 @@ date: 2023-08-31
 ---
 
 
+Yesterday was a museum day. In the morning, I went to the Hiroshima Peace Memorial Museum. Its exhibit was very moving for me. There were a lot of artifacts from August 6, 1945, the day of the first atomic bombing. It made me think about how nuclear power was necessary to save American lives in WWII, but caused great tragedy for the Japanese civilians. Later, the proliferation of nuclear weapons in other countries made everyone nervous of a total elimination of the human race. There is still more work to do to reduce the number of nuclear weapons.
+
 In the afternoon, I took the subway two stops from the JR Hiroshima station to the Mazda Museum, which required a reservation in advance on their website. Mazda makes my favorite sports car, the Miata, and I was excited to visit the museum. There was a tour guide who spoke English and gave all of us a guided tour. I learned about Mazda's design philosophy and saw their assembly line, though I couldn't take any photos of it due to security reasons. The assembly line actually makes all the models of Mazda's passenger cars, which was impressive.
 
 After getting back to the hostel, I was tired. I had spent the whole day out. I had a great time in Hiroshima. I did notice the city has a weird layout due to its river system. There are around five rivers that run through the city. I found that to be very interesting since I haven't seen anything like it in any of the cities I've been to.

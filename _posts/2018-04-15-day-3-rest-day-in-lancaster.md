@@ -5,13 +5,19 @@ date: 2018-04-15
 ---
 
 
-It was a beautiful day yesterday. He sun was beaming at 86 degrees. In the morning, Amelia’s sister, Briege, and her boyfriend Aaron, made some ham and egg sandwiches. With a cup of coffee, they were just what I needed.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZGYYL2QJ2BDi7YAdImFhlXaBpIyohsYOpumseG6m-q1PveB7knCSMslCmAqK7QCnfRWr20QCjjv1IAQMETsPmFj7elcdo53BhISv6S2HA56bzuQ_6PT_f2cbVxqLTN7ZwSEI15x9LmnI/w640-h480/%255BUNSET%255D)
+Yesterday, I decided to stay in Lancaster the for the next few days. The main reason is the rain today and tomorrow. Amelia, and the rest of her family, were very gracious and allowed me to stay until Monday or Tuesday. The rain is supposed to stop on Monday afternoon, if it’s early enough then I’ll ride to York on Monday.  
+  
+It was a beautiful day yesterday. He sun was beaming at 86 degrees. In the morning, Amelia’s sister, Briege, and her boyfriend Aaron, made some ham and egg sandwiches. With a cup of coffee, they were just what I needed.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZGYYL2QJ2BDi7YAdImFhlXaBpIyohsYOpumseG6m-q1PveB7knCSMslCmAqK7QCnfRWr20QCjjv1IAQMETsPmFj7elcdo53BhISv6S2HA56bzuQ_6PT_f2cbVxqLTN7ZwSEI15x9LmnI/w640-h480/%255BUNSET%255D)
 *Jacqueline, Aaron, Briege, Amelia*
 
   
 I then walked a few blocks to the post office to send out a pair of sunglasses and earbuds back home. The sunglasses kept falling off my nose when I was riding. That’s why I had bought another pair at Shirk’s bike shop earlier. I don’t think I will wear earbuds on my trip since I like the sounds of the road.  
   
-At the Lancaster Central Market, there were a lot of vendors. I was going to buy some fish for dinner but they were too expensive. Instead, I bought some apricot tea for Amelia and her family. After dropping by the visitor center to pick up a map, I went back to Amelia’s.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjM5SJxTnBvAhy-42hiUcE-8SNMncvS8yiD-d56L_NjGQ_4mTko9c7lkuJEC1xnwp3Xf_lB7HxMt1L9414LBB8LL6POlgpH32j9kqU3lpWDvjW3yhk3jf9xEEZwDqtWpyP3bRxge2tH2Ow/w640-h480/%255BUNSET%255D)
+At the Lancaster Central Market, there were a lot of vendors. I was going to buy some fish for dinner but they were too expensive. Instead, I bought some apricot tea for Amelia and her family. After dropping by the visitor center to pick up a map, I went back to Amelia’s.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjM5SJxTnBvAhy-42hiUcE-8SNMncvS8yiD-d56L_NjGQ_4mTko9c7lkuJEC1xnwp3Xf_lB7HxMt1L9414LBB8LL6POlgpH32j9kqU3lpWDvjW3yhk3jf9xEEZwDqtWpyP3bRxge2tH2Ow/w640-h480/%255BUNSET%255D)
 *Lancaster Central Market*
 
   

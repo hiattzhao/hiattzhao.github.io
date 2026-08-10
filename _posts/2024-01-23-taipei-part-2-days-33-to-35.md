@@ -5,6 +5,8 @@ date: 2024-01-23
 ---
 
 
+I'm writing this post from Manila, Philippines, since I just arrived not too long ago from Taipei. There isn't much to write about for the last few days in Taipei. I met up with Pepi one last time for a vegetarian dinner before she left for Shanghai. I spent the last full day by going to my favorite park in Taipei, Daan Park. It started to drizzle as soon as I arrived there so I returned home soon after.
+
 This morning it was 8 degrees C, or around 45 degrees F, the lowest temperature since I stayed in Taipei. I only had a light jacket with me, luckily I didn't catch a cold while walking in the rain at 5:45 AM.Taiwan is definitely my favorite Asian country. I'm biased because I'm Chinese and I like Chinese food. Not only the food is great, the people are very nice. I want to explore eastern Taiwan next time I go back. I did a lot of resting and thinking in Taipei. It was a good staycation from traveling. I feel I can travel a bit more on my own. Maybe I'll discover something else I want to do in addition to traveling or something I want to do after traveling.
 
 The internet is very slow and I don't have many photos to show. There are only three pictures.

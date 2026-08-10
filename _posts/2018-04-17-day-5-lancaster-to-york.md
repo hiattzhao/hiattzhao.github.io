@@ -5,7 +5,11 @@ date: 2018-04-17
 ---
 
 
-After I chatted with Jacqueline, I walked a couple of blocks in the rain to a restaurant called The Flying Pigs on Walnut Street where I ordered the Flying Pig sandwich. I love the pull pork and the sauce they put on. When I asked the owner how long they’ve been in business, he told me he’s closing the store either Memorial Day or Fourth of July. I feel it’s such a loss for Lancaster. I’m urging everyone in Lancaster to go eat there now so that you can save The Flying Pig!![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKe1ux3Lt_Rrah1MKVkCYebv6t1hO5ZzJ74JOw30HeyQml0mlymMguYIvxez6PiikZdYUmZKO2Q6j_m3M_4oBXwuDriRu8BEiBG_kch6zp9m6xutmWC929Ho2HZacIC_dnv8hqgpQGyWk/w640-h480/%255BUNSET%255D)
+A continuation of today...  
+  
+After I chatted with Jacqueline, I walked a couple of blocks in the rain to a restaurant called The Flying Pigs on Walnut Street where I ordered the Flying Pig sandwich. I love the pull pork and the sauce they put on. When I asked the owner how long they’ve been in business, he told me he’s closing the store either Memorial Day or Fourth of July. I feel it’s such a loss for Lancaster. I’m urging everyone in Lancaster to go eat there now so that you can save The Flying Pig!
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhKe1ux3Lt_Rrah1MKVkCYebv6t1hO5ZzJ74JOw30HeyQml0mlymMguYIvxez6PiikZdYUmZKO2Q6j_m3M_4oBXwuDriRu8BEiBG_kch6zp9m6xutmWC929Ho2HZacIC_dnv8hqgpQGyWk/w640-h480/%255BUNSET%255D)
 *The Flying Pig sandwich*
 
 When I got back, I set up my panniers and strapped on the rest of my stuff on to the bike. I was wearing my full rain suit with the jacket and the pants. The only thing that’s not waterproof are my shoes. Oh well. I said goodbye to Luke and Jacqueline and hit the road again.  
@@ -35,6 +39,6 @@ Tim is a 32 years old English cyclist who has been biking on the road for three 
 
 Tim is going to Lancaster so I connected him with Amelia. I think Amelia will enjoy Tim’s stories. I also called my parents to ask them if Jacqueline, who will be going to Pittsburgh next month, if she and her boyfriend can stay with them. They said yes. I’m glad to have helped. Paul wanted to tell me a better way of going to Silver Spring, MD, where I will be staying with my good friend, Brandi and her fiancée Judy, for a day or two. I’ll have to figure that out tomorrow morning.  
   
-I took a much needed shower and then talked with Jane and Tim while Paul went to bed. I was surprised that Jane said I was very analytical and mathematical. I didn’t know she was so analytical, too! As it turns out, she worked as a special education teacher. I told Jane and Tim about my idea of running for a political office, as it turns out I’m eligible to run for governor or senator. But my next chance will have to be in 2022. Bummer.  
+I took a much needed shower and then talked with Jane and Tim while Paul went to bed. I was surprised that Jane said I was very analytical and mathematical. I didn’t know she was so analytical, too! As it turns out, she worked as a special education teacher. I told Jane and Tim about my idea of running for a political office, as it turns out I’m eligible to run for governor or senator. But my next chance will have to be in 2022. Bummer.  
   
 At 10:30 PM, Tim went to bed. And at 11, Jane went to bed. It’s almost midnight, I guess I should go to bed, too.

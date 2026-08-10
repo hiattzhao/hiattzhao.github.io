@@ -5,6 +5,8 @@ date: 2018-04-27
 ---
 
 
+After Sarah and Bob woke up yesterday morning, we went to get breakfast at Bodo’s Bagels, a famous shop recommended by Tammy before I left for the trip. Their bagels are soft and they make for perfect sandwich breads. I had a ham and cheese bagel, along with a cup of orange juice.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiwCVK7lR19zzQpvdrqZ-x5jkAXfa8iqekCQfuRtvsC1CHmcHOsDeyY2a8dEUk0jYHpUwzizQFtt4KOD-sv7sxb845057w6pG9G6BiAbYv_pNLW43-0PrMQdxXKYP0NNQrce0g0R5Jce-k/w640-h480/%255BUNSET%255D)
 *At Bodo's Bagels*
 

@@ -5,6 +5,8 @@ date: 2018-05-01
 ---
 
 
+Last night was a bit cold and there was a layer of frost on my tent. I was awakened by the chirping of the birds. The moon was still out and the sun was sneaking up. I packed up my tent, sleeping bag, and sleeping pad. It was still early and Keith and Shannon were still asleep. I decided to pick out three photographs from my stash of pictures that I reserved for hosts and gave them to a very sleepy Keith. I hope he didn’t get offended that I left early.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLtDP1zuZNtFo1-t3Ntfrwt4MfteU1CxlW1jyw31PfYU62hy59pxyR56HUxO8N96fQc2SH0NtrZGyxPzLVXEHiRB1c4fMQfYdBzkIaAOSZapVJW5uhi1o4GjRuNWwc_lz-mJzYf5ZZzqs/w480-h640/%255BUNSET%255D)
 *Woke up and the moon is still there*
 

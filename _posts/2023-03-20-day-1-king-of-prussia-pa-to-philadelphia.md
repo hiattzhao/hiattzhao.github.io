@@ -27,7 +27,7 @@ I’m carrying a total load of 55 pounds of stuff, adding 165 pounds of myself, 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiYNn5GUK4eAGuB_kZ_L1_b0UUa_O96BqwWbnaTBuEAdaAkJ837ROgxS1cotI9ORUFNWQLaWxDntik1d2Bki3zhS7gS2ud3T7dbTcXLl2qNCmLjdva_-gCvDOoMCIIEMVhqyeBlmsjAH0FwnWnAp8ABK27P3O1vqpYVL3cPCNPBU3gtnM5lnA-03lZ_/w640-h480/PXL_20230320_165042036.jpg)
 *The new Chester Valley Trail connector*
 
-After I got on the Chester Valley Trail going east, I rode it through Bridgeport and Conshohocken. I had to take a photograph of what was then Riverbend Cycles. That was the start point of my 2018 trip. Now it’s called The Tricycle. The place brought back good memories when[my girlfriend at the time and her friend sent me off](https://www.hiattzhao.com/2018/04/day-1-from-conshohocken-pa-to-elverson.html).
+After I got on the Chester Valley Trail going east, I rode it through Bridgeport and Conshohocken. I had to take a photograph of what was then Riverbend Cycles. That was the start point of my 2018 trip. Now it’s called The Tricycle. The place brought back good memories when [my girlfriend at the time and her friend sent me off](https://www.hiattzhao.com/2018/04/day-1-from-conshohocken-pa-to-elverson.html).
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgE6euAO8cq8xH94TCV_6QnCm90-O5pkWGK7jV2UrrsH2T1G39FDn8-0gFHjh8NPDSxAy0iyDMxZCB_MEdneifJ-QKRdGoOAbWKWrUWSfZaFG1b65DzQwPAq74dxdsv3RVI2wjlF05FpJd537zXsp6DZ3QLhEEmEw9fdvKDAwnxvMuBEJD6tSeWapUo/w640-h480/original_71a38926-1c46-4064-88d4-c8ad789cbe7b_PXL_20230320_180248182.jpg)
 *The building that was Riverbend Cycles*

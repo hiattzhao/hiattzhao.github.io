@@ -5,7 +5,11 @@ date: 2018-04-20
 ---
 
 
-I had always thought the front of the capitol is the one facing the big lawn and the Washington Monument, but it’s actually the other side that’s the front. I went inside the visitor center and got a ticket for the guided tour.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhf8nr8oPHR49YiAJPgsw7LvZtuydOecpubcwdgdA7EIlpqVW18m5FPyN28b5aSMAYgwwzHcN8DSojz8ZCxf60HmsRX9BaE_6eZ17Ro3vSUHFSJni48I_e_YZSADDKUtjwBq28edR2vmRs/w640-h480/%255BUNSET%255D)
+I took the metro from Silver Spring to Union Station in Washington DC soon after writing my last post. Brandi had let me borrow her metro card so I was good to go. After getting to DC, I had a pulled pork sandwich at Cafe Phillips, then I went to the US Capitol.  
+  
+I had always thought the front of the capitol is the one facing the big lawn and the Washington Monument, but it’s actually the other side that’s the front. I went inside the visitor center and got a ticket for the guided tour.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhf8nr8oPHR49YiAJPgsw7LvZtuydOecpubcwdgdA7EIlpqVW18m5FPyN28b5aSMAYgwwzHcN8DSojz8ZCxf60HmsRX9BaE_6eZ17Ro3vSUHFSJni48I_e_YZSADDKUtjwBq28edR2vmRs/w640-h480/%255BUNSET%255D)
 *Front of the US Capitol*
 
   

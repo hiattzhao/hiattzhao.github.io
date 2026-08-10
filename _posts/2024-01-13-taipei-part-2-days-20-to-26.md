@@ -5,6 +5,8 @@ date: 2024-01-13
 ---
 
 
+Last night, I slept for 17 hours. That's a new record for me. But the night before I only had about 5 hours of sleep. The reason my sleep schedule is off is because I've been working.
+
 I'm making a new photography website that will feature brand new photos that I've never shown before. They are all from my abstract architecture reflection series. I've been busy sorting, selecting, and editing the photos for the past 5 days. The website will allow visitors to view and purchase my prints directly all in one place.
 
 The impetus for starting, or rather restarting, a photography website is when I had a conversation with my friend Crispin. I was wondering how I would fund my travels indefinitely and he suggested that I should sell my photos. Though I've had several photography websites before, I've never successfully made a website where visitors can purchase my photos with ease. I'm hoping to get this website done before my 40th birthday.

@@ -5,6 +5,8 @@ date: 2018-06-10
 ---
 
 
+Yesterday morning, Zack made some delicious burritos. They were the best I’ve had on this trip. He even gave me a second one for the trip. What a great guy!
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgCofgY59H0rJ3tBMXOQonv2Jdi8ar0NyTOkm_wUrhvgNq1BBu-h07wIBy84-j36yw2D-3EGHdyomejCkzlMRKQCAcn9w5GtvDQzzooa3sOnny8qFlLFK_bUJCmTanLxW8dd4sa99BfAUQ/w640-h480/%255BUNSET%255D)
 *Zack made some awesome burritos*
 

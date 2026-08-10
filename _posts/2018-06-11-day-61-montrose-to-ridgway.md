@@ -5,9 +5,13 @@ date: 2018-06-11
 ---
 
 
+After writing my blog, I listened to some music while waiting for Amanda and Edi to show up. It's rare that I get to listen to music on this trip. I had sent my headphones back home during the first week of the trip. Listening to music is such a pleasure and a privilege.  
+  
 Amanda and Edi came at about 8:45 AM. I helped take down some old ceiling tiles and cut new ones. I also helped paint the new tiles and put them up. Lastly, I helped paint the wall from a green color to white. I felt some physical labor is good once in a while.  
   
-Around 11:30, I said my goodbyes to Edi and Amanda. Not far away from the house is Chang Thai Cuisine. I had a plate of spicy drunken noodles before hitting the road.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj91KSHYNRxHvKQOmR24VDrK-5J-QtzWBOzXL8E6QED2wp4oFRqNFAvzJHwibGoWcmxC_hlo9M1OKE_FTmfzVtNBNaGv0mceT_YN-26sA-C710_jKvrMKd-JxtVEsQUul_1oT3ytu1N39w/w640-h480/%255BUNSET%255D)
+Around 11:30, I said my goodbyes to Edi and Amanda. Not far away from the house is Chang Thai Cuisine. I had a plate of spicy drunken noodles before hitting the road.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj91KSHYNRxHvKQOmR24VDrK-5J-QtzWBOzXL8E6QED2wp4oFRqNFAvzJHwibGoWcmxC_hlo9M1OKE_FTmfzVtNBNaGv0mceT_YN-26sA-C710_jKvrMKd-JxtVEsQUul_1oT3ytu1N39w/w640-h480/%255BUNSET%255D)
 *Drunken noodles never fail*
 
 It's only about 26 miles to Ridgway from Montrose. My bike computer malfunctioned again and didn't register the first two miles. The road had decent wide shoulders in most parts and it was mostly flat with a slight incline at the end.

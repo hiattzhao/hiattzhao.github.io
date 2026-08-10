@@ -5,7 +5,11 @@ date: 2018-06-25
 ---
 
 
-After setting up camp, I enjoyed my solitude since I’m the only one at the campsite. I felt at peace with the moon hanging up high in the sky. I thought I might see the Milky Way again, but I couldn’t because the moonlight was too bright. I fell asleep around 10 PM.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiBysAu5Df_L46geedtdar8Kijh9ITiwnxjDM_YF3j55eKIOOL15OvEzE8vwuCXuEz4t2kBubm3_U3AJMbELx9Q1bZN2EB0p_GEkidttFF415co48ewBXR3UCNo0xu6PBdAi-iMqks7BdA/w480-h640/%255BUNSET%255D)
+Yesterday, I ended up camping behind Hills and Hollows Market for $7. I didn’t feel like riding anymore, especially when there’s a huge hill in front of me and a strong headwind. I bought a can of salmon from the store and made a pack of ramen to go with it. That was my dinner.  
+  
+After setting up camp, I enjoyed my solitude since I’m the only one at the campsite. I felt at peace with the moon hanging up high in the sky. I thought I might see the Milky Way again, but I couldn’t because the moonlight was too bright. I fell asleep around 10 PM.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiBysAu5Df_L46geedtdar8Kijh9ITiwnxjDM_YF3j55eKIOOL15OvEzE8vwuCXuEz4t2kBubm3_U3AJMbELx9Q1bZN2EB0p_GEkidttFF415co48ewBXR3UCNo0xu6PBdAi-iMqks7BdA/w480-h640/%255BUNSET%255D)
 *Just the moon and I*
 
 This morning I woke up at 7. The market opens at 8:30 AM, so I wasn’t in a hurry. After packing, I wheeled my bike to the front of the store. A man was getting some gasoline at the pump for his car. When he saw me he asked about my trip and offered me some of his food so I don’t have to wait for the store to open. I couldn’t believe my luck. I had a feeling that staying behind the market was a good idea.  

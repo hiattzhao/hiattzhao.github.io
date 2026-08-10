@@ -5,6 +5,8 @@ date: 2018-07-17
 ---
 
 
+Yesterday was an easy riding day. Joan rode with me for 4.5 miles to the Jedediah Smith Memorial Trail from her house. She wanted to make sure I get on the bike trail. It's so nice of her to do that. The trail was nicely maintained. I saw many cyclists and joggers on the way to Sacramento.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjN3hEVxR14_CcaLFaLO1AulXpRmAG9mAwFxyPqH1eargbXxXtlqj8VG6BXhk9RN6PGpVw1uUjdm7WxbixSemNcTYyMo7_D6zDg8ebjO9mBHGEemTU-gxMBrhyphenhyphenwCzDyT1-aoRGaiGOdKvI/w640-h480/%255BUNSET%255D)
 *On the bike trail to Sacramento*
 

@@ -5,7 +5,11 @@ date: 2018-07-15
 ---
 
 
-When we finally got back to David’s house, we decided to visit a hot spring in Markleeville. Unfortunately, it was closed for the day due to some problem with the water pump. We ended up stopping at a reservoir. On our way back, we stopped by a convenience store in Woodfords to get some ice cream. David also paid for some popcorn and some snacks.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjWt1lBpVjSjwKLX3HTJuTYF-4Ei9yk6L-ZtrizdFxv0quXS2ygLpmPvRNidJoTcHFcF2bG29yACVTo4T7uguSN2W8u1r_TWv-G7Isg3tGitMGbUTw8IrbxqEezJKTZ71gWW5M4BagaeLI/w640-h480/%255BUNSET%255D)
+Two days ago in Gardnerville, David drove me to Walmart so I can buy a pair of swim trunks. I had a meatball sandwich at the Subway inside the Walmart. David bought some ingredients, so I can make omelettes the next morning before the ride. Then we went to David’s father’s house where David had some business to discuss with him. I was so tired that I took a nap on the couch. Afterward, I drove David’s Suburu while he drove his truck to fill it with water at a water station, so he can water his trees at one of his properties.  
+  
+When we finally got back to David’s house, we decided to visit a hot spring in Markleeville. Unfortunately, it was closed for the day due to some problem with the water pump. We ended up stopping at a reservoir. On our way back, we stopped by a convenience store in Woodfords to get some ice cream. David also paid for some popcorn and some snacks.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjWt1lBpVjSjwKLX3HTJuTYF-4Ei9yk6L-ZtrizdFxv0quXS2ygLpmPvRNidJoTcHFcF2bG29yACVTo4T7uguSN2W8u1r_TWv-G7Isg3tGitMGbUTw8IrbxqEezJKTZ71gWW5M4BagaeLI/w640-h480/%255BUNSET%255D)
 *The reservoir*
 
   

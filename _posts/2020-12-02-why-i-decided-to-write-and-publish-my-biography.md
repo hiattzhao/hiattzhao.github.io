@@ -4,9 +4,6 @@ layout: post
 date: 2020-12-02
 ---
 
-
-[via GIPHY](https://giphy.com/gifs/cheezburger-video-games-mindwarp-book-TZ3Y3sUWzrquY)
-
 Looking back, the short answer to why I wrote my biography is "why not" and the short answer to why I published my biography is again "why not." A follow up answer to both questions is "why not now."
 
 As I grew older I realized that time is limited and if I want to start something the best time to do it is now. Waiting for January 1st to start a new year resolution is to waste the rest of the previous year. Now is the best time to write a book, start a company, invest in yourself, etc. And only do it if you truly believe you want to.
@@ -25,4 +22,4 @@ I realized that the people who really wants to read my biography are the ones wh
 
 I don't expect the book be a bestseller. My biography is solely a project of my own for my own. If you are interested in reading, the links are below:
 
-[US](https://www.amazon.com/dp/B08P2S9S26), [UK](https://www.amazon.co.uk/dp/B08P2S9S26), [DE](https://www.amazon.de/dp/B08P2S9S26), [FR](https://www.amazon.fr/dp/B08P2S9S26), [ES](https://www.amazon.es/dp/B08P2S9S26), [IT](https://www.amazon.it/dp/B08P2S9S26), [NL](https://www.amazon.nl/dp/B08P2S9S26), [JP](https://www.amazon.co.jp/dp/B08P2S9S26), [BR](https://www.amazon.com.br/dp/B08P2S9S26), [CA](https://www.amazon.ca/dp/B08P2S9S26), [MX](https://www.amazon.com.mx/dp/B08P2S9S26), [AU](https://www.amazon.com.au/dp/B08P2S9S26), [IN](https://www.amazon.in/dp/B08P2S9S26)
+[US](https://www.amazon.com/dp/B08P2S9S26), [UK](https://www.amazon.co.uk/dp/B08P2S9S26), [DE](https://www.amazon.de/dp/B08P2S9S26), [FR](https://www.amazon.fr/dp/B08P2S9S26), [ES](https://www.amazon.es/dp/B08P2S9S26), [IT](https://www.amazon.it/dp/B08P2S9S26), [NL](https://www.amazon.nl/dp/B08P2S9S26), [JP](https://www.amazon.co.jp/dp/B08P2S9S26), [BR](https://www.amazon.com.br/dp/B08P2S9S26), [CA](https://www.amazon.ca/dp/B08P2S9S26), [MX](https://www.amazon.com.mx/dp/B08P2S9S26), [AU](https://www.amazon.com.au/dp/B08P2S9S26), [IN](https://www.amazon.in/dp/B08P2S9S26)

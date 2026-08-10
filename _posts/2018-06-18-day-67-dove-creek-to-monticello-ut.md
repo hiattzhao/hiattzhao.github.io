@@ -5,6 +5,8 @@ date: 2018-06-18
 ---
 
 
+I’ve noticed on my trip that the weather forecast is only right about half of the time. The joke is that the weatherman is the only profession that can be wrong and still get a promotion. I took a risk and started riding at 8:30 AM yesterday from Dove Creek since I had a 50% chance of getting wet.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjSbnOfRJ5Gr2xT2AmjGmShJkLWcojp1KRzuy7lDnjbnzS1u3Dbu9BWzn7hI4ftpsIhHDOb396TqMY_pPtQzaoCkliWBv-tITSB6tZXo0DVC4a0VTciQl9GNe-snKxV4I7e2Qr-HeREPjU/w640-h480/%255BUNSET%255D)
 *Chance of rain: 50%*
 

@@ -5,6 +5,8 @@ date: 2018-04-18
 ---
 
 
+This morning I got up around 7:30 or so. Jane was already up making coffee and breakfast. After Paul and Tim got up, I took the opportunity to transfer my photos to Paul’s computer. Then we all ate sausage, eggs, and biscuits. They were the fuel for much of the morning ride. Tim is going to Lancaster to stay at Amelia’s. Paul will ride along with him. I will go continue to go south on the Heritage Rail Trail all the way to Maryland.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjyee2R920lY5-AoTsv1J4IJRx5MGJgynqMBqvC0zF9pi9kRLcxHUYdx47jbqFKDOlO22QT5_Ztl1YSQ5de5c7L7lmBSxRnkdfLEYm-PobZ181QMpEB60xnXW__iH6J2uFffx0tldR3iW4/w640-h480/%255BUNSET%255D)
 *Paul, Jane, Tim*
 

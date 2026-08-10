@@ -5,7 +5,11 @@ date: 2018-07-10
 ---
 
 
-I rode on the bike lane as I rolled out of town. As soon as I made the left turn to stay on route 50 the shoulder disappeared and I was left with the rumble strips. I passed by the Lahontan Reservoir and made it to Silver Springs, where I stopped by a gas station convenience store and bought an iced tea. This was a nice break since I've gone over a third of the distance to Carson City.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiAc-n9ALAA6nOspcgw4TsUs51jLJKovi8OQqj4re_HRyrJQ7dStYviDVySyPiCWlHseEX5EYz7mgzXwNH2SoZYpKhY6KaZjIg7RQ-Vy4z0zIJIBjlq_rLepWXRsS7qsJBVDd1oMZkjQKY/w640-h480/%255BUNSET%255D)
+Yesterday, I started my ride at 6:20 AM after I came back from McDonald's and checked out of the motel room.  
+  
+I rode on the bike lane as I rolled out of town. As soon as I made the left turn to stay on route 50 the shoulder disappeared and I was left with the rumble strips. I passed by the Lahontan Reservoir and made it to Silver Springs, where I stopped by a gas station convenience store and bought an iced tea. This was a nice break since I've gone over a third of the distance to Carson City.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiAc-n9ALAA6nOspcgw4TsUs51jLJKovi8OQqj4re_HRyrJQ7dStYviDVySyPiCWlHseEX5EYz7mgzXwNH2SoZYpKhY6KaZjIg7RQ-Vy4z0zIJIBjlq_rLepWXRsS7qsJBVDd1oMZkjQKY/w640-h480/%255BUNSET%255D)
 *Rumble strip and no shoulder*
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiLuU1-W9NvL3LkZQbpgjxMwYCu0OzG46YfQWrqIJH9CmLvCEJg6m4YbOqxRvMgTmtwfCRA7VrHkOA8ZYl7UdDV16OT6LVC0hhqaXiME6pKC3XRZ-vGcIdh806BBePPe9qMKeGO9C-aZPo/w640-h480/%255BUNSET%255D)

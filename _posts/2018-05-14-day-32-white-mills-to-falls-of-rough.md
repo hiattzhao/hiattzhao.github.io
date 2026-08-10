@@ -5,6 +5,8 @@ date: 2018-05-14
 ---
 
 
+Crispin and I got up quite early, way before the sunrise. After packing up our things, we chatted for a bit while drink some soda. The sky was still dark so we took our time. This was the earliest I’ve gotten up on the trip so far.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhhMNnVQ7u7NPprwAZNc_FvGyFnv1JZL-TNWkd1m0ztbeGZKHplF3jexu3wxMPryP9_do20aa-AQeTQ1nb-022PTD6yhHZg4vrOE9aKH5COkl7yAg_3Y2XWPWmaFylr5VJBqdm861JhK0I/w640-h480/%255BUNSET%255D)
 *Started our day before the sunrise*
 

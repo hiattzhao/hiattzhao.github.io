@@ -5,6 +5,8 @@ date: 2018-06-26
 ---
 
 
+Last night, I went to sleep before the sunset. I was awaken by the sunrise, but still felt tired. When I finally woke up it was 6:30 AM. At 7, I went to the cafe inside the outfitter and had a cup of coffee and a bagel with cream cheese. I chatted with the barista, who has a brother living in Philadelphia. After breakfast, I packed up everything. At 8 AM, I got on the road.  
+  
 I was thinking about my future for half of the ride, even I was riding through some great scenery. I guess I should have paid more attention to the moment, but the mind has a way of wandering. The good thing about the wandering mind is that I cycled most of the way up the hill without knowing it.  
   
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhuZN3P7Tbsk5OHZ56lElUIZ9SpdJzHqlpwMTljlmoARkuP_13y9RnxsrvVq8cw10_G_glWiUfCfQ7cu-rmA2GaU-pzCe4vSQ4jVp9cETiHrcsYiNrFyBg79dekHEWelO5NkR3BrRi_RFI/w640-h480/IMG_20180625_084634.jpg)
@@ -27,7 +29,9 @@ I reached Cannonville before noon. At a convenience store, I bought a can of ice
   
 The manager there wanted $30 for one campsite. I thought that was a bit expensive so I asked a group of bikers, the motorcycle kind, if they have seen other cyclists who might be interested in sharing a campsite. Unfortunately, I’m the only cyclist. I ended up talking to Kim, a female biker, for a bit then decided to bite the bullet and get a campsite. The total was about $33 after taxes.  
   
-There was a swimming pool on the campground. I decided to go in my briefs since I had sent home my swim trunks a long time ago. There was just me in the pool for quite some time until more people showed up. I decided to leave and see if there’s a grocery store around.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhCmIi0YlEFyD_2YcBPZOXIcazX6FqFrjJ7s2zmvpiyHx2LasYSsLY04ekLuUxU2V-2Ad7TJAvKss4c6IQjtds1q9uQDmwp1HhArxX1rAVi5Z9oW31ceDcUx3l31cnQup9DbysntJXfI3U/w480-h640/%255BUNSET%255D)
+There was a swimming pool on the campground. I decided to go in my briefs since I had sent home my swim trunks a long time ago. There was just me in the pool for quite some time until more people showed up. I decided to leave and see if there’s a grocery store around.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhCmIi0YlEFyD_2YcBPZOXIcazX6FqFrjJ7s2zmvpiyHx2LasYSsLY04ekLuUxU2V-2Ad7TJAvKss4c6IQjtds1q9uQDmwp1HhArxX1rAVi5Z9oW31ceDcUx3l31cnQup9DbysntJXfI3U/w480-h640/%255BUNSET%255D)
 *Can I get any tanner?*
 
 Clark’s Market is a couple of blocks away. I walked over and bought some more food supplies. When I came back to the campsite, Kristy, another biker of the same group that I talked to earlier, offered to cut my hair. I was hoping to get a haircut once I get to Cedar City in a few days, but now is a good time, too! Kristy is a professional hairstylist and she did a great job cutting my hair using a pair of kitchen scissors and a comb. It was the first haircut that I didn’t cut myself in 19 years!

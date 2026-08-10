@@ -5,6 +5,8 @@ date: 2024-01-19
 ---
 
 
+The main bulk of my photography website is completed as of now. For the past few days I took it easy and walked to my favorite park in Taipei, Daan Park. I also tried to carry my newly bought camera out as much as I can to capture some architecture reflection photographs. Taipei is not like New York City so there aren't as many skyscrapers. Spotting the type of photos I want to capture is more like hunting treasures.
+
 I had some doubts about launching my website, because I think my work is not good enough and that no one will buy any of my photos. I think it's a thought many artists struggle with. I decided I will purchase the web hosting service when it comes due so I'll have a year to see if I can sell anything. If I sell enough photos to cover the cost of the web hosting and my camera then I'll be satisfied. Anything more will fund my travels. Finally, I have a goal for traveling: to take more abstract architecture reflection photographs.
 
 Two days ago, Dora, the girl from Couchsurfing whom I had met previously, along with her friends, Ven and Andrew, and I went on a one day road trip to the northeast of Taipei. We visited a waterfall in Shifen, Jiufen old street, a natural hot spring, and a couple of overlooks that had great views of Taipei. It was the break that I needed from days of working previously.

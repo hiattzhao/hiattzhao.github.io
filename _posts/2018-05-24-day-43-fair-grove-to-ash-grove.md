@@ -5,13 +5,17 @@ date: 2018-05-24
 ---
 
 
+I overslept this morning and woke up at 6:15 AM. I blame the bed because it's so comfy. After eating a cup of yogurt with some blueberries, along with a clementine, I packed everything and said my goodbyes to Jay and Kelly.  
+  
 I started riding at 7 AM and saw a few turtles on the road. I didn't do my turtle duty because I was going downhills when I saw them. I hope they are able to cross the street safely.  
   
 In the town of Fair Grove, I stopped by a convenience store to get a donut. I think I need to eat two breakfasts since most of my riding are done before noon.  
   
 There weren't many big hills but there were surely many small ones. As I was riding, I was still lethargic from last night's sleep. Luckily, I'm only going to ride about 37 miles today.  
   
-At 10 AM, I stopped by another convenience store. This time I pigged out and ate two ice cream bars and two bags of potato chips. Shortly after, I rode into the town of Walnut Grove.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjgfdFdhPbZJ41scaPi8pFyM5EnMLtQJrZ8FazlGyEI27tZEMtaRGQsTWqnulAFT40CSWdVM0twGpp_BwXwmy405hOCd-ik7iaflxY6n1RxDJlt4ltatuTgElsdXhrmZuGJOf4xBeC9E2Q/w640-h480/%255BUNSET%255D)
+At 10 AM, I stopped by another convenience store. This time I pigged out and ate two ice cream bars and two bags of potato chips. Shortly after, I rode into the town of Walnut Grove.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjgfdFdhPbZJ41scaPi8pFyM5EnMLtQJrZ8FazlGyEI27tZEMtaRGQsTWqnulAFT40CSWdVM0twGpp_BwXwmy405hOCd-ik7iaflxY6n1RxDJlt4ltatuTgElsdXhrmZuGJOf4xBeC9E2Q/w640-h480/%255BUNSET%255D)
 *My third breakfast of the morning*
 
 I had the lunch special at a restaurant called Chuck Dinesty in Walnut Grove. The cashew chicken over rice hit the spot. I had to take a nap after eating. I'm sure the patrons were thinking, "what's wrong with this guy?"

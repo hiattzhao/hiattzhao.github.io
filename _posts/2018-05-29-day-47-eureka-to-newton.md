@@ -5,6 +5,8 @@ date: 2018-05-29
 ---
 
 
+I didn’t sleep well two nights ago. The sound of water from the water park next to the pavilion made me think it was raining the whole night. Wolfgang and I got up after the sunrise. I headed over to a convenience store first since I finished packing before Wolfgang. I had two hot dogs and a cup of coffee for breakfast. Wolfgang showed up shortly as I was finishing my meal. After we parted, I headed west, then north, for 35 miles to Cassoday.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgqdpC96ihxPoQHmN9tl6ihGVoUYdnputT6uYHsajfmFM1VPaYgWaB3fG6y30aUI3OxWEUTeIP5A_L1k1xUoi1l38l_N5L9sTW9jkQ9PrzV8OqgHTpECpUkj1fMwVwpL8gekDgEzy5d5XI/w640-h480/%255BUNSET%255D)
 *One can see for miles*
 

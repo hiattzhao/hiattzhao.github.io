@@ -5,6 +5,8 @@ date: 2018-04-24
 ---
 
 
+I slept for about nine hours last night, a much needed rest after the 52 mile ride from the day before. Kathleen had to leave so we bid farewell. I had a super fruity cereal that had raisins and cranberries, along with a cup of orange juice and a cup of coffee. Dave even added more fruits to his cereal. No wonder he’s so healthy at the age of 82!
+
 The rain had started already, though lightly. It will rain the whole day. After breakfast, I said goodbye to Dave and got on the road.
 
 Even though I was wearing a rain jacket and rain pants, my shoes and my feet still got soaked due to the rain. Again, there wasn’t any coffee shops or restaurants along the road, but I was glad that I’m actually riding west on the TransAmerica route.

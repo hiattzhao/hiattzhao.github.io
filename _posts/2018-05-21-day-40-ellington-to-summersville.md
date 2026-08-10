@@ -5,6 +5,8 @@ date: 2018-05-21
 ---
 
 
+This morning I awoke at 4:30. I donated $10 to the hostel. After packing, I rode my bike to the only cafe in town, the Vintage Market Cafe. I chatted with three locals named Jeff, Richard, and Rick. Rick asked me if I carried a gun. I said no. He was surprised. I guess he has a hard time trusting people. These three locals informed me that there will be a lot of log trucks on the road and there will be some hills. That's the last thing I want to hear. After eating two eggs, a pancake, two sausages, and hash browns, along with some coffee, I started riding around 6:45 AM.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEj_eJRUqTwBx3BMWIBc_IpFMf6Ly8c85V8jq4l4ffieuV6DUNI-Hcj5TlsLixLyyfRKgD0fOGFirntF_8K1J3M6dgTUEqax_bPn2LpQhOwolWFOt0mqAsL8kqNrQqgnLZqUvv_Qq-ussD4/w640-h480/%255BUNSET%255D)
 *The Vintage Market Cafe*
 

@@ -5,6 +5,8 @@ date: 2018-05-11
 ---
 
 
+Last night, I didn’t sleep well at all. I must have drank too much Pepsi for dinner and the caffeine hit me hard. I was awoken by the noise of the trains and the chirping of the birds before the sunrise. Crispin and I got everything packed up a little before 7 AM then we rode to Harrodsburg Harvest Cafe for breakfast. Crispin, being the friendly person he is, started to chat with a customer, who also has a 3 year old son. We ended up taking a photo of both of them in front of our bikes.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhH7nQVyvRKIOcZJCyV7KyrOR1aOgMIvXLzKZVMCJWJStDZgdRG0UhMIP_axonkDCvhEtt7TWiEfw9nFYwpbfNNXk_dtmtVALsPebNJPGJHQOKixBxZPRZLbxHI_sDFYHDQl6QbAZvSkic/w640-h480/%255BUNSET%255D)
 *Paul and his son, Wayne*
 

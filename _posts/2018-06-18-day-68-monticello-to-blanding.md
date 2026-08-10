@@ -5,6 +5,8 @@ date: 2018-06-18
 ---
 
 
+After having a cup of coffee and more conversations at Noah and Karinne's house, Kevin, James, and I prepared our bikes and went to The Peace Tree for breakfast. We had a good meal, but I wished my portion was a bit more.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhNDYJxA2aVfmfW3t2jdQl9GVohDebL6jLjZtDgIBDzz7EyFNWZdZkaud0XO2vm8D1I8ET_iQYt6EreJO3CRIhhtjbxbQ4hc9oP0CwZgMuSJ5do40PTw2EqC2-MkGHuLnWyVhbeW_VaqWY/w640-h480/%255BUNSET%255D)
 *Enjoying breakfast with Kevin and James*
 

@@ -5,6 +5,8 @@ date: 2023-10-11
 ---
 
 
+Four days ago, I went to the Giant Bicycle Shop nearby and inquired about renting a bike for two weeks to cycle around Taiwan. The cost is 3200 NTD, about $100, which is a good deal. I made a reservation for the bike and I plan on picking it up on October 16 or 17.
+
 The day after, I took the subway to Songshan Culture and Creative Park where there is a design center. Then I walked to the Sun Yat-sen Memorial Hall. Sun Yat-sen was the founding father of Taiwan. I was there just in time to see the change of the guards. I then walked past Taipei 101 tower and arrived at the trailhead of Elephant Mountain. The climb up was steep with stone stairs. As I was resting, an older couple, more specifically the husband, started talking to me. They are from Singapore. The man was so nice that he gave me two bananas to eat. I didn't have lunch and he was definitely a saint for giving me food. After coming down from the mountain, I took the train back to the hostel.
 
 Two days ago, I don't remember doing much. Maybe just chilled at the hostel the whole time. Yesterday, I walked to Longshan Temple that's not far from the hostel. I also had dinner with Hyun, a Korean guy from the hostel who can speak Mandarin. Not sure what I'll do today since I feel I've explored most of Taipei.

@@ -5,6 +5,8 @@ date: 2018-05-31
 ---
 
 
+Yesterday after leaving the library in Larned, I stopped at El Dos De Oros for some Mexican food. I ordered a big plate consisted of a taco, a burrito, and a chalupa. After the meal, I rode my bike to the city park where there is a big water park.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiwEpQEqSaJAWAmkxS2V0LHiH_uegO-bHMV5HqFzOrn5Inwddsg0qNI-AMyOf0nJ0L_LsHHAWRUaWOcG1pVpxGHY8DY84VCZX4uY0NpC55z0URSErFzmFzwTeNudwMBaK8v8bOEQiMgymY/w640-h480/%255BUNSET%255D)
 *Taco, burrito, and chalupa*
 

@@ -5,7 +5,11 @@ date: 2018-05-04
 ---
 
 
-Back at the hostel, I packed up everything and donated $7 to the church. It took a bit of searching to find a small size can of pepper spray. I bought the last one at Adventure Damascus. After I finished my errands it was about lunch time. I had a Hawaiian pizza pie at a pizza place that’s on the same block.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjRK4vs9HFEPWrNpQSV3O1X1yEQlZllZ6yfNkzaN23J_5k33cxSOn43Rrr5aBckF_Kvcy04uw0ekFNOyqotQKK0Ufp11-kC0W10ejRL0N8ATPPPp9BqQz6E4lQbHfuYDb84PriFadG6vaQ/w640-h480/%255BUNSET%255D)
+After writing the last post, I took my bike into Sundog Outfitter to get it checked. The bike mechanic, Mike, told me my rear tire can still go about 500 miles, my chain is also good until the 1500 to 2000 miles mark. He ended up adjusting my brakes so they are more sensitive and lubricated the chain. The total charge was $15.  
+  
+Back at the hostel, I packed up everything and donated $7 to the church. It took a bit of searching to find a small size can of pepper spray. I bought the last one at Adventure Damascus. After I finished my errands it was about lunch time. I had a Hawaiian pizza pie at a pizza place that’s on the same block.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjRK4vs9HFEPWrNpQSV3O1X1yEQlZllZ6yfNkzaN23J_5k33cxSOn43Rrr5aBckF_Kvcy04uw0ekFNOyqotQKK0Ufp11-kC0W10ejRL0N8ATPPPp9BqQz6E4lQbHfuYDb84PriFadG6vaQ/w640-h480/%255BUNSET%255D)
 *Lunch is served!*
 
 After lunch around 12:30 PM, I continued to follow Route 76, passing by farmlands after farmlands. A dog chased after me and had gotten very close to my bike. I didn't have the pepper spray on me so I had to pedal fast. Luckily, I out biked the dog. After this, I made sure to carry the pepper spray on me at all times.

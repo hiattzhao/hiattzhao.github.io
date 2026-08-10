@@ -11,7 +11,7 @@ Since it was Memorial Day, many restaurants were closed. I ended up having two l
 
 Just as I was leaving the town of Albion and crossing the draw bridge, I met a cyclist named Pat. He rode all the way from San Francisco and will be home in Syracuse in a couple of days. I decided to go back into Albion and chat more with him at Tim Hortons. Pat was so nice that he even bought me coffee there.
 
-Pat will have to go back to work as a mental health therapist. He’s taking a break from work. His bike carried so many things, probably doubled the weight of mine. Pat also has a website. It’s at[patsponyexpress.com](https://patsponyexpress.com). I was glad to spend some time with another cyclist over a meal. It was a much needed break.
+Pat will have to go back to work as a mental health therapist. He’s taking a break from work. His bike carried so many things, probably doubled the weight of mine. Pat also has a website. It’s at [patsponyexpress.com](https://patsponyexpress.com). I was glad to spend some time with another cyclist over a meal. It was a much needed break.
 
 Not long after meeting Pat, I saw a cyclist taking photos of the canal. His name is Mike and he’s going the same direction as me. Finally, I met someone who is going the same way. In fact, we were all going to Medina for the day.
 

@@ -5,6 +5,8 @@ date: 2018-05-12
 ---
 
 
+This morning, Crispin woke up first. We packed up our things pretty quickly and I had to use the bathroom. Unfortunately, the bathroom for the park was locked. Crispin informed me about the bathroom in the fire station across the street. Luckily, there was a fireman there. We talked to him for a bit. He’s in the process of becoming a fireman. What a noble profession!
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1Ncz0n0aVWACc1DVyfjUt3zZx2trhJg2XHoALdHLeu-QwqHdybVlww3aDeLrDl4YQWyApJALia5j9jYBaf_VVLCyioR-e82-3Qr4l5RbllYfmjMwbD34do1hD7FhoYIFJFDdpjilxfgA/w640-h480/%255BUNSET%255D)
 *An early morning*
 

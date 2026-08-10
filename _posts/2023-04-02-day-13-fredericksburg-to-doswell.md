@@ -5,7 +5,7 @@ date: 2023-04-02
 ---
 
 
-Yesteday morning, I woke up to the sound of rain. I was so glad to have booked this Airbnb and not have to camp. I walked over to Waffle House and got a simple breakfast consisted of an egg and bacon sandwich, home fries, and coffee. By the time I came back to the Airbnb and got ready to ride it was 8 AM. The rain was pouring hard. I thought about waiting for the rain to die down, but I have to ride over 40 miles today to Doswell, where I’ll be staying with Kathleen and Dave,[my Warmshowers hosts from 2018](https://www.hiattzhao.com/2018/04/day-12-fredericksburg-to-doswell.html). After about 15 minutes of indecision, I decided to leave since it’ll rain until noon anyway.
+Yesteday morning, I woke up to the sound of rain. I was so glad to have booked this Airbnb and not have to camp. I walked over to Waffle House and got a simple breakfast consisted of an egg and bacon sandwich, home fries, and coffee. By the time I came back to the Airbnb and got ready to ride it was 8 AM. The rain was pouring hard. I thought about waiting for the rain to die down, but I have to ride over 40 miles today to Doswell, where I’ll be staying with Kathleen and Dave, [my Warmshowers hosts from 2018](https://www.hiattzhao.com/2018/04/day-12-fredericksburg-to-doswell.html). After about 15 minutes of indecision, I decided to leave since it’ll rain until noon anyway.
 
 I took an allergy pill before I left since the day before my eyes were itchy and extra watery. I think that’s due to allergies, but I’m not sure.
 

@@ -5,6 +5,8 @@ date: 2023-12-05
 ---
 
 
+A week ago, Chris, Christine, and I took the flight from Cebu to Manila. We stayed at Crossroads Hostel in the Mandaluyong district of Manila for two nights. It was the best rated hostel on Booking.com, but there was nothing to do in Mandaluyong except for a big shopping mall. We changed to the Airport Hostel in the Pasay district since it's closer to Manila's Ninoy Aquino International Airport, where we would all depart.
+
 We spent Friday exploring some sights in downtown Manila, such as Rizal Park, Intramuros, Fort Santiago, and Chinatown, which is the oldest Chinatown in the world. The next day, we took a long bus ride to Tagaytay, then a trike to Talisay, to see the Taal Volcano. We had lunch at a resort that had a great view of the volcano. Afterward, we decided to hike 12 km (~7.5 miles) uphill to Tagaytay from Talisay. I only made it to about 1/4 of the way and decided to hitch a ride on the side of a makeshift motorcycle into Tagaytay. I was surprised that both Chris and Christine were able to hike back. We had our last meal together at a McDonald's in Tagaytay before riding the bus back to Pasay.
 
 On Sunday morning, Christine left for Taipei. In the afternoon, Chris left for Bangkok. The Turtles of Cebu has disbanded and I was left alone with the most dangerous thing in the world, my mind. To keep it occupied I walked to the Makati district yesterday morning to do some exploring. It was about an hour from the hostel in Pasay. I sprained my ankle while walking on the sidewalk about 5 minutes into the walk. I ended up continuing to Makati anyway.

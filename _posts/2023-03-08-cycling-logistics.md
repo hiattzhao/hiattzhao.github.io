@@ -5,6 +5,8 @@ date: 2023-03-08
 ---
 
 
+A friend suggested on Facebook that I should do a post about logistics since I'm cycling around the world. Well, here it is.
+
 ## Power
 
 * Power bank (20100 mAh) - I will use this when I can't find an outlet.
@@ -29,18 +31,18 @@ date: 2023-03-08
 
 ## Travel Insurance
 
-* Safety Wing - I'm still undecided on which insurance to use, but this one is recommended according to[this blog post by Nomadic Matt](https://www.nomadicmatt.com/travel-blogs/travel-insurance/).
+* Safety Wing - I'm still undecided on which insurance to use, but this one is recommended according to [this blog post by Nomadic Matt](https://www.nomadicmatt.com/travel-blogs/travel-insurance/).
 
 ## Stays
 
-* Warmshowers - I will use this extensively to find hosts. It is both a[website](https://www.warmshowers.org) and an app.
-* Hostels - The app/website that I'll use to find hostels in cities is[HostelWorld](https://www.hostelworld.com).
+* Warmshowers - I will use this extensively to find hosts. It is both a [website](https://www.warmshowers.org) and an app.
+* Hostels - The app/website that I'll use to find hostels in cities is [HostelWorld](https://www.hostelworld.com).
 * Camping - If I can't find an indoor place to stay then I will just camp at a local park or at a camping ground.
 
 ## Navigation
 
-* Maps.me - I downloaded the[East Coast Greenway](https://www.greenway.org) map on Maps.me app and will use it to cycle on the east coast of US.
-* Bicycle Route Navigator - This is an app where I can buy the digital version of the[Adventure Cycling](https://www.adventurecycling.org) maps. It also comes with some free bicycle maps.
+* Maps.me - I downloaded the [East Coast Greenway](https://www.greenway.org) map on Maps.me app and will use it to cycle on the east coast of US.
+* Bicycle Route Navigator - This is an app where I can buy the digital version of the [Adventure Cycling](https://www.adventurecycling.org) maps. It also comes with some free bicycle maps.
 * Google Maps - I will use this to navigate in major cities and get to my Warmshowers hosts' place.
 * Komoot - I haven't used this app yet, but I have it downloaded on my phone just in case.
 
@@ -51,8 +53,8 @@ date: 2023-03-08
 
 ## Bike Maintenance
 
-* Shimano SG-S700 - Since my Priority Apollo uses an internal gear hub and a carbon belt rather than a derailleur and a chain, I'm carrying five 50 ML bottles of oil so I can do the oil changes every 5000 KM (~3000 miles). The firstoil change is after 1000 KM (~600 miles). Here's a[YouTube instructional video on changing the oil](https://www.youtube.com/watch?v=zS8TLpUHs10).
-* Gates carbon belt - I carry a spare 118 CDX belt folded according to[this YouTube video](https://www.youtube.com/watch?v=VgM-qeHGK_4). The belt lasts about 30,000 KM (19,000 miles).
+* Shimano SG-S700 - Since my Priority Apollo uses an internal gear hub and a carbon belt rather than a derailleur and a chain, I'm carrying five 50 ML bottles of oil so I can do the oil changes every 5000 KM (~3000 miles). The firstoil change is after 1000 KM (~600 miles). Here's a [YouTube instructional video on changing the oil](https://www.youtube.com/watch?v=zS8TLpUHs10).
+* Gates carbon belt - I carry a spare 118 CDX belt folded according to [this YouTube video](https://www.youtube.com/watch?v=VgM-qeHGK_4). The belt lasts about 30,000 KM (19,000 miles).
 * Schwalbe Marathon Plus tires - I will change to these tires when I'm closer to Canada as these tires are considered the best for bicycle touring. Right now, I have the stock tires that came with the bike.
 * Tube repair kit - This is a must have in case of flats.
 * Spare tubes - I'm carrying two spare tubes.

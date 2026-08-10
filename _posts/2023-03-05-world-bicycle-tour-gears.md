@@ -5,7 +5,9 @@ date: 2023-03-05
 ---
 
 
-[one of the reddit posts](https://www.reddit.com/r/PriorityBicycles/comments/11ewjki/apollo_as_a_touringbikepacking_rig_got_pictures/) about a touring setup for a Priority Apollo bicycle. Even though I had done a [setup/gears post before](/2018/04/gears.html) when I cycled across the US in 2018, I thought since I have a new bike now and I will be going a longer distance maybe it's time to do another one for 2023. So here is a list of things I will be bringing on my 2022 Priority Apollo (size medium) for my around the world tour.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLhOBE1kqXOmvvlLPnhca8df4AU0yM8EjIdNjs7srTRSuWFF8xDYjYYJkG4C66469Jw4u0nsRHANtfaaTShEh8_-BCvGvVwAi5fz07bPXtmRLfw511wMa8YCuHOvYERPX1WyEdKnPhT_qg7qNNw8XG-Kwl8IDP9lWuaOqqO-3wmKg14P4EUe6fjqzw/w640-h480/EverydayClothing-labeled.jpg)
+For some reason, I replied to [one of the reddit posts](https://www.reddit.com/r/PriorityBicycles/comments/11ewjki/apollo_as_a_touringbikepacking_rig_got_pictures/) about a touring setup for a Priority Apollo bicycle. Even though I had done a [setup/gears post before](/2018/04/gears.html) when I cycled across the US in 2018, I thought since I have a new bike now and I will be going a longer distance maybe it's time to do another one for 2023. So here is a list of things I will be bringing on my 2022 Priority Apollo (size medium) for my around the world tour.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLhOBE1kqXOmvvlLPnhca8df4AU0yM8EjIdNjs7srTRSuWFF8xDYjYYJkG4C66469Jw4u0nsRHANtfaaTShEh8_-BCvGvVwAi5fz07bPXtmRLfw511wMa8YCuHOvYERPX1WyEdKnPhT_qg7qNNw8XG-Kwl8IDP9lWuaOqqO-3wmKg14P4EUe6fjqzw/w640-h480/EverydayClothing-labeled.jpg)
 *Everyday Clothing*
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgxNpY_IT16stl-A9OjMgcCz2sQ13CQ50eX7we-QckXb9lnBw5FOCMYWaDQqoweD3ochhMco3Lcz_iza0HQ5PVf6QBegHko5eOkOOkA5hUZ8QjWnLjhPOBtiJEgNHxKIPSJGzbVAItXacEX4b5tZQPCpSJIBLS3mTRMyMWmiUATF5KqQUZfj7DwGZZx/w640-h480/BikeClothing-labeled.jpg)

@@ -5,6 +5,8 @@ date: 2023-12-19
 ---
 
 
+I continued to make my way from south of Taiwan toward Taipei in the north. I stopped in Taichung for four nights and spent two days walking in Taichung and one day riding a bicycle around Sun Moon Lake, which is about two hours east of Taichung by bus. My cold is better now and it's mostly gone as of today. I'm glad I still have my sense of taste and smell so I can enjoy the great food in Taiwan.
+
 On Saturday, I walked to the Liuchuan Riverside Walk and took a stroll along the river. I took some photos at the Painted Animation Lane, which is a street that has anime paintings on the walls. Then I went to Shenji New Village, where there were a lot of local shops. Afterward, I walked to Calligraphy Greenway and the National Museum of Natural Science before coming back to the hostel.
 
 The next day, I had a brunch date with a woman named Bella at Hausinc 1035. We then walked to Taichung Park and hung out there for a while before come back to have ice cream at the famous Miyahara.

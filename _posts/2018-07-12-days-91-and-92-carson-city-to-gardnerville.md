@@ -5,6 +5,8 @@ date: 2018-07-12
 ---
 
 
+Two days ago, after visiting the library, I rode my bike to an Iranian restaurant called Saffron to meet with Lior and Jenny for lunch. The food was good and I was glad we had the chance to chat again. Lior is from Israel and Jenny is from Jordan. It was nice to see a married couple that’s Jewish and Arab. Religion doesn’t have to divide people and love always wins.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgArPPLIGwR549mlT5OUC4xIVEDL6xGvDVb83XVDvTak82e8BSchSBzNbK8UG-T5hfsOp6n33M42Qx_wWxGmcwPX8dZHXTXlOG3TiGBOYlCCItN7gb-5ZFX_plvynsxLYJGhr6sYCQrYC4/w640-h480/%255BUNSET%255D)
 *Lior and Jenny, my Warmshowers hosts in Carson City*
 
@@ -31,7 +33,7 @@ After I turned onto Jacks Valley Road just south of Carson City, I had one of th
 
 Around 11 AM, I started my last leg of the ride for the day, going to David’s house in Gardnerville. David’s place is not far off the route. When I arrived at his house he wasn’t home, but his young worker, Josh, was there, I talked with him for a bit until David arrived.  
   
-Inside the house, David and I had lunch. I cooked a bag of ramen since I won’t be needing four bags of ramen from now until the end of my trip. After lunch, David drove the both of us to Stateline on the southern end of Lake Tahoe where we walked on the edge of the lake. I bought smoothies for us because it was getting hot. David received a phone call about a shipment coming in for his business, so we left Stateline and drove back to  Gardnerville.
+Inside the house, David and I had lunch. I cooked a bag of ramen since I won’t be needing four bags of ramen from now until the end of my trip. After lunch, David drove the both of us to Stateline on the southern end of Lake Tahoe where we walked on the edge of the lake. I bought smoothies for us because it was getting hot. David received a phone call about a shipment coming in for his business, so we left Stateline and drove back to Gardnerville.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhrr93G7e18PWWAxinIYkXi15chYZRnGwQ24PX5DxuP2v7GFh5D4giz4v9UT0aQMUC8NcfmhsBa6SupBNg-PXUx-Hv5eOGrjG0O0ZUZhk_fvxY0kPT0H8Qs8tIt5IKmouJP8zwgGfLAZ1Q/w640-h480/%255BUNSET%255D)
 *The beach at Lake Tahoe*

@@ -5,9 +5,13 @@ date: 2018-06-28
 ---
 
 
+Yesterday, after visiting the library, I went to the Color Country Motel and got a room on the ground floor. I took a shower, did laundry, and plugged in my electronics for charging. Then I rode my bike a few blocks south to Henrie's Hideout to get some dinner. I had a fried burrito, three chicken strips, some fries, and a caramel milkshake. I stopped by Family Dollar on the way back to the motel and bought a can of spam and some candy. I now have enough food to last me two days.  
+  
 Once I got back to the hotel I realized my panniers are getting heavier due to all the food I had bought. There's no way around that, I'll just have to carry them.  
   
-This morning, I woke up at 6:15. After packing everything, I checked out before 7 AM. There's a cafe called Rise and Shine that's open, so I went there. As it turned out, it's right next to Henrie's Hideout. I had a cup of coffee and an empanada for breakfast. Never thought I would eat an empanada for breakfast, but I did.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiF-N4QRPi2JAG_Rz4QQkZevx8W_SfkH9kknFKwSREO-E03RX4o_rwPyOxkP4q6OiHx0sadnpFVkTVzsfFVr2veFSYXGgu3L5qxPSu4H3T6ism2XLB-GyFv8fklVYRhzNvmF6w3t9O61Z4/w640-h480/%255BUNSET%255D)
+This morning, I woke up at 6:15. After packing everything, I checked out before 7 AM. There's a cafe called Rise and Shine that's open, so I went there. As it turned out, it's right next to Henrie's Hideout. I had a cup of coffee and an empanada for breakfast. Never thought I would eat an empanada for breakfast, but I did.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiF-N4QRPi2JAG_Rz4QQkZevx8W_SfkH9kknFKwSREO-E03RX4o_rwPyOxkP4q6OiHx0sadnpFVkTVzsfFVr2veFSYXGgu3L5qxPSu4H3T6ism2XLB-GyFv8fklVYRhzNvmF6w3t9O61Z4/w640-h480/%255BUNSET%255D)
 *Coffee and empanada for breakfast*
 
 I started my ride earlier than usual because I have to make it to Cedar City before the post office closes, so I can pick up my Platypus collapsible water bottles that I ordered several days ago.  

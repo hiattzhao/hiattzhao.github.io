@@ -7,7 +7,7 @@ date: 2023-03-21
 
 Last night, Brooks and I had dinner at the American Sardine Bar not far from Brook’s house. I had two sardine sliders and some fries. I never had sardine sliders before and they were pretty good.
 
-Brooks informed me of a jigsaw puzzle that he saw online that featured[Thomas Stevens](https://en.wikipedia.org/wiki/Thomas_Stevens_(cyclist)), the first person to cycle around the world. I was impressed that he did it in the 1880s on a penny-farthing bicycle! I'm only about 140 years behind. Anyway, Brooks said that when he finishes the puzzle he'll replace the name Thomas Stevens with mine. LOL!
+Brooks informed me of a jigsaw puzzle that he saw online that featured [Thomas Stevens](https://en.wikipedia.org/wiki/Thomas_Stevens_(cyclist)), the first person to cycle around the world. I was impressed that he did it in the 1880s on a penny-farthing bicycle! I'm only about 140 years behind. Anyway, Brooks said that when he finishes the puzzle he'll replace the name Thomas Stevens with mine. LOL!
 
 When we came back I took a shower and soon went to bed around 9:30 PM. Usually I go to bed around sunset so 9:30 is a bit late for me. I’m sure I’ll be sleeping fewer hours since I’m traveling.
 

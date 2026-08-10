@@ -5,6 +5,8 @@ date: 2023-10-27
 ---
 
 
+I don't think I like Vietnam that much due to the massive amounts of mopeds, narrow streets, and the constant honking noise. It seems very chaotic. I'm not sure what it'll be like in Ho Chi Minh City, but since Hanoi is the capital maybe it's busier. Also, I'm staying in the Old Quarter, which is a central district of Hanoi. My desire to walk around the city is dampened because it's hard to walk on the sidewalks when the sidewalk is essentially parking spots for mopeds. Overall, the city is not walk-friendly.
+
 Two days ago, Chris and I took a short walk to the Hanoi Train Street that's famous for having a train going through a market. Unfortunately, when we got there they blocked the tracks so no train will come. The market is essentially empty. I took a few photos, that's about it. Then Chris and I walked to the main Hanoi train station to buy advanced tickets to Haiphong for Friday. We were able to get two round trip tickets at the ticket counter. We ended our walking tour by going to a park called Ho Bay Mau. I can't believe how humid it is in Vietnam in the fall. I felt very hot and sweaty. After resting a bit, we took a Grab taxi back to the hostel since walking was so unpleasant.
 
 I had a dinner date during the night. She's a local Vietnamese girl. We hit it off well and after dinner we walked around Hoan Kiem Lake. I saw her again last night. I think it's hard to have a relationship while traveling. I don't know what's going to happen with me and her since Chris and I will go to Haiphong today. We will be back in Hanoi on Sunday night. I guess I should just go with the flow and enjoy the moment.

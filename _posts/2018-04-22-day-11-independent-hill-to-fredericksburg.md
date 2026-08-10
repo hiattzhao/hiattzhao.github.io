@@ -5,6 +5,8 @@ date: 2018-04-22
 ---
 
 
+Last night, I slept a solid nine hours in my new sleeping bag. After eating some beef jerky and dried fruits for breakfast, I head out on the road around 7:30.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhJkMeGBlIs5060PXcCGVCaJJf6SZ4xjUvheVVggrroX75l9-x2_Z152dfQdVqSFN7nkJKmhqm68iGTLs7cunYAI8yyxdLHpnQOMH17rRI0o9zdzow7pO2jlyOZ5enxN8dyZSfp5YTfwXE/w480-h640/%255BUNSET%255D)
 *Rise and shine!*
 

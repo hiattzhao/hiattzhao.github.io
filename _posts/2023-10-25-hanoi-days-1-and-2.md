@@ -5,6 +5,8 @@ date: 2023-10-25
 ---
 
 
+Two days ago, Chris and I spent the majority of the day to get to the Taoyuan Airport on the west side of Taipei from Keelung, which is on the east side of Taipei. Once we landed at the airport outside of Hanoi we took a taxi via the Grab app to get to the hostel. It was about an hour ride and the cost was about $13 USD or 311,000 VND. The exchange rate is about 246000 VND to $1 USD.
+
 When we arrived at the hostel, Chris realized that he forgot to book the hostel so he stayed at a nearby hotel. The hostel is quite cheap, about $5 per night, and it's located right in the Old Quarter in Hanoi. Chris and I had a meal at a nearby restaurant and we went for a night stroll around the perimeter of Hoan Kiem Lake. While walking, we met three students who wanted to practice English with us so we talked with them for a bit.
 
 Yesterday morning, I had an average breakfast at the hostel and tasted a strange fruit that I later learned is passion fruit. I bought an eSim from a company called Nomad so I can use data on my phone now that my Google Fi international data roaming is ending. Around noon, Chris and I met, grabbed some banh mi sandwiches from a street vendor, and walked to West Lake, passing by the One Pillar Pagoda, Ho Chi Minh's Mausoleum, and the Presidential Palace. We also went to the Tran Quoc Pagoda as well before turning back. It was a hot and humid afternoon for walking. We had to walk around the parked mopeds on the sidewalks and were very careful when walking on the side of the streets as to not get hit by any vehicles. There are so many mopeds in Hanoi, even more than Taipei. I definitely did not like walking in Hanoi even though I love walking in cities.

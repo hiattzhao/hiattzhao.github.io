@@ -5,7 +5,11 @@ date: 2018-04-28
 ---
 
 
-Bob and I headed out to the Blue Ridge Parkway around 11 AM. Once we got to the top the heavy fog set in. Bob wanted to drive me up the mountain because of the steep hill that I’ll have to climb if I was on my bike. I really appreciated that, but at the same time I thought I might be cheating, such as the time when I took the light rail from Hunt Valley to BWI. Then I thought about what Tim, the young guy who rode his bike around the world, had said, “it’s about the adventure.”![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhQiAHhsKjUmShjcfmkHjMHeA0MEbzcl2poSjZE8biath3LYwyklF9Dszk-wYeUp_bl6IzTN1lk7XH_8ksl1PM65Pq0oCSAtGnyd1qiQaAkHcdBrIOzzPbUmK3XMgHj8UYGHT5uokvwYvI/w640-h480/%255BUNSET%255D)
+Yesterday morning, Sarah made a huge breakfast consisted of bacon, bagels, and fruits. I also made some fried eggs. It was the biggest breakfast I’ve had on this trip. After eating, we put my bike in Bob’s Ford Explorer and I said farewell to Sarah.  
+  
+Bob and I headed out to the Blue Ridge Parkway around 11 AM. Once we got to the top the heavy fog set in. Bob wanted to drive me up the mountain because of the steep hill that I’ll have to climb if I was on my bike. I really appreciated that, but at the same time I thought I might be cheating, such as the time when I took the light rail from Hunt Valley to BWI. Then I thought about what Tim, the young guy who rode his bike around the world, had said, “it’s about the adventure.”
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhQiAHhsKjUmShjcfmkHjMHeA0MEbzcl2poSjZE8biath3LYwyklF9Dszk-wYeUp_bl6IzTN1lk7XH_8ksl1PM65Pq0oCSAtGnyd1qiQaAkHcdBrIOzzPbUmK3XMgHj8UYGHT5uokvwYvI/w640-h480/%255BUNSET%255D)
 *Up the foggy mountain*
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEieBkAYLIMaR59xWXjvJlNNVUFg2baXI03HgEr5md9zm0OEPRSIvQdjEnfsnSbciNuhv2D2ihY7ZZPL1u_grbo5uAup-ZslJ_FQK3pQD47hepeqYNr7PVxoJO7ae6Voj1_aTHS4mUGMMHc/w640-h480/%255BUNSET%255D)

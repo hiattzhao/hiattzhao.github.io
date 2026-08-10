@@ -5,6 +5,8 @@ date: 2023-09-02
 ---
 
 
+Fukuoka is the largest city on the island of Kyushu. It used to be two towns, Fukuoka and Hakata, before they combined into one. The train station is called Hakata Station and the airport is called Fukuoka Airport. My hotel is the fanciest place I've stayed at in Japan. It's called The Millennials Fukuoka. I booked it on seeing the Instagram posts of another traveler whom I had met in Kyoto. The cost per night is around $30, that's still 50% cheaper than the hostels in Hawaii and it's much better. The bed even has an iPod remote to adjust the lights and the position of the bed.
+
 Yesterday, I explored the Tenjin district, Kego Park and Shrine, Daimyo district, Kokoran Ruins Museum, Fukuoka Castle Ruins, Fukuoka Art Museum, and Ohori Park. For the first time, it wasn't ungodly hot. I want to take the time in Fukuoka to relax so I'm staying for a total of four nights before taking the plane to Naha, Okinawa.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh8-YzEwfRf3qXPCi-AEBnkOAqWf8Hp0FPWRvRiZTEyFcUMnkk0oloZGpJNVzOyKELt7pNYJdgjIEepnNWiCkpz63CBBdVB6uMkmQGYmHAdt22mUzfctT88EFohp_r6vUHf4BAeWBQ9EsUQpY_TN9MQOrVXCwnb2FxDcmYmkPfHtf2wQNrSWpdG2fcJB_Q/w480-h640/PXL_20230901_021609753.jpg)

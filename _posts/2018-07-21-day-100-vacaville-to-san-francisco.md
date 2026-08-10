@@ -5,6 +5,8 @@ date: 2018-07-21
 ---
 
 
+Yesterday morning, I was the first one up. After writing my blog post, Brenda made some awesome protein smoothies. I also had a piece of peanut butter and jelly toast. Around 8:15, Bob and Brenda got on their tandem bike and guided me through downtown Vacaville and took me to my route. From there on, I rode over 30 miles nonstop to Vallejo.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEinYH3I4vyhEZgFzBADzTBXRO5PS0bIteUKbnLiWtLooBjGWeTcuygGCH3i_LhqunpBUJjr3pWUew8BTIFk6SjQoqysrGh3D-gIvQ7Jkutj_M_e6OjCMz34OTvuUjSMd5qkz2CxgCobz4k/w480-h640/%255BUNSET%255D)
 *One of the coolest mailboxes I've seen*
 

@@ -5,7 +5,11 @@ date: 2018-06-11
 ---
 
 
-While eating a subpar breakfast burrito, I talked with two locals, Boe and Jack. They are both cyclists and Jack’s daughter rode the TransAmerica Trail before. Jack was the previous owner of Double Shot Cyclery before turning to teaching. They were great to talk to and I wished I could have stayed longer and chatted more.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimeUWHHvofd3Es1rjt5gqSU86xngd6tF-EoMaObFdNcULp3SJ3bA8jkKI-CMVTQAPcwKMg_bBLiuZpI-jn5cwn8aDZr6GrWfuGr2bBMlV-O0E-R11dE5Ji9uSaXozPbObNnD3wUzuEHUU/w480-h640/%255BUNSET%255D)
+Yesterday morning was 40 degrees. I was glad that I stayed in a hostel rather than camping outside. After I packed up my things, I rode to Double Shot Cyclery, where they also have a cafe. I was a bit early, so I waited until 7 AM for the cafe to open.  
+  
+While eating a subpar breakfast burrito, I talked with two locals, Boe and Jack. They are both cyclists and Jack’s daughter rode the TransAmerica Trail before. Jack was the previous owner of Double Shot Cyclery before turning to teaching. They were great to talk to and I wished I could have stayed longer and chatted more.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimeUWHHvofd3Es1rjt5gqSU86xngd6tF-EoMaObFdNcULp3SJ3bA8jkKI-CMVTQAPcwKMg_bBLiuZpI-jn5cwn8aDZr6GrWfuGr2bBMlV-O0E-R11dE5Ji9uSaXozPbObNnD3wUzuEHUU/w480-h640/%255BUNSET%255D)
 *Boe and Jack, two Gunnison locals*
 
 The ride toward Montrose was simply stunning. I passed by the Blue Mesa Reservoir, which was breathtaking. Along the road were many campgrounds and RV parks. There were many RVs, motorcycles, and pickup trucks with trailers attached to them coming and going.

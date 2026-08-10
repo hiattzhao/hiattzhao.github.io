@@ -7,7 +7,7 @@ date: 2025-04-04
 
 I’ve been waiting to write this post for a while, but first is a recap of the past eleven months or so since I came back from my Asia backpacking trip.
 
-In short, I didn’t do much. I was planning to learn Android programming so I bought a used ThinkPad and installed Linux Mint on it. As it turned out I had little motivation to code an Android app. Then I switched to relearning more web programming by completing the first half of[The Odin Project](https://www.theodinproject.com), however, my motivation hit a wall once again.
+In short, I didn’t do much. I was planning to learn Android programming so I bought a used ThinkPad and installed Linux Mint on it. As it turned out I had little motivation to code an Android app. Then I switched to relearning more web programming by completing the first half of [The Odin Project](https://www.theodinproject.com), however, my motivation hit a wall once again.
 
 I applied for some IT jobs, but received very few replies. I was referred to two remote jobs, but they either didn’t reply or the position was cancelled at the last minute.
 
@@ -15,7 +15,7 @@ I view this period of my life as a mini-retirement. It’s certainly better than
 
 After voting in the US presidential election, I thought about packing my bicycle and take a flight to Cancun, Mexico, and start a bicycle tour to Central and South Americas. In the end I didn’t do it because I was feeling down and had no motivation of packing my bike in a box. It just seemed such a hassle at the time.
 
-Now, it’s spring time and I feel more energized. I want to take the opportunity at this time in my life to see if I can bicycle the world. I will mainly follow my route that I had planned in 2023. I will start in King of Prussia, PA, USA, and go north to Canada. After cycling westward across Canada I will go south on the Adventure Cycling’s[Pacific Coast Route](https://www.adventurecycling.org/routes-and-maps/adventure-cycling-route-network/pacific-coast/) and cycle all the way down to southern California before going farther to Mexico and countries in Central and South Americas.
+Now, it’s spring time and I feel more energized. I want to take the opportunity at this time in my life to see if I can bicycle the world. I will mainly follow my route that I had planned in 2023. I will start in King of Prussia, PA, USA, and go north to Canada. After cycling westward across Canada I will go south on the Adventure Cycling’s [Pacific Coast Route](https://www.adventurecycling.org/routes-and-maps/adventure-cycling-route-network/pacific-coast/) and cycle all the way down to southern California before going farther to Mexico and countries in Central and South Americas.
 
 Once I reach Santiago, Chile, I might take a flight to New Zealand and cycle westward on the other side of the world. Or if I have $9000 to spare, I might take a ferry to Antarctica from Ushuaia, Argentina. After that, I might bicycle to Brazil and take a flight to Europe and go east bound to Asia. But I hear the road are very dangerous in Brazil due to large trucks, I’ll have to see when I get near Brazil I guess.
 

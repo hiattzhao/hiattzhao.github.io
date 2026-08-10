@@ -5,9 +5,13 @@ date: 2018-06-28
 ---
 
 
+This morning, I was awoken by the crowing of the roosters, but I had a good sleep. After packing my tent and such, I rolled my bike on the pebble road to the street and rode it for two blocks to the Bryce Canyon coffee shop. I ordered a danish, a banana, and a cup of coffee. I think I might be addicted to coffee since I always order one for breakfast if I can. Caffeine is actually the most abused drug in the world. I guess I just need the kick when I begin my ride everyday.  
+  
 Inside the coffee shop, I tried to upload the photos I had taken yesterday to the blog post. The app that I use on my Pixel 2 had an update yesterday and it broken the image insertion feature. I had to email the developer about the issue. I was only able to upload three images through the Blogger website on my iPad and couldn't upload anymore because the text area cannot be scrolled down further. Google has really failed with their Blogger website.  
   
-Since I couldn't really do anything about the pictures, I started riding a little after 8 AM. Once again, there was a hill waiting for me. I walked my bike most of the way until I reached the top. Then I rode a few more miles and made a left turn toward Bryce Canyon City.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTN_k9Jq7wpY0obVL_bvbkQSjqN61Hz0-49b0nPcn6NudAqQqpYTdMQgOC1oWb2ft3vjQu11e0_j9j95j2R9esimGFcZLFy_AEkwhOlAhYHncJEeSOWlJA6AyyB63xldkWyM0sD90dn7A/w640-h480/%255BUNSET%255D)
+Since I couldn't really do anything about the pictures, I started riding a little after 8 AM. Once again, there was a hill waiting for me. I walked my bike most of the way until I reached the top. Then I rode a few more miles and made a left turn toward Bryce Canyon City.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTN_k9Jq7wpY0obVL_bvbkQSjqN61Hz0-49b0nPcn6NudAqQqpYTdMQgOC1oWb2ft3vjQu11e0_j9j95j2R9esimGFcZLFy_AEkwhOlAhYHncJEeSOWlJA6AyyB63xldkWyM0sD90dn7A/w640-h480/%255BUNSET%255D)
 *Up the hill I go*
 
 After getting an iced tea, I rode to the information center where I asked the lady where to park my bike if I want to take the shuttle bus to Bryce Canyon National Park. I also paid $20 for an entrance fee to the park, which I thought was free since the town advertised their free shuttle.  

@@ -5,6 +5,8 @@ date: 2023-09-22
 ---
 
 
+I arrived in Seoul two days ago. The hostel I'm staying at is the worst hostel I've been to in terms of its facilities. Mainly, the bathroom and the shower area is not well kept. I will switch to a different hostel in two more days.
+
 On the night of my arrival, I met a bunch of other travelers from the hostel. We ended up walking to Hongdae Street to get some chicken and beer at a restaurant. The food was great and we had some funny conversations. After dinner, I decided to go back to the hostel to sleep while everyone else went bar hopping and didn't come back until 5 AM.
 
 Yesterday morning, I walked around the area near the Hongik University train station where the stop for the hostel is located. I noticed a lot of coffee shops so I stopped in one to get a cup of espresso. I was looking for an Apple store since I wanted to buy travel adapters for the laptop charger. Korea uses the type C and F plugs. The converter I had brought is too bulky and kept falling off the wall. There weren't any official Apple stores in the area, unfortunately.

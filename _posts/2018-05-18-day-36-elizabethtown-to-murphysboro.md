@@ -5,7 +5,11 @@ date: 2018-05-18
 ---
 
 
-The weather felt cool and there was no rain. The morning ride felt great with the sun behind us as we rode westward. After some small rolling hills and a few bigger ones, we arrived at the convenience store in Eddyville. I had a Klondike bar to cool myself off, and so did Crispin.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjeNQm2dRJtxsveRvjaY7f8WqUkmbEidbuvKTzsybM5sj9Erl7U71JazFRSU6llquQ9XaKKTt_fRTVQuOB8ti70I0egFXRRTpxQO6GZiKtR_nXnAXUyHj5FdfJYWglM27rRTR6-avTOzwo/w640-h480/%255BUNSET%255D)
+Yesterday morning, Crispin and I woke up at 4 AM, the earliest for the both of us so far on this trip. We packed up our tents and our bikes then walked over to the convenience store that opened at 4:30. After the usual meal of a sausage, egg, and cheese biscuit, we were ready to head out at 6 AM.  
+  
+The weather felt cool and there was no rain. The morning ride felt great with the sun behind us as we rode westward. After some small rolling hills and a few bigger ones, we arrived at the convenience store in Eddyville. I had a Klondike bar to cool myself off, and so did Crispin.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjeNQm2dRJtxsveRvjaY7f8WqUkmbEidbuvKTzsybM5sj9Erl7U71JazFRSU6llquQ9XaKKTt_fRTVQuOB8ti70I0egFXRRTpxQO6GZiKtR_nXnAXUyHj5FdfJYWglM27rRTR6-avTOzwo/w640-h480/%255BUNSET%255D)
 *With the sun behind us, we rode westward*
 
 We noticed the signage for the bike 76 route is nonexistent in Illinois. Sometimes there are signs for just a “Bike Route”, but other times there are no signs at all. Good thing I have the route on the Bicycle Route Navigator app on my iPhone so I can check the route as I ride.

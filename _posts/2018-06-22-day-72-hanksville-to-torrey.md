@@ -5,11 +5,15 @@ date: 2018-06-22
 ---
 
 
+Yesterday, while I was eating dinner at Stan’s Burger Shack, John and Sarah walked in. I was surprised because Sarah had told me John got a room elsewhere after his bike broke down. It turned out that he did arrive and asked me if I can still room with him. I said sure, since I already booked a room with two beds for $110. John and Sarah will stay in Hanksville for another day since John is unable to ride due to his physical and mental limitations.  
+  
 Riding a bicycle long distance is physically challenging, and most people don’t think about the mental part until it hits them. When people ask me what I’m riding for, I reply that I’m riding for mental health. It’s not about whether someone has a mental illness, most “healthy” people can’t even do it. It’s about the mental state of mind.  
   
 Soon after I got back to my room, John came back and paid me his portion of the motel bill. I went to bed soon after.  
   
-This morning, I woke up a little after 6. I got all my things ready before 7 and left the motel. I had an omelette at Duke’s Slickrock Grill since it was the only restaurant that opened at 7 AM. Before I started riding about a quarter before 8, I remembered that I had reached over 3000 miles on my odometer the previous day. After snapping a picture of my bike computer, I started my ride.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjQpxrm0ffk48fMnIWS53jp4ukPZ4a3u7AE6JALmMKVY6xjNUiSYAv6CT5fRgPUgPoADyhAyLioDjsAQp23oCaT6fpBm15bzTn5OaWT3eiWpFTVLqyaaHDJRRrbt_-B-yBYfo61JhxuxTo/w480-h640/%255BUNSET%255D)
+This morning, I woke up a little after 6. I got all my things ready before 7 and left the motel. I had an omelette at Duke’s Slickrock Grill since it was the only restaurant that opened at 7 AM. Before I started riding about a quarter before 8, I remembered that I had reached over 3000 miles on my odometer the previous day. After snapping a picture of my bike computer, I started my ride.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjQpxrm0ffk48fMnIWS53jp4ukPZ4a3u7AE6JALmMKVY6xjNUiSYAv6CT5fRgPUgPoADyhAyLioDjsAQp23oCaT6fpBm15bzTn5OaWT3eiWpFTVLqyaaHDJRRrbt_-B-yBYfo61JhxuxTo/w480-h640/%255BUNSET%255D)
 *Made it over 3000 miles yesterday. Actual distance is about 52 miles more.*
 
   

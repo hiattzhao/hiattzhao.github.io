@@ -5,6 +5,8 @@ date: 2023-09-19
 ---
 
 
+Two days ago, I decided to take a walk from the hostel. I followed the Shakujii River along the river bank and leisurely walked for over an hour to Asukayama Park. It was nice to explore an area of Tokyo that's not advertised in guidebooks.
+
 Yesterday, I decided to go to the nearest Bic Camera store in Ikebukuro to buy the wireless earbuds that I've been wanting. Buying something is agony for me because I don't want to carry any more things in my backpack and it's against my minimalist principles. However, I think a pair of wireless earbuds will add entertainment to my travels because I'll be listening to my music more often. I also avoided tax when I presented my passport at the cashier counter.
 
 When I came back to the hostel, I reflected on my travels in Japan. Overall, I had fun. If I were to do it again I would avoid coming to Japan in the middle of summer. July or September is more preferable. I missed climbing Mount Fuji and visiting Sendai and Sapporo. I guess I'll have to come back to them next time. I visited 13 different Japanese cities, met some locals and other travelers, and spent a total of 51 days in Japan. My expense for Japan was just shy of $3200 including housing, food, transportation, and others.

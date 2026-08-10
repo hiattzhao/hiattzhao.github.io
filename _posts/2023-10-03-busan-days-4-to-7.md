@@ -5,6 +5,8 @@ date: 2023-10-03
 ---
 
 
+After writing my previous post, I took the train for two stops and walked around Busan Citizens Park. It's a very nice park with things to do for kids and adults. I was feeling better and decided to walk back to the hostel from the park. For dinner that night, I made my favorite Korean dry noodle dish. When I was eating it I couldn't taste anything. I knew that most likely I have contracted Covid, not the flu.
+
 The next day, I mainly stayed in the hostel to continue recover from my illness. In the late afternoon, I needed some fresh air so I walked along the river that's close to the hostel. I ended up walking two subway stops south before taking the subway back.
 
 Yesterday, I mainly stayed in the dorm room and the hostel the whole day. I bought a mask and was careful to continue to isolate. I told the manager about my illness and asked her about how often they clean the guests' blankets. I had noticed that the staff change the mattress cover and the pillow case every time a guest leaves, but they only fold up the blanket, which have no duvet cover or a sheet. I observed it for two or three days. The manager was mumbling and ranting on for a bit then finally said that they clean the blankets every half a year. I told her that there's a high chance I have Covid because I have all the symptoms, including the loss of smell and taste, which is something different than flu. To my surprise, the manager said that it could still be flu. I told her that the first night I checked in I started to feel sick, maybe the previous guest had Covid and passed on to me since the blanket is not washed. In the end, the manager told me that she'll "take care" of it. I hope that means washing the blanket.

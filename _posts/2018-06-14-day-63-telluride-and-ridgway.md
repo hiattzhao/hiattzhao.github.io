@@ -5,9 +5,13 @@ date: 2018-06-14
 ---
 
 
+Yesterday morning, I was the first one up. After writing my blog post, I didn’t know what to do around the house since everyone is still asleep. I decided to try the other half of the weed gummy. Raymi came in soon after to pick up some of her things. We decided to walk to Baked in Telluride, a bakery that sells bagels and such. I bought three everything bagels and vegetable cream cheese. Raymi had to go somewhere so I came back home with the bagels.  
+  
 Soon, everyone got up. We ate our bagels and packed up for the boating trip. Around 10 AM, we left the house. Zak drove his pickup truck that has the boat attached to it all the way from Telluride to Ridgway. In downtown Ridgway, we stopped by the grocery store and picked up some snacks. I bought a pack of Klondike bars and some vegetable chips. We ate the Klondike bars on the way to Ridgway State Park, where the lake is.  
   
-After putting the boat in the water, Zak drove it to the middle of the lake. I like to relax on the boat since I’m not a good swimmer anyway. Zak and Sarah waterskied for a bit. I took some videos of them. For lunch, Sarah made some peanut butter and jelly sandwiches. I just can’t believe that I’m relaxing in the middle of a lake on my bicycle trip. I feel so blessed.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvgfqvDXh7bp-2JM-9pz7M2PN6A1H2aK5ORbxLLFdTAEAW0NQjpwsiWoe2ZsP7JqIAZsUi4EUTemSeKmGjVgQ1XnZd-lsOTV3V18CgzflAJvrhQ38g-51tz7VP-UCR5RtA4kBmS5RmNz0/w640-h480/%255BUNSET%255D)
+After putting the boat in the water, Zak drove it to the middle of the lake. I like to relax on the boat since I’m not a good swimmer anyway. Zak and Sarah waterskied for a bit. I took some videos of them. For lunch, Sarah made some peanut butter and jelly sandwiches. I just can’t believe that I’m relaxing in the middle of a lake on my bicycle trip. I feel so blessed.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvgfqvDXh7bp-2JM-9pz7M2PN6A1H2aK5ORbxLLFdTAEAW0NQjpwsiWoe2ZsP7JqIAZsUi4EUTemSeKmGjVgQ1XnZd-lsOTV3V18CgzflAJvrhQ38g-51tz7VP-UCR5RtA4kBmS5RmNz0/w640-h480/%255BUNSET%255D)
 *On the boat*
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgdD-jcpq_eAz25gJZg8Z8nowiDrxMTLjbn4-mYiPZJ1h7Sqyr-zODp_KkLfeDClJCn3RGWBedgg4uPQZb6z7Dm_YbQjetrlK4h9mgitMK0MBuMXPP33VX65NAxGlGki0nb6hPzAguUedQ/w640-h480/%255BUNSET%255D)

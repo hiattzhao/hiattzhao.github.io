@@ -5,6 +5,8 @@ date: 2023-09-17
 ---
 
 
+I returned to Tokyo a few days ago and will be taking a flight from here to Seoul on September 20.
+
 When I arrived again in Tokyo, I met up with a woman named Zulfiya for a lunch date. We had been chatting on and off for about a month. I was early so I decided to get a cup of caramel macchiato at the Starbucks inside the Tokyo Plaza. It was my first time at a Starbucks in Japan and I wanted to compare the price with US. The cost of a tall caramel macchiato is 530 JPY, or about $3.65.
 
 At 1 PM, I met Zulfiya at Tokyo Tarako Spaghetti restaurant in Omotesando near the Harajuku train station. Lunch was great. I had the mentaiko spaghetti, which is a type of roe. I also had a great conversation with Zulfiya. However, our future family plans are different so I don't think anything will come out of this date.

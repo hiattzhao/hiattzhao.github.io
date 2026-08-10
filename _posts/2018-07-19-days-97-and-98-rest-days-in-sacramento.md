@@ -5,6 +5,8 @@ date: 2018-07-19
 ---
 
 
+Two days ago, after a breakfast consisted of a bagel and some juice, I took a brief nap. Around 10:30 AM, Bob woke me up and drove us to the California State Railroad Museum in Old Sacramento.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh37p8O9tuUMz6L-ByNKkrc13wIm0mz1qjDkyDFkGoF2LhyCBug11s6rKyukYO8OqwvTN4oqVdXUmPGw0gBxX9lV_Lui9iAxovfmEQqdoUyeajCZQdAlDG4zsBwJKDzQV0SRRCSGNQBAik/w480-h640/%255BUNSET%255D)
 *Bob, my host, at the Railroad Museum*
 

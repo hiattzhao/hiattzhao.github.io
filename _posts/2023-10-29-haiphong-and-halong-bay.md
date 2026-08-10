@@ -5,6 +5,8 @@ date: 2023-10-29
 ---
 
 
+Two days ago, Chris and I took the train from Hanoi to Haiphong, a city to the east that's closer to Halong Bay. We arrived at night and walked to the Sunflower Homestay where I rented a room that's supposed to have two beds. After going through some alleyway, we found the place. But when the manager showed us our room it only had one king bed. It took some communication using Google Translate to resolve the issue. As it turned out, the other bed is a folding twin bed. I slept on the folding bed while Chris slept on the king bed. Problem solved.
+
 Chris had booked a six hour day tour of Halong Bay beforehand, so yesterday we got picked up by a driver. After picking up an Italian couple at a different hotel we arrived at Halong Bay harbor 45 minutes later.
 
 The tour group must have had about 25 people or so. We first went hiking at Ti Top Island, then I took a bamboo boat ride at Hang Luon with 7 other people. Chris opted for kayaking. The last thing we did was going to the Surprising Cave, which was huge. On the way back, we saw the sunset and moonrise from the boat as it cruised through Halong Bay. The tour ended with the tour guide, Ben, singing karaoke as we pulled into Halong Bay harbor.

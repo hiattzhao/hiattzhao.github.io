@@ -5,6 +5,8 @@ date: 2023-10-07
 ---
 
 
+I arrived in Taipei, Taiwan, on Wednesday afternoon. After getting out of the airport and into the city I stopped by a fortune teller stand and talked with a lady named Phoebe about learning fortune telling. I soon learned that it's more of a scam to pay 1,000,000 NTD (around $30,000) to learn fortune telling, but I should meditate more and get in touch with my spiritual side.
+
 The hostel I'm staying at is one of the better ones. The common room has a lot of space and light. The capsule bed has clean sheets and duvet. I feel I'm more at home in Taipei since I still know some Mandarin. I decided I need to stay in Taiwan for at least a month.
 
 I've been in touch with Chris, the Polish guy whom I had met in Tokyo. He will be coming to Taipei next week and we plan to meet. He will only stay in Taipei for a few days before going to the Philippines. After he leaves I'm thinking of cycling the perimeter of Taiwan by renting a bicycle from a store in Taipei. I will investigate how I will do that today by visiting a Giant bike store.

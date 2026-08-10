@@ -5,6 +5,8 @@ date: 2023-08-28
 ---
 
 
+There was a traveler in Nara who recommended me to visit Takamatsu, so I decided to stay one night in Takamatsu on the island of Shikoku.
+
 Takamatsu is known for its udon noodles. The style is called Sanuki. I had some very good udon noodles at a restaurant called Sanuki Udon ENY. The main drag in Takamatsu is a covered mall called the Marugamemachi Mall, similar to Himeji but longer.
 
 After dropping off my backpack at the hostel, I walked south to the Ritsurin Garden, where I took over an hour to explore. The park is a good place to aimlessly wander since there are multiple paths and it is considered a Japanese national treasure.

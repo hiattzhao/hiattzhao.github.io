@@ -5,6 +5,8 @@ date: 2023-09-03
 ---
 
 
+The other day, I wondered how many things I’m carrying as I travel. My bet is the number of items is fewer than 100, but I wasn’t sure. As a minimalist, I prefer to travel as light as I can and I want to share with you the things I’m carrying at this moment.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjtwP_y40DFWixlx25FNZ5nZ3DyGij9xMWWDuG4xHCCjM4k56ORgF3ecLlKvO-FIOHmBfEz9Ix3pjK7WNC_7NJGtlykRwwZMtTolYLvvLd0A2AihEwrbVj2P5in0Ux2hl8A6YIaIaLsB1gmsOHn3A4g2Ux1sRcgEcygo9DMCuPAAJWtb-YF4ZDmup4AY2c/w640-h480/TravelInventoryLabels1.jpg)
 *Figure 1: Everything my backpack can hold*
 

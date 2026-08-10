@@ -11,7 +11,7 @@ In any case, I rode mainly on the bike path next to Route B1. I passed by more f
 
 At 4 PM, I reached my Warmshowers host Beatrix’s house in Helmstedt after cycling 54 miles from Hildesheim.
 
-Beatrix works as a freelance journalist and has written several books. One of them was about her hike along the east and west Germany border. To see some of her projects in blog form, visit her Instagram page:[www.instagram.com/Beatrix_Flatt](https://www.instagram.com/Beatrix_Flatt).
+Beatrix works as a freelance journalist and has written several books. One of them was about her hike along the east and west Germany border. To see some of her projects in blog form, visit her Instagram page: [www.instagram.com/Beatrix_Flatt](https://www.instagram.com/Beatrix_Flatt).
 
 After taking a shower, I did laundry. When Beatrix’s husband Lorenz came back from work, we chatted more while having a vegetarian dinner in the back porch.
 

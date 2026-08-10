@@ -5,6 +5,8 @@ date: 2018-05-20
 ---
 
 
+Yesterday, we were woken up by Zack’s alarm at 5 AM. Actually, I was awake already. Crispin and I decided to get breakfast after we packed everything, so we went to Hardee’s again. When we were leaving Hardee’s we saw Zack and Jill passing by us. They are trying to aim for 70 miles a day.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgSooawN454lExJ85C9hmCNYv5380Ix8433VKBldqXFJ3T21tUvw2tS9vxurd4lyG9zFPDJGxO_i77G4tG6H02N2xt0KIGJQfs6u14FgWGx_Un_UIsBI50sH2twE4gXGzK0t4uoDzcKzOw/w480-h640/%255BUNSET%255D)
 *Popeye statue in Chester*
 

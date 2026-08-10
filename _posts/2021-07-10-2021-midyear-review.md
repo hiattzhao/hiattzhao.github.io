@@ -36,7 +36,3 @@ Additionally on the minimalism front, I’ve been sorting and selling more posse
 In the second half of this year, I will continue to read more books. So far this year I’ve read 11 books. I will pass my goal of reading 12 books per year, which is something that I set for myself several years ago. Currently, I’m reading*Quit Like a Millionaire*. A great book so far.
 
 Well, that’s my midyear review. I hope you’ve enjoyed reading and I plan to write more posts on this blog in the second half of 2021.
-
-```css
-p, li { white-space: pre-wrap; }
-```

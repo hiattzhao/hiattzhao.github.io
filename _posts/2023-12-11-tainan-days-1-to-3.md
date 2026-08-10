@@ -5,6 +5,8 @@ date: 2023-12-11
 ---
 
 
+On Saturday, I didn't do any more exploring in Kaohsiung since I was so tired. I would have extended at the hostel, but they were full on Saturday night. In hindsight, I should have stayed in Kaohsiung for a few days longer at a different hostel.
+
 Anyway, my appetite wasn't good and I only had a small breakfast egg omelette and a dish of hot vegetables. I wasn't even able to finish the vegetables. This turned out to be my meal for the entire day.
 
 After walking to Kaohsiung Station, I bought a train ticket to Tainan for 106 NTD (~$3.40). The ride to Tainan was 40 minutes. Then I had to walk for about 30 minutes to get to the hostel in Tainan, which is in the Snail Alley area that has narrow streets. I was exhausted even though I only traveled for a short while. I ended up sleep from 2 PM to 7 AM the next day.

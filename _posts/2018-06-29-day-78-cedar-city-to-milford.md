@@ -5,7 +5,11 @@ date: 2018-06-29
 ---
 
 
-After checking out, I started riding north to Milford. I finally had some tailwind. The hill wasn't bad at all compared to what I did yesterday. After reaching the summit, I rode comfortably to Minersville. In a gas station convenience store, I bought a one liter bottle of soda so I can use the bottle to store more water. Then I bought a bag of chips to snack on. There were some smoke blowing into town. I overheard that there are three forest fires nearby, so I decided to leave.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgMFXYSB1bJs_dWqqMuW84BGgsCv7zi88ujsobRSg1byfw8ZlLza0U1HKR8tmjOsevRiG54DAJKDKw0dbjGNI77RaJWrrHIqIRYf0rbU_pl-Fpbfxcfbf3OgeIRJUrEaDC3MkYIYcZuGx4/w640-h480/%255BUNSET%255D)
+I had a good sleep last night. This morning I woke up at 6:30 and got everything ready by 7. Breakfast started at 7 AM and I was the first one there. I had a bagel with cream cheese, two yogurts, and a cup of coffee. I took a banana, an apple, and two pastries for the road.  
+  
+After checking out, I started riding north to Milford. I finally had some tailwind. The hill wasn't bad at all compared to what I did yesterday. After reaching the summit, I rode comfortably to Minersville. In a gas station convenience store, I bought a one liter bottle of soda so I can use the bottle to store more water. Then I bought a bag of chips to snack on. There were some smoke blowing into town. I overheard that there are three forest fires nearby, so I decided to leave.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgMFXYSB1bJs_dWqqMuW84BGgsCv7zi88ujsobRSg1byfw8ZlLza0U1HKR8tmjOsevRiG54DAJKDKw0dbjGNI77RaJWrrHIqIRYf0rbU_pl-Fpbfxcfbf3OgeIRJUrEaDC3MkYIYcZuGx4/w640-h480/%255BUNSET%255D)
 *The road toward Milford*
 
 ﻿﻿

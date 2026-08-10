@@ -5,6 +5,8 @@ date: 2018-07-01
 ---
 
 
+Two days ago, after visiting the library in Milford, I rode my bike to Brody’s Tacos and had a burrito with two Mexican style tacos. I just can’t get enough tacos! Then I rode back to the motel room and slept for 11 hours from 7 PM to 6 AM.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhMncKQ54G1hyRQki3xOX8tu6noLYGae0bxvORb77mh-MgYPSBSrZjhecWT0-4d0LkRBuvju4iEtXLYTFI4xZeYQjBHNDqi_VdB7FlHPK73Z0hmrbdo1TOxG4EmDFqVkPJt_0Rk18OreZQ/w640-h480/%255BUNSET%255D)
 *So good!*
 

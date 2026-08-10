@@ -5,6 +5,8 @@ date: 2018-04-24
 ---
 
 
+Since I went to bed at 8 PM last night, I awoke at 5 AM. I had plenty of sleep but I realized I had set up my tent in the wrong direction since there was a little hill. Next time, make sure to set up the tent perpendicular to the hill so I don’t roll down!  
+
 I used Yelp to find a cafe that’s open at this time of the night, luckily there is one called 25-30 Espresso that opened at 4:30 AM. I rode my bike there in the dark. Not many cars at all. This coffee shop is conveniently located by the train station. I’m guessing that’s the reason for a 4:30 opening. There were a lot of customers, too! I ordered a cup of coffee and a ham and cheese croissant sandwich.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgjzr1sbQYcjEVX8Y6O-bW1ioQUY3xzHAerwV6gJvZtjp4jdp-BmDSzMet03zWls4FbGJmUNaFjdSidSCTyc98xOfH2ZdBSenRqFsmDOOQY1LNWwHV3H0teawU8KbiiysMb4VKsoxzNrOY/w480-h640/%255BUNSET%255D)

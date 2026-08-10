@@ -5,6 +5,8 @@ date: 2018-05-25
 ---
 
 
+Yesterday afternoon, I went to the Ash Grove city hall to ask for permission to camp in the city park. A woman named Debbie told me there’s actually a bike hostel in the park, then she gave me the key to the hostel. I was surprised because the hostel is not mentioned on my map.
+
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjurd-Ab2PsBH1tANdvn-l23dri_NhqJE_Fy8MWiNY5w4aw6N3xk92cieGZU2Ic-_Uomjoe791VEc_70M9u7n2E0hX9XrTx02Lam0wpcKCnaLikO8T6O0KTzO8dczRjg8HoOVlaAmG3Xzk/w640-h480/%255BUNSET%255D)
 *Ash Grove bike hostel in city park*
 

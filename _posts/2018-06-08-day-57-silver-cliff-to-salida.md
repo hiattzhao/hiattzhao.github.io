@@ -5,7 +5,11 @@ date: 2018-06-08
 ---
 
 
-I made my way two blocks to the Silver Cliff Mountain Inn and Restaurant for some breakfast. I stayed there for an hour trying to upload some photos to my blog but it didn’t work. There were a couple of people asking me about my trip. One guy named Dean rode his bike 31 years ago around the country for 8 months. That’s a lot of miles.![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjK35ecHuScxaur333bsm9Uv0vTKImGHsly0weWLafe-ANXZXb-79_KM3g0sZO_6ABxcw6k_-sUzft6SWNyX77fjucaHXm4V0y3bndxZKOGbs5NQyaLSxk_Oe5OlLYCFwvm6ve1hcQcQAE/w640-h480/%255BUNSET%255D)
+Yesterday morning after writing my post, Ken made some coffee for the both us. I thanked him for allowing me to stay in the yard. He said if I need anything else on the road just call him since he knows a lot of people in the area. What a kind soul!  
+  
+I made my way two blocks to the Silver Cliff Mountain Inn and Restaurant for some breakfast. I stayed there for an hour trying to upload some photos to my blog but it didn’t work. There were a couple of people asking me about my trip. One guy named Dean rode his bike 31 years ago around the country for 8 months. That’s a lot of miles.
+
+![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjK35ecHuScxaur333bsm9Uv0vTKImGHsly0weWLafe-ANXZXb-79_KM3g0sZO_6ABxcw6k_-sUzft6SWNyX77fjucaHXm4V0y3bndxZKOGbs5NQyaLSxk_Oe5OlLYCFwvm6ve1hcQcQAE/w640-h480/%255BUNSET%255D)
 *Simply breathtaking*
 
 I started riding around 9 AM. The weather was cool and sunny with some clouds in the distance. Soon I saw two cyclists parked on the opposite side of the road so I went over to see if they need any help. Jusarah and Ed are from Brazil. They are just taking a break. Ed is more talkative and told me about the hills ahead of me. Looks like there will be many hills from here to San Francisco. I warned them about the dogs in Kentucky.
