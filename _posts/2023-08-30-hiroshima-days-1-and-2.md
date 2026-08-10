@@ -1,0 +1,151 @@
+---
+title: "Hiroshima: Days 1 and 2"
+layout: post
+date: 2023-08-30
+---
+
+# Day 1 (August 28)
+
+I arrived in Hiroshima two days ago via the Shinkansen bullet train. Hiroshima is famous because of the detonation of the first atomic bomb dropped by the United States in WWII.When I first arrived at the train station, I walked by the Hiroshima Castle. I didn't bother to go in because I was separated by a moat from the castle, and the fact that I've seen enough castles that they all looked the same to me except different colors. The Hiroshima Castle's nickname is the Carp Castle.
+
+At the Peace Memorial Park, I saw the Atomic Bomb Dome, which the bomb exploded right above it. Somehow it stood standing and marked as a symbol of the bombing. I walked to other sights around the park before checking into the hostel. I ended up having a delicious tsukemen, or ramen dipped in sauce, at a local restaurant called Karabu that's ran by two guys.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhOWQC3Fw4YV6fSmBn81BojWMg-BYxiu3oU5hTvti-XnYt-oehQGdY0bHw3O0J4Rbt6MoiEYvC56s07c2vkukr8AaYK5ndl9ED9U4YLNFkFNHsGY1KwAVHrLo5qBIy5Py7gQsf0mlvQomIU9EGVTLPxQlt5QjKlwjd_eTL3Mdq-_Y78TZ9oXk18okdd3Wo/w640-h480/PXL_20230828_022220368.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhOWQC3Fw4YV6fSmBn81BojWMg-BYxiu3oU5hTvti-XnYt-oehQGdY0bHw3O0J4Rbt6MoiEYvC56s07c2vkukr8AaYK5ndl9ED9U4YLNFkFNHsGY1KwAVHrLo5qBIy5Py7gQsf0mlvQomIU9EGVTLPxQlt5QjKlwjd_eTL3Mdq-_Y78TZ9oXk18okdd3Wo/s4032/PXL_20230828_022220368.jpg)
+*Welcome to Hiroshima!*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLGaaLk6t8xepOHdb6RdX0qsy00aoV_unm0e9CVKHsYSaAe6-w9wVnmumlp3IkXMsNoM6OFuArj3zMKr6xiHXdPqt5lsRFlwrF4Qve9wY5o5GklVJLI1T_RdP4XpLap07m5QXfe8UVfnCp81lBe-41TCO5_MjWTzsQrZ_Iv79pXnRFSwNnGU6SclmpsUE/w640-h480/PXL_20230828_030635788.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgLGaaLk6t8xepOHdb6RdX0qsy00aoV_unm0e9CVKHsYSaAe6-w9wVnmumlp3IkXMsNoM6OFuArj3zMKr6xiHXdPqt5lsRFlwrF4Qve9wY5o5GklVJLI1T_RdP4XpLap07m5QXfe8UVfnCp81lBe-41TCO5_MjWTzsQrZ_Iv79pXnRFSwNnGU6SclmpsUE/s4032/PXL_20230828_030635788.jpg)
+*Hiroshima Castle from a distance*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgqIN2GwTt4emhYradV75G3nRE7QFEs0JAk-sLWzHCLV96YtqYWoGRi6Ko2jRsFbQUwVAVctDgAKMD2gY6j6-6-UfqkhKQVduLWn0AYldSXmNajoNOn11f97Vy1k9x5Yt1y9dxoWIIv75-O6OqMtuZ7qEUvZB7Qtp70KrdEODvDxkXlr8a12kcsm0Z4fiU/w640-h480/PXL_20230828_031132445.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgqIN2GwTt4emhYradV75G3nRE7QFEs0JAk-sLWzHCLV96YtqYWoGRi6Ko2jRsFbQUwVAVctDgAKMD2gY6j6-6-UfqkhKQVduLWn0AYldSXmNajoNOn11f97Vy1k9x5Yt1y9dxoWIIv75-O6OqMtuZ7qEUvZB7Qtp70KrdEODvDxkXlr8a12kcsm0Z4fiU/s4032/PXL_20230828_031132445.jpg)
+*Also known as the Carp Castle*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgX2fJb6D5t0jqUn-c0OamkK4FlCPXUNnEur7B9m0wkbJ-fpgZqA35OBoyICAWP9xsRVt8-9jM3Ma_gnn7cf3Y3JY3oPVucAtRPFmNY2zJwdgYqLUqikZnIw0kN-ICK0hHz5sz9h0xaiIZWxocP54MmuA5qtYpnxfxWNcuje9SW_fJ7mjCbfyBruDnFx7k/w480-h640/PXL_20230828_031200451.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgX2fJb6D5t0jqUn-c0OamkK4FlCPXUNnEur7B9m0wkbJ-fpgZqA35OBoyICAWP9xsRVt8-9jM3Ma_gnn7cf3Y3JY3oPVucAtRPFmNY2zJwdgYqLUqikZnIw0kN-ICK0hHz5sz9h0xaiIZWxocP54MmuA5qtYpnxfxWNcuje9SW_fJ7mjCbfyBruDnFx7k/s4032/PXL_20230828_031200451.jpg)
+*As close as I can get to the castle*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjlbJSebn4hGerjaKW0D8U3oDcRJxMsomZUd2TrTa1iaqIRywllsQUAyBo6dH9C8iLzGNTrq1FeMQVsU2nPZwofh8jStVaoVgOTAAbljNDi-IalsJBiPM7ezNAJTaxkbBhJcILW7B-T3U4oVUK3wTTVrn3FPcyLS4ifGBQANQMRKiMLqLUajfg5K8AbObU/w640-h480/PXL_20230828_033143642.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjlbJSebn4hGerjaKW0D8U3oDcRJxMsomZUd2TrTa1iaqIRywllsQUAyBo6dH9C8iLzGNTrq1FeMQVsU2nPZwofh8jStVaoVgOTAAbljNDi-IalsJBiPM7ezNAJTaxkbBhJcILW7B-T3U4oVUK3wTTVrn3FPcyLS4ifGBQANQMRKiMLqLUajfg5K8AbObU/s4032/PXL_20230828_033143642.jpg)
+*Atomic Bomb Dome*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEik4_Wu6jHHZ6JKKiIBZHG_hIZ6eAhEUbvjlnRom2GiYvHshDMc43s_FsGn7JGkkgmTjsMW5PNEQyg-H4X5arrEjS4Pj0XEZ5uQMvyYGLZzvEGVmMsIiZvFBEbgpzVQZti5NZkElD8SC6PU3wiyCRk0RdvUYYZrBN2gVe40kF2tBLgDfHJxoM8oK5gLnu4/w480-h640/PXL_20230828_033306893.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEik4_Wu6jHHZ6JKKiIBZHG_hIZ6eAhEUbvjlnRom2GiYvHshDMc43s_FsGn7JGkkgmTjsMW5PNEQyg-H4X5arrEjS4Pj0XEZ5uQMvyYGLZzvEGVmMsIiZvFBEbgpzVQZti5NZkElD8SC6PU3wiyCRk0RdvUYYZrBN2gVe40kF2tBLgDfHJxoM8oK5gLnu4/s4032/PXL_20230828_033306893.jpg)
+*Plaque in front of the dome*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEglS9vXqzPXRvLdPN-A6qfY3RCHfngCaNZWKhhwy_1OhXuF8D070FvaSFc65iejVOqiCkliilsgBaJUfPHKpV5gpIr6dMYOSccwuJen09FQICZjT-2mwiNKzOsm20nrBevfRpUC0lByrBfKgyejDAcwiX83La1sjlPa3890vdtdyo_SwDUomT377n8n4GE/w640-h480/PXL_20230828_033922553.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEglS9vXqzPXRvLdPN-A6qfY3RCHfngCaNZWKhhwy_1OhXuF8D070FvaSFc65iejVOqiCkliilsgBaJUfPHKpV5gpIr6dMYOSccwuJen09FQICZjT-2mwiNKzOsm20nrBevfRpUC0lByrBfKgyejDAcwiX83La1sjlPa3890vdtdyo_SwDUomT377n8n4GE/s4032/PXL_20230828_033922553.jpg)
+*On the other side of the dome*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLkFRtr_SLevdVREA4ZHB_XmV8sW_jnazM5x17lnDAfr9peF5TiPQqZBX9qnjosm7Wb0BGtyMEBFkM_r6w6fqgZVtZdZzRu_S61PsTVKcwqkuDYlvmJInuTBpI_ESSHhB3EjS2CSdIRvrkIZrg_6Z1qpnxBTs7-7it63HdwyC-wPKzOA8GafprekHgOMs/w640-h480/PXL_20230828_034638186.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjLkFRtr_SLevdVREA4ZHB_XmV8sW_jnazM5x17lnDAfr9peF5TiPQqZBX9qnjosm7Wb0BGtyMEBFkM_r6w6fqgZVtZdZzRu_S61PsTVKcwqkuDYlvmJInuTBpI_ESSHhB3EjS2CSdIRvrkIZrg_6Z1qpnxBTs7-7it63HdwyC-wPKzOA8GafprekHgOMs/s4032/PXL_20230828_034638186.jpg)
+*Across the river*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjcgEV4N-VQ1Q8QeUpcEgfqZ9tTIVaOUtETlAkM49sm-UUwIBMWD-YLpzl83iLD0jHP4i55HsUh1kQxWOmJXHLE6SPorz0NUnPlBVU2ZTJWgGUnUytAgjyIQiXZgyYsEKMXYvasEwp9dqO5mb9-uITnsi0-m5iQ62GXCBH1C8oC54TFHQM0xE9-nA2ltYM/w480-h640/PXL_20230828_034946227.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjcgEV4N-VQ1Q8QeUpcEgfqZ9tTIVaOUtETlAkM49sm-UUwIBMWD-YLpzl83iLD0jHP4i55HsUh1kQxWOmJXHLE6SPorz0NUnPlBVU2ZTJWgGUnUytAgjyIQiXZgyYsEKMXYvasEwp9dqO5mb9-uITnsi0-m5iQ62GXCBH1C8oC54TFHQM0xE9-nA2ltYM/s4032/PXL_20230828_034946227.jpg)
+*Clock Tower of Peace*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhjbyPSEePSEwxHjjjill9mwHmrV1k77DkWbig44HtDYVTAmbcyt-7EjtRQsRa7R_dg357F2pPIu8VpyRkoiBJ44-uECoqb4gmll7XoLi6ny8_h6_yirKQ42NyG0JyGQYLEUZQC3368os94MnuYBtc4CN8fXk1bJoczZ-t_9G6USTU40fzNFi5w0zDupcY/w480-h640/PXL_20230828_035205472.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhjbyPSEePSEwxHjjjill9mwHmrV1k77DkWbig44HtDYVTAmbcyt-7EjtRQsRa7R_dg357F2pPIu8VpyRkoiBJ44-uECoqb4gmll7XoLi6ny8_h6_yirKQ42NyG0JyGQYLEUZQC3368os94MnuYBtc4CN8fXk1bJoczZ-t_9G6USTU40fzNFi5w0zDupcY/s4032/PXL_20230828_035205472.jpg)
+*Bell of Peace*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi4rCLEUu7_KlZj9aAjb5FOB629JGkfFEsxM2x8tXDkghiC_G1dCIklIlUHrP_2WrC_yYliV64BJQ5yxhmegxepHS1p4BrWnKSrJbV6UmNYlcE3cPdMU0fg-2TqLXwGIQNzBWSZbfV1Jv7aieN3dQIQVxa3Q1Kif37zJQ8qEaMCrSjNpSM2hHatwOBdfgA/w480-h640/PXL_20230828_040001533.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi4rCLEUu7_KlZj9aAjb5FOB629JGkfFEsxM2x8tXDkghiC_G1dCIklIlUHrP_2WrC_yYliV64BJQ5yxhmegxepHS1p4BrWnKSrJbV6UmNYlcE3cPdMU0fg-2TqLXwGIQNzBWSZbfV1Jv7aieN3dQIQVxa3Q1Kif37zJQ8qEaMCrSjNpSM2hHatwOBdfgA/s4032/PXL_20230828_040001533.jpg)
+*Children's Peace Monument*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjRUR6iUNyMQELrAtC_8xHywHebVr8Ydle3w2vj10zChDR8eFyHPcav1yHI-S8pC1ShMlpha07aY5rvp7ipMYyBJqf1eadaZQaQ4XMRrAe7xOAhH7lFpH0nJnazH6oyiJpc6v83fACXHBhxPRmHR7wjGFy6JsesHXahmjVboDbczyLix-O7s45n3G6sMoI/w640-h480/PXL_20230828_041202072.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjRUR6iUNyMQELrAtC_8xHywHebVr8Ydle3w2vj10zChDR8eFyHPcav1yHI-S8pC1ShMlpha07aY5rvp7ipMYyBJqf1eadaZQaQ4XMRrAe7xOAhH7lFpH0nJnazH6oyiJpc6v83fACXHBhxPRmHR7wjGFy6JsesHXahmjVboDbczyLix-O7s45n3G6sMoI/s4032/PXL_20230828_041202072.jpg)
+*Flame of Peace*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgz2mOoyMFgEuZRAAKEGtqVzPcl5aodO01t_xHwWPkWRrs30I-e1RxWVBzRDpa8S-vgQfNKPyCqsuIovPEfBrl9a2ngQgum5h1wgTte4oZPHkN4JuBjE4__BIrZVn3dvUoI3debHG9q2w21H40_kXk1i9ClVqlLZhOoEOapwgiS0zFLZVyF59HIiI8hTIs/w480-h640/PXL_20230828_041358566.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgz2mOoyMFgEuZRAAKEGtqVzPcl5aodO01t_xHwWPkWRrs30I-e1RxWVBzRDpa8S-vgQfNKPyCqsuIovPEfBrl9a2ngQgum5h1wgTte4oZPHkN4JuBjE4__BIrZVn3dvUoI3debHG9q2w21H40_kXk1i9ClVqlLZhOoEOapwgiS0zFLZVyF59HIiI8hTIs/s4032/PXL_20230828_041358566.jpg)
+*Hiroshima Victims Memorial Cenotaph*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhFU0rctKKyLTks_ehj4oA678tXadX7n8GF-bSeot_lKVxcHt_2yJUHwivZNcPqxyPjpNtGE0_eNR8H8v84K_QKLt8Gt7uqPeqV3ftUjYYc2DkAVYz78GeXoRFq9RdcqP4vFTUfKjl_aUttpnw44nUsHLWno-Etx6aJz6ydAKG54oCy0Up3ucDN_0svIpo/w640-h480/PXL_20230828_041813134.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhFU0rctKKyLTks_ehj4oA678tXadX7n8GF-bSeot_lKVxcHt_2yJUHwivZNcPqxyPjpNtGE0_eNR8H8v84K_QKLt8Gt7uqPeqV3ftUjYYc2DkAVYz78GeXoRFq9RdcqP4vFTUfKjl_aUttpnw44nUsHLWno-Etx6aJz6ydAKG54oCy0Up3ucDN_0svIpo/s4032/PXL_20230828_041813134.jpg)
+*Mother and Baby statue with Prayer Fountain in the background*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhblGCGUYeToalHBXKjJvm8oUTq4NoLsqrzolTDQxsjkA1UNglEB5ioHSiTazBf6gxh-9pR_FNqraoh9rYYbKeHz7waShGB_H1YL-P05fhrqLbgi16Dcmi1inn8X_mzb3gcKtHeEpN5P_TU1YeREVj7tbem84UbsmRL3W0oL8905GjZdN9wN9rfWRHzyK4/w640-h480/PXL_20230828_090207842.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhblGCGUYeToalHBXKjJvm8oUTq4NoLsqrzolTDQxsjkA1UNglEB5ioHSiTazBf6gxh-9pR_FNqraoh9rYYbKeHz7waShGB_H1YL-P05fhrqLbgi16Dcmi1inn8X_mzb3gcKtHeEpN5P_TU1YeREVj7tbem84UbsmRL3W0oL8905GjZdN9wN9rfWRHzyK4/s4032/PXL_20230828_090207842.jpg)
+*Tsukemen - ramen dipped in sauce*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhFb87b2MplFf0q4oRUZdlkdortTRWErX2-tSj_W9I108DtQXjiv5avh_IbRqnmTWEkw3WxvVQkbuEN1cCLWQpvQfb54LYt4O0ETarRT8w-fYDfRQtzgqIVThyUG_W6rUQwQPz0HOIsEbUxc_SmEVGQ43S9m8_Jc78COwvTuZALvkRUsZvydP-_4FWBBHw/w640-h480/PXL_20230828_091319591.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhFb87b2MplFf0q4oRUZdlkdortTRWErX2-tSj_W9I108DtQXjiv5avh_IbRqnmTWEkw3WxvVQkbuEN1cCLWQpvQfb54LYt4O0ETarRT8w-fYDfRQtzgqIVThyUG_W6rUQwQPz0HOIsEbUxc_SmEVGQ43S9m8_Jc78COwvTuZALvkRUsZvydP-_4FWBBHw/s4032/PXL_20230828_091319591.jpg)
+*The Karabu restaurant*
+
+# Day 2 (August 29)
+
+The second day, I woke up early to take the World Heritage Sea Route ferry from Hiroshima to Miyajima Island to see the floating torii gate. The ride was 45 minutes long to the island. I spent about an hour and half on the island taking photos of the gate and the surrounding temples. I even walked on a secluded path back to the pier so that I can get away from the tourists. When I came back to Hiroshima I had another noodle dish where soba noodles were dipped in sauce. That restaurant was ran by an elderly couple. I just love visiting these small family run restaurants.
+
+I didn't do much in the afternoon since it was so hot. I had noodles for the third time in a row. This time I went to Ippudo, a ramen chain that I've been wanting to visit for awhile. I had a spicy ramen and some dumplings that were pretty good. I walked around the neighborhood by the ramen shop before walking back to the hostel after sunset.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEieFV0zREbc1IKAeHGLSbaR2RXNaRgxn7QxMCZLQeDhrJCuUH-PnaNRz7W334omJQaQnaPVBPnE98ZCSy35ZTaCVREN9DjC9EDkIuqud64q8NvLGlfmgFVCxeVrTdZobAn1elRhf9wX4m-6aVXaDwN-ZyqJYIL24M95Ze1dMIU7dk4xJwdizKFk-lI6qgk/w640-h480/PXL_20230828_231035325.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEieFV0zREbc1IKAeHGLSbaR2RXNaRgxn7QxMCZLQeDhrJCuUH-PnaNRz7W334omJQaQnaPVBPnE98ZCSy35ZTaCVREN9DjC9EDkIuqud64q8NvLGlfmgFVCxeVrTdZobAn1elRhf9wX4m-6aVXaDwN-ZyqJYIL24M95Ze1dMIU7dk4xJwdizKFk-lI6qgk/s4032/PXL_20230828_231035325.jpg)
+*Taking the ferry in the morning*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiJSgVSCSOxMiPjBCeCQBMtxdZxagWH18CHWkImML52U-4sC2Ptahf8T044i9XqDLo_X6YT2YNGylY-m30FYtVzt1oP8F8r5h40THjfHl5tJyLX0Lc7TLIQUa5e9SCL_XZ0wxSyOTVY_JUtyNxwmaGqwaiz1rOPoLPUrjqRY7ILE2NqRxqQJJ_Qmv1COEE/w640-h480/PXL_20230828_234758406.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiJSgVSCSOxMiPjBCeCQBMtxdZxagWH18CHWkImML52U-4sC2Ptahf8T044i9XqDLo_X6YT2YNGylY-m30FYtVzt1oP8F8r5h40THjfHl5tJyLX0Lc7TLIQUa5e9SCL_XZ0wxSyOTVY_JUtyNxwmaGqwaiz1rOPoLPUrjqRY7ILE2NqRxqQJJ_Qmv1COEE/s4032/PXL_20230828_234758406.jpg)
+*Ferry view*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPTr_MshiJ8sZSeVu6-HZQpC7hax3_9UmMkf0kIikq_T344TJFgMAXxGCgNG9AFnj-VDgvBYvrSRFUxk5j8Ouuybeii60u6zs32mM19aLz3L28wf8jQ1yKjWmecAyj6x9tJzdkik6YCewgXHJk4eTzvCiBQu9azP2fteBqlo_GNbAdHmw5kLKuFVaHjhA/w640-h480/PXL_20230829_002153900.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhPTr_MshiJ8sZSeVu6-HZQpC7hax3_9UmMkf0kIikq_T344TJFgMAXxGCgNG9AFnj-VDgvBYvrSRFUxk5j8Ouuybeii60u6zs32mM19aLz3L28wf8jQ1yKjWmecAyj6x9tJzdkik6YCewgXHJk4eTzvCiBQu9azP2fteBqlo_GNbAdHmw5kLKuFVaHjhA/s4032/PXL_20230829_002153900.jpg)
+*On Miyajima Island*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgn0N6UPnyaKd1HTGIeH5fDCqxI-Kkle9f1_cQTYzc6s-hUeq2sqFMU9yon5M0JlA4BGajzFVhKOj8fYiIDYDMGeqLnJzkfkeakHhXQRkXoq-YkXZ1H1Ll5uHDMb2quWIpfvCrjaNNa7ZgyQrYc4NuExxJf0DDwwbG3Mq0Y5xz46PgHbCrrkJFUBZv0Q-k/w640-h480/PXL_20230829_002349191.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgn0N6UPnyaKd1HTGIeH5fDCqxI-Kkle9f1_cQTYzc6s-hUeq2sqFMU9yon5M0JlA4BGajzFVhKOj8fYiIDYDMGeqLnJzkfkeakHhXQRkXoq-YkXZ1H1Ll5uHDMb2quWIpfvCrjaNNa7ZgyQrYc4NuExxJf0DDwwbG3Mq0Y5xz46PgHbCrrkJFUBZv0Q-k/s4032/PXL_20230829_002349191.jpg)
+*Floating torii gate in the distance*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEia6zjKQXKtjrwrdBStxr3ijthG51I4i9lWwIkW2Te2aBLn5f675O372BcCXl50c64hdlLshvO-dFKhf0VNttpedGbfUlG__VuBiMDtsR0jO94cZq5HiX1iWg7gDDeaB_fwnCXZEJohbedU_wxhVhN5Rtb0N-bM7aGl6BTbo7TJcKeR4XoJOT-4AAK5Ly8/w640-h480/PXL_20230829_002633233.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEia6zjKQXKtjrwrdBStxr3ijthG51I4i9lWwIkW2Te2aBLn5f675O372BcCXl50c64hdlLshvO-dFKhf0VNttpedGbfUlG__VuBiMDtsR0jO94cZq5HiX1iWg7gDDeaB_fwnCXZEJohbedU_wxhVhN5Rtb0N-bM7aGl6BTbo7TJcKeR4XoJOT-4AAK5Ly8/s4032/PXL_20230829_002633233.jpg)
+*Gate before the gate*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgEdofYy-V5TQpsbLb3cYqtWd4Sys1QY1zp-Aee825A6rtzVsK2HJ_QVjXMxTz0C4GiFqYSVYwNTLy6KiHpC57nIR_utSseiFlNGZvHLmTEjn-qqXty0YYaDrnvrMimlA3x1THQzhYoNwSnkbMnDvlyDXhn18gBpRQgwYdRbFZlBSD07mDC2KJuMmVv8Yk/w640-h480/PXL_20230829_002919865.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgEdofYy-V5TQpsbLb3cYqtWd4Sys1QY1zp-Aee825A6rtzVsK2HJ_QVjXMxTz0C4GiFqYSVYwNTLy6KiHpC57nIR_utSseiFlNGZvHLmTEjn-qqXty0YYaDrnvrMimlA3x1THQzhYoNwSnkbMnDvlyDXhn18gBpRQgwYdRbFZlBSD07mDC2KJuMmVv8Yk/s4032/PXL_20230829_002919865.jpg)
+*The floating torii gate*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_nd-nNXgeanbj45Tl94rS0Kw55bJ78cbzlS5gE8-VnoRZucfZtU--u2zN1LabHvxGIofmvuJRhqX4Qdy01KoTmgRH6R9njI2Ahv7XhkYmLtdTQDcIFU-Cgv79_OS6XtuUlwKBuWDHSjVoYzLWr0HfzZWas2Z9rVaY4ndbSng_m_IHuhyYD8srC6zRWaU/w640-h480/PXL_20230829_003143140.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg_nd-nNXgeanbj45Tl94rS0Kw55bJ78cbzlS5gE8-VnoRZucfZtU--u2zN1LabHvxGIofmvuJRhqX4Qdy01KoTmgRH6R9njI2Ahv7XhkYmLtdTQDcIFU-Cgv79_OS6XtuUlwKBuWDHSjVoYzLWr0HfzZWas2Z9rVaY4ndbSng_m_IHuhyYD8srC6zRWaU/s4032/PXL_20230829_003143140.jpg)
+*Close-up*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHxrI14upKIWvzoHRSM5njF1MoWth49807vtkqu3QTFZNkmRkK4835PVWIHm2VVKaL8xNFuklNLHMiSy4Ns0SwpR_LJ625p9Thr-pTVmTgbm5GXZP8mJeuzXyrXVAoblw6x30zIb1R6trYLfkVHaewuoD9F3fUAb0fMEvRncqemeMreT_lgo3edD_v3_g/w640-h480/PXL_20230829_003317772.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHxrI14upKIWvzoHRSM5njF1MoWth49807vtkqu3QTFZNkmRkK4835PVWIHm2VVKaL8xNFuklNLHMiSy4Ns0SwpR_LJ625p9Thr-pTVmTgbm5GXZP8mJeuzXyrXVAoblw6x30zIb1R6trYLfkVHaewuoD9F3fUAb0fMEvRncqemeMreT_lgo3edD_v3_g/s4032/PXL_20230829_003317772.jpg)
+*Another view*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgzindZaRFWeM11liMQgcrl845vAqiV_VbCTMQgiCssxVfaQo0PhfTsBiQeEuwm8m70RD2tBvNyC61ISTf7ou1Mb_L6fGdE3PUo_mZcFswxTM-k6rEeC6czSPmivHoblC9moOmjHRevnYYY4Hh75BMfzDBfGiHITdbp-NHoozXCUD1NxHVc97wlqhAs7AA/w640-h480/PXL_20230829_003954779.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgzindZaRFWeM11liMQgcrl845vAqiV_VbCTMQgiCssxVfaQo0PhfTsBiQeEuwm8m70RD2tBvNyC61ISTf7ou1Mb_L6fGdE3PUo_mZcFswxTM-k6rEeC6czSPmivHoblC9moOmjHRevnYYY4Hh75BMfzDBfGiHITdbp-NHoozXCUD1NxHVc97wlqhAs7AA/s4032/PXL_20230829_003954779.jpg)
+*Itsukushima Jinja shrine*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5pm7yxawrHGLGpNNilBlfc61UO3pNUkhZM6vUF-WoMYY61ZA_hRxIDU-BpcWSPkzIFNeaUUWJIDw7bacamobfy6pmS2V8VcA1dlk16pdFgu0dH_u8jUa0uaz6poSlZNVWYM9imslyTt1br8Pab3BUw_IYpiNqv0BnMentUzETliySfeNBEhWH-wp2A5M/w640-h480/PXL_20230829_004312839.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi5pm7yxawrHGLGpNNilBlfc61UO3pNUkhZM6vUF-WoMYY61ZA_hRxIDU-BpcWSPkzIFNeaUUWJIDw7bacamobfy6pmS2V8VcA1dlk16pdFgu0dH_u8jUa0uaz6poSlZNVWYM9imslyTt1br8Pab3BUw_IYpiNqv0BnMentUzETliySfeNBEhWH-wp2A5M/s4032/PXL_20230829_004312839.jpg)
+*Torii gate from the shrine*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhhZ2F6ft-xWmFsUXiHIztmYoFiKv4BdlQ9_rXnAzwyDvj238aQF0s0vsZJPPoWIDibW96Sj5YCJYL9rvppOL6UbX0diT5nAejSEWOXJVGljn9jBwc_noRLNVHlxcRe_Pa1RuwilK9opA8vMqsS0Ws26mMeEFJHrAju7oZtf-kiAhv75WBrX9zvYn9WPiU/w640-h480/PXL_20230829_004532045.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhhZ2F6ft-xWmFsUXiHIztmYoFiKv4BdlQ9_rXnAzwyDvj238aQF0s0vsZJPPoWIDibW96Sj5YCJYL9rvppOL6UbX0diT5nAejSEWOXJVGljn9jBwc_noRLNVHlxcRe_Pa1RuwilK9opA8vMqsS0Ws26mMeEFJHrAju7oZtf-kiAhv75WBrX9zvYn9WPiU/s4032/PXL_20230829_004532045.jpg)
+*Lantern with the gate*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg7Kea-jtMFbDSMNkr2JEgYvD2GLDKsbafp8U55R6bdfJD_GXwAtG3lofJN3IuBi0ntrg1faWDkcL_1uMjRb4WftVQjo65QwtkAJ3fWpIOiNxsawZ1IxFNi2bVMwvK4LrMazAAmf2MmgzhMGPFETzI9aB6Tycws5a7cEjrrrIjX1_vLQO6gph9jPqIBypU/w640-h480/PXL_20230829_005904505.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg7Kea-jtMFbDSMNkr2JEgYvD2GLDKsbafp8U55R6bdfJD_GXwAtG3lofJN3IuBi0ntrg1faWDkcL_1uMjRb4WftVQjo65QwtkAJ3fWpIOiNxsawZ1IxFNi2bVMwvK4LrMazAAmf2MmgzhMGPFETzI9aB6Tycws5a7cEjrrrIjX1_vLQO6gph9jPqIBypU/s4032/PXL_20230829_005904505.jpg)
+*Up the hill*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg4jQXXvTHh7P0xfhyMmM3dZXq1ECYJ9qMAc1_YvJ-C5q2cYzaRS09fTgboY6wlFNe80Bc-UZKxAgrxUfCU8M11lnK0h9Cxb0g0MnWyCIPRU10XiMGsnrwey5GOZZv5ZhFmq2R2ttx7r35ksBuIit2PpVY4h3BBc-aonIatVkTxEmT3ILk3T30qx01dUks/w640-h480/PXL_20230829_012050679.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg4jQXXvTHh7P0xfhyMmM3dZXq1ECYJ9qMAc1_YvJ-C5q2cYzaRS09fTgboY6wlFNe80Bc-UZKxAgrxUfCU8M11lnK0h9Cxb0g0MnWyCIPRU10XiMGsnrwey5GOZZv5ZhFmq2R2ttx7r35ksBuIit2PpVY4h3BBc-aonIatVkTxEmT3ILk3T30qx01dUks/s4032/PXL_20230829_012050679.jpg)
+*Not sure why Buddhas have red hats on*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZnGG40JxrvGzoQF16M-cEB3UR5PCN3-LBy-ZA_QGd3Pc-R9BjvOGZqCgKRQMDS8vXLDJ28KZcrybqRmptFb-EYtLrqZRBucghc3rgb41GFHA0rsBIrCd9Dav4jhaUFiQrHlC3fgybsStgCIdHz3_3W_zwdQvxJhX3EuGXmzI1mopu84tdwXwypTJreqI/w640-h480/PXL_20230829_014844350.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhZnGG40JxrvGzoQF16M-cEB3UR5PCN3-LBy-ZA_QGd3Pc-R9BjvOGZqCgKRQMDS8vXLDJ28KZcrybqRmptFb-EYtLrqZRBucghc3rgb41GFHA0rsBIrCd9Dav4jhaUFiQrHlC3fgybsStgCIdHz3_3W_zwdQvxJhX3EuGXmzI1mopu84tdwXwypTJreqI/s4032/PXL_20230829_014844350.jpg)
+*The deer of Miyajima Island*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhN_O9F_aAexZ8ysS7023pU8CTd7HKQJ3FSq6bj3_gn0tf7H8qduTc54G0-SoXM6NypOvZQ36ZroJKRf10rj5yOeDy6TVTc4b6N7ELA5Yv39L-K2jjWFG6iHVu69QhRxMRo-IWAaqMez9NIoZ3yP1hoWLLDNqrqrGqgwbsNRqlKuzW6dNBOiAhVsyl1bRQ/w640-h480/PXL_20230829_015210127.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhN_O9F_aAexZ8ysS7023pU8CTd7HKQJ3FSq6bj3_gn0tf7H8qduTc54G0-SoXM6NypOvZQ36ZroJKRf10rj5yOeDy6TVTc4b6N7ELA5Yv39L-K2jjWFG6iHVu69QhRxMRo-IWAaqMez9NIoZ3yP1hoWLLDNqrqrGqgwbsNRqlKuzW6dNBOiAhVsyl1bRQ/s4032/PXL_20230829_015210127.jpg)
+*A small gate that rarely anyone goes to*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuDl0jL55ZvHoNGUQvJs5vaQ6z-D7L7znwUJGE6VpG_cUnVN5WeQZBJFqW9WhcX_Yts1g5TU3mEcwARUNxkOenBaodqrzAFRItTR0uV2yqAG7OF1uX3aZg__Bb2AcHmtmRjvezJv8NueZCpSc464BONl2u0UywH5-omiXGA_iWaqcNbU3IhWU56_eLFVY/w640-h480/PXL_20230829_024502034.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiuDl0jL55ZvHoNGUQvJs5vaQ6z-D7L7znwUJGE6VpG_cUnVN5WeQZBJFqW9WhcX_Yts1g5TU3mEcwARUNxkOenBaodqrzAFRItTR0uV2yqAG7OF1uX3aZg__Bb2AcHmtmRjvezJv8NueZCpSc464BONl2u0UywH5-omiXGA_iWaqcNbU3IhWU56_eLFVY/s4032/PXL_20230829_024502034.jpg)
+*Back in Hiroshima*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgccd--ToVAEInB84iSGv_NKx7SW01BN9sFi70I5lUsmtjuNqPvjxjjF3s0jFQJkXBbu6cHwqZ-seshSvhCA_l8HTVJM9bfwQHoIMcVu8O3hlaiXWCf4Lcdnp9sj-JK0HckLefEC6F6e99hsioOtZpEEj7SUYKwXIJBpQkvlcGk6DN4OCelq-sABRNxP4k/w640-h480/PXL_20230829_030938999.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgccd--ToVAEInB84iSGv_NKx7SW01BN9sFi70I5lUsmtjuNqPvjxjjF3s0jFQJkXBbu6cHwqZ-seshSvhCA_l8HTVJM9bfwQHoIMcVu8O3hlaiXWCf4Lcdnp9sj-JK0HckLefEC6F6e99hsioOtZpEEj7SUYKwXIJBpQkvlcGk6DN4OCelq-sABRNxP4k/s4032/PXL_20230829_030938999.jpg)
+*Soba noodles dipped in sauce with tempura*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgIelM05ilnLT4o8xR6J2J-00H4rIFaYxk3TjuTbRQbo9Y9eAaA92YEeOOFuKJ6ldkkbblh6EGAJzC3bB_fbgQ0GV34AzG6mjB7c4JHCwyQlOSI9Aw1KcftsUvx92qNQqnj0rSR-LYcLFKKYPYBnnwQq7WKHXLZLAHQOBRH_O5LmDa7THXYtP5V35VuXyE/w640-h480/PXL_20230829_084114279.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgIelM05ilnLT4o8xR6J2J-00H4rIFaYxk3TjuTbRQbo9Y9eAaA92YEeOOFuKJ6ldkkbblh6EGAJzC3bB_fbgQ0GV34AzG6mjB7c4JHCwyQlOSI9Aw1KcftsUvx92qNQqnj0rSR-LYcLFKKYPYBnnwQq7WKHXLZLAHQOBRH_O5LmDa7THXYtP5V35VuXyE/s4032/PXL_20230829_084114279.jpg)
+*Spicy ramen at Ippudo*

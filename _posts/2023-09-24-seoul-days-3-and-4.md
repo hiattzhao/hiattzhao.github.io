@@ -1,0 +1,114 @@
+---
+title: "Seoul: Days 3 and 4"
+layout: post
+date: 2023-09-24
+---
+
+Two days ago, I hung out with Lya, a 24 years old Mexican girl who is a film student. We walked across the bridge to the south side of the Han River to a park. I also had to buy a travel adapter from the Apple store nearby. The Apple associate told me they don't sell the travel kit with all the plug types and only sold the plug type for Korea. I felt ripped off buying only one plug for $10, but I need the plug converter.
+
+Yesterday, I took the train to City Hall station and went to the Gyeongbokgung Palace. It's the biggest of Seoul's five palaces. I then had a spicy beef soup at a restaurant for lunch. After that I took the train to Namsan Seoul Tower and hiked all the way up. I paid 18000 KRW for a ticket to the tower and got a good view of the city from the observatory. At the base of the tower there was some kind of performance that featured drumming and martial arts.
+
+When I came back to the hostel there were some new travelers. I ended up going to a Korean BBQ restaurant with Diego, a 47 years old German Colombian. He has traveled all over the world and will go to China after South Korea.
+
+This morning, I went to The Coffee Bean cafe with Diego and learned that he's into cycling, too, though he's never done a long distance tour. Maybe in the future we will cycle together when I'm in Europe.
+
+Today, I will change to a different hostel, but will stay in the same area.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghGDc1w1i4rXxlbPzSS94GM4dQAvCeQKR6ZVsCihxdd1xPplbGtO2_T6hXf19M7HL85cmQmhOt5zpvV3zvO-3ZpbAvS2z4p2Kxu3CqwUSml7gYiXw34pDINwVscx1KL-5wP75d74rIo_vBBGbGpP2CGZVE9VFPUg8XFLhq7QShm4pfugmRRxp3va4NS_Y/w640-h480/PXL_20230922_034709198.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEghGDc1w1i4rXxlbPzSS94GM4dQAvCeQKR6ZVsCihxdd1xPplbGtO2_T6hXf19M7HL85cmQmhOt5zpvV3zvO-3ZpbAvS2z4p2Kxu3CqwUSml7gYiXw34pDINwVscx1KL-5wP75d74rIo_vBBGbGpP2CGZVE9VFPUg8XFLhq7QShm4pfugmRRxp3va4NS_Y/s4032/PXL_20230922_034709198.jpg)
+*Walking on the bridge to south side of the Han River*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjir5J7Ffs7kekKY3JVMbrDgnRg-pROXNZnEQfbLSiMgzgAarQ-HSREFTMS1F1bWm-68SCEixsKOkHj4G5DMZbjHAQa-4E1HAJV2O8sKlMGb4QdjEFvQ7wQxXxcFF0qipxUr3-l38lQHs4X-EnkygUa1tdIUVSmedoa8LkHJ-PpgKFPTRCjcAc3jVWIvg0/w480-h640/PXL_20230922_035725287.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjir5J7Ffs7kekKY3JVMbrDgnRg-pROXNZnEQfbLSiMgzgAarQ-HSREFTMS1F1bWm-68SCEixsKOkHj4G5DMZbjHAQa-4E1HAJV2O8sKlMGb4QdjEFvQ7wQxXxcFF0qipxUr3-l38lQHs4X-EnkygUa1tdIUVSmedoa8LkHJ-PpgKFPTRCjcAc3jVWIvg0/s4032/PXL_20230922_035725287.jpg)
+*Sculpture at the park*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiwK9rs3hnxJqRSBBdkphUeBmZCCBmcUIRL78UAlR8jvyI1SuA1Rdj6cSVQacjUfAfVxzHlZOn_WCJu6ljD-w7NBTCt9Vv2PGR3TVm4fqCcvzBk8k73ekX_12_3LnARhS8VKS_N0HZIuuxZfNzQLXmNXwUmj3fJKirUkHB_EFxaMdQapw-f59uLidt5ajM/w640-h480/PXL_20230922_041546002.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiwK9rs3hnxJqRSBBdkphUeBmZCCBmcUIRL78UAlR8jvyI1SuA1Rdj6cSVQacjUfAfVxzHlZOn_WCJu6ljD-w7NBTCt9Vv2PGR3TVm4fqCcvzBk8k73ekX_12_3LnARhS8VKS_N0HZIuuxZfNzQLXmNXwUmj3fJKirUkHB_EFxaMdQapw-f59uLidt5ajM/s4032/PXL_20230922_041546002.jpg)
+*Looking across the river to the north side of Seoul*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7TI9dadwByH_e2aZ7RYITiHKqRz5Go282C8_26_KepwaEPKB_7zTPdLwmdt2eHQimROM-Lxx5YUrOUagWFXG6SnV9xzyjAAZe-QUGjd62JZ1-tzHvGhALMEFTy6ih6HByL06Orx4XjzPkr-n6Lq03mvEXtACRDekavMavaJf5cHIRrfDQQQmcjAhnmu4/w640-h480/PXL_20230922_061821345.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7TI9dadwByH_e2aZ7RYITiHKqRz5Go282C8_26_KepwaEPKB_7zTPdLwmdt2eHQimROM-Lxx5YUrOUagWFXG6SnV9xzyjAAZe-QUGjd62JZ1-tzHvGhALMEFTy6ih6HByL06Orx4XjzPkr-n6Lq03mvEXtACRDekavMavaJf5cHIRrfDQQQmcjAhnmu4/s4032/PXL_20230922_061821345.jpg)
+*The hostel that I'm moving away from*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjr1XdGwsfpcALN6Ddpl6kYFik_De5X2DMoCQ2-ArIoICqUdrlGBFHxNLMcsjGa4IueWW_xoe8vD6a22giVwRt4krPPy6mh-muy5vsvsZ2SjrJOnCoflI0Frl74uLwdozFgJmpBRmM_R4GWgfk0tNFZ6CSdMIvKpUiHJxprgOUnkJseZbcbFTq07Na-zKo/w640-h480/PXL_20230923_022601507.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjr1XdGwsfpcALN6Ddpl6kYFik_De5X2DMoCQ2-ArIoICqUdrlGBFHxNLMcsjGa4IueWW_xoe8vD6a22giVwRt4krPPy6mh-muy5vsvsZ2SjrJOnCoflI0Frl74uLwdozFgJmpBRmM_R4GWgfk0tNFZ6CSdMIvKpUiHJxprgOUnkJseZbcbFTq07Na-zKo/s4032/PXL_20230923_022601507.jpg)
+*Gyeongbokgung Palace*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg5hyjJObDB7CLI-n9w87CWDRDgZUJbegizAj4ZKfw9tPGjT3ngsUhPXeal5WNZqAqj26AwU8nSg91iu_vgsMec6xUXHmu1Px8VmRhVxWeZgvaB6FqI5ughIg1CNm3xcX-YDcOwCAPh_k92VQXIbB9KfLBwFkvqcsfuMKTB0SHPtwjIya4uDeb_Qd_GxlY/w480-h640/original_a821b7dc-e5bb-44c6-ba29-02543f991706_PXL_20230923_022939456.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg5hyjJObDB7CLI-n9w87CWDRDgZUJbegizAj4ZKfw9tPGjT3ngsUhPXeal5WNZqAqj26AwU8nSg91iu_vgsMec6xUXHmu1Px8VmRhVxWeZgvaB6FqI5ughIg1CNm3xcX-YDcOwCAPh_k92VQXIbB9KfLBwFkvqcsfuMKTB0SHPtwjIya4uDeb_Qd_GxlY/s3899/original_a821b7dc-e5bb-44c6-ba29-02543f991706_PXL_20230923_022939456.jpg)
+*Gyeongbokgung Palace with women in traditional Korean hanok clothing*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhBM0gHGGy3g7Slbdh3gcH6aMq63QivZgdhIEvo2rH884_tzhJk3FYVhw5peSIz4CvG4x1h0fa2kKrb5-xatbAVyXDtSsdZ3cMoy0aFkkNU1cSECc9xXpJ0qOBZqluftWQv8aA1eiSB5VGrv2qE1UmXP6k0XW7ADZ52WQIHeLRjDSsKzByOU0yiztROQyc/w640-h480/PXL_20230923_023150060.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhBM0gHGGy3g7Slbdh3gcH6aMq63QivZgdhIEvo2rH884_tzhJk3FYVhw5peSIz4CvG4x1h0fa2kKrb5-xatbAVyXDtSsdZ3cMoy0aFkkNU1cSECc9xXpJ0qOBZqluftWQv8aA1eiSB5VGrv2qE1UmXP6k0XW7ADZ52WQIHeLRjDSsKzByOU0yiztROQyc/s4032/PXL_20230923_023150060.jpg)
+*Surprised to see Chinese characters in the Gyeongbokgung Palace*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhR0tbDzE5hKMXNUx97AOMJaPwxX05InfszIjl8l9Oe2cleDZbm4C2rn393gY9mEdUyj4nirlx9e59GDb1xlA2_wDqmJ6-tNeRuXgES-mcKcnAEyEosnBWKOBD_8I3ChTnAPQDkUtb-o1Ma1L0XZI1ltGEIt846jhUzRaHoxNB8b36qyg4b2ueAFMjGoi0/w640-h480/PXL_20230923_023338254.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhR0tbDzE5hKMXNUx97AOMJaPwxX05InfszIjl8l9Oe2cleDZbm4C2rn393gY9mEdUyj4nirlx9e59GDb1xlA2_wDqmJ6-tNeRuXgES-mcKcnAEyEosnBWKOBD_8I3ChTnAPQDkUtb-o1Ma1L0XZI1ltGEIt846jhUzRaHoxNB8b36qyg4b2ueAFMjGoi0/s4032/PXL_20230923_023338254.jpg)
+*Another view of the main hall in Gyeongbokgung Palace*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjbvmMCBmxnDL2sonkPmZnL7fgPdic2NvzMMpi8ZrQKi9rceu_P8qmLHviAyAdWDlGS28jQ9rYeRmnS8Hya2si6U8LWj9rXXW_9ganRSAkcDuBbN_fPqCNeHTVNa0s3y0wk4JBynlglfIzmRO5h6hLiHXfoc1vUccSTAcAQWDbS3QpSa7-9xdxZbfwTxNw/w480-h640/PXL_20230923_023921104.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjbvmMCBmxnDL2sonkPmZnL7fgPdic2NvzMMpi8ZrQKi9rceu_P8qmLHviAyAdWDlGS28jQ9rYeRmnS8Hya2si6U8LWj9rXXW_9ganRSAkcDuBbN_fPqCNeHTVNa0s3y0wk4JBynlglfIzmRO5h6hLiHXfoc1vUccSTAcAQWDbS3QpSa7-9xdxZbfwTxNw/s4032/PXL_20230923_023921104.jpg)
+*Details on the roof*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgnyYZ_6S6NhMH5CVVHGYgwjoKSdM30eQnvl83sbqMxOrxlruV6V3FWxktSH1vwCjznaPoyAeb-qhRd21AmzKGcWxKUtzidtMEElcHRFGBiX0CS_AoNJmBjAPrvwdssCDPZIlkdRssfL0-162ul6l2c232prnBgVVkJSL5AbZqSHWVFDk0sp-4wueFczp8/w640-h480/PXL_20230923_024934330.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgnyYZ_6S6NhMH5CVVHGYgwjoKSdM30eQnvl83sbqMxOrxlruV6V3FWxktSH1vwCjznaPoyAeb-qhRd21AmzKGcWxKUtzidtMEElcHRFGBiX0CS_AoNJmBjAPrvwdssCDPZIlkdRssfL0-162ul6l2c232prnBgVVkJSL5AbZqSHWVFDk0sp-4wueFczp8/s4032/PXL_20230923_024934330.jpg)
+*The garden in Gyeongbokgung Palace*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4TMEaF0Yf5s71kihg3hthhZQACsftjl3IG_d_sWVmRyBIUbpRNCn_e1NtYbA4GJ-8GHoiZN5_aTcVXiMt-7Fpp5PdfS0LWoIMw2lRYoBRGzU06tllbSQy8r09Hfy61sdmYUtYkQv56z9H1av2xLv_4LLxalAVP3KTKygogqv35QLJsWrixnP8F1qza4U/w640-h480/PXL_20230923_031703997.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh4TMEaF0Yf5s71kihg3hthhZQACsftjl3IG_d_sWVmRyBIUbpRNCn_e1NtYbA4GJ-8GHoiZN5_aTcVXiMt-7Fpp5PdfS0LWoIMw2lRYoBRGzU06tllbSQy8r09Hfy61sdmYUtYkQv56z9H1av2xLv_4LLxalAVP3KTKygogqv35QLJsWrixnP8F1qza4U/s4032/PXL_20230923_031703997.jpg)
+*A hall that's not open to visitors in Gyeongbokgung Palace*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgWCJ753MFB3fk2XqHtnbT6ymbB84WwEEv_GfoT2Kwtn0NAMe5PaapuoTPqCNYE9n92tV5fBw4HpAKyWtTMY38DMNSl07cdVQ2O61fVBFTZo_0hSeMMPawZNPKAwjByKH61MugswTkLBwZectfHdRt-_JZWLp34uumyTubyvyFvHw1LWbAowW88L0UIhMk/w640-h480/PXL_20230923_033602243.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgWCJ753MFB3fk2XqHtnbT6ymbB84WwEEv_GfoT2Kwtn0NAMe5PaapuoTPqCNYE9n92tV5fBw4HpAKyWtTMY38DMNSl07cdVQ2O61fVBFTZo_0hSeMMPawZNPKAwjByKH61MugswTkLBwZectfHdRt-_JZWLp34uumyTubyvyFvHw1LWbAowW88L0UIhMk/s4032/PXL_20230923_033602243.jpg)
+*Spicy beef soup*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgJZEPahTJNDzj8S29V3jOOYtSzw4ueSajYCZ0Ib2wxMGSsiVYxwea0fz8c2pBdov_kOmJrsoaKHBcVPJZPQc91YOYgF-T4_MUiYEtTMH32FCwMks09FgnCu-1MakOc71qTjAuYB5V5D-1xx49ULRbq7unq5PiKFavQa_uJQUPb6eBtZ1KPPD4av2Yk6KE/w640-h480/PXL_20230923_041314631.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgJZEPahTJNDzj8S29V3jOOYtSzw4ueSajYCZ0Ib2wxMGSsiVYxwea0fz8c2pBdov_kOmJrsoaKHBcVPJZPQc91YOYgF-T4_MUiYEtTMH32FCwMks09FgnCu-1MakOc71qTjAuYB5V5D-1xx49ULRbq7unq5PiKFavQa_uJQUPb6eBtZ1KPPD4av2Yk6KE/s4032/PXL_20230923_041314631.jpg)
+*Cool animation in the subway station*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgbUzlmBVsD3EfljBYaG023tuCWPbKwgNh_VgztvW8pbyNuKpxVS5itLK4icjWAxmjIg1lO79iBNVtJoFc1J0Kz6JlQtsZjvxgMeVfI-tQUkrLE7yplhliyQ5dZHwnY7TehL_iCWw1TdjkpIRseBBvxGTjscFfc3loZegxrtPkZDJcK2hjgFNGSGzzx5dM/w640-h480/PXL_20230923_045431489.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgbUzlmBVsD3EfljBYaG023tuCWPbKwgNh_VgztvW8pbyNuKpxVS5itLK4icjWAxmjIg1lO79iBNVtJoFc1J0Kz6JlQtsZjvxgMeVfI-tQUkrLE7yplhliyQ5dZHwnY7TehL_iCWw1TdjkpIRseBBvxGTjscFfc3loZegxrtPkZDJcK2hjgFNGSGzzx5dM/s4032/PXL_20230923_045431489.jpg)
+*The start of a hike up the Namsan Seoul Tower*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjL5r4yyBbhKmHlG6fa4cyI0PHJowcmUqqBEWMtWx7dx-jWVZX_1MRPWHmkJEZzdG-_QSfu5c3xIb5Ccjj_vJOILD_xhqVpQ3cEsZtK9DO3DOXKgR52-UW5u38FUkqRacz_wG2jFrbTm1XqW1-7dLmMTtx0A5gqV7OiTthkNKZ4sWfdtV8CDKCFPk7RBrM/w480-h640/PXL_20230923_050006939.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjL5r4yyBbhKmHlG6fa4cyI0PHJowcmUqqBEWMtWx7dx-jWVZX_1MRPWHmkJEZzdG-_QSfu5c3xIb5Ccjj_vJOILD_xhqVpQ3cEsZtK9DO3DOXKgR52-UW5u38FUkqRacz_wG2jFrbTm1XqW1-7dLmMTtx0A5gqV7OiTthkNKZ4sWfdtV8CDKCFPk7RBrM/s4032/PXL_20230923_050006939.jpg)
+*Someone famous*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjA2vJ0uw5g8A-KB1JINWA1WraAJjwpANyEwlq3WGsk5hngb4JHyi0AQQWmQl08Ny-jN6WGwe4TQl2ttb4hf6RUGu3FkbHv9qTWpb4C9DGpgvRrbKglMdmou9cdRU6edUZ67lR4n7SNF9rMuBAFBGZHqB0rmbXtPh44A2Yd4eHoeySCGeFzev4sHF9FjKw/w480-h640/PXL_20230923_050603794.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjA2vJ0uw5g8A-KB1JINWA1WraAJjwpANyEwlq3WGsk5hngb4JHyi0AQQWmQl08Ny-jN6WGwe4TQl2ttb4hf6RUGu3FkbHv9qTWpb4C9DGpgvRrbKglMdmou9cdRU6edUZ67lR4n7SNF9rMuBAFBGZHqB0rmbXtPh44A2Yd4eHoeySCGeFzev4sHF9FjKw/s4032/PXL_20230923_050603794.jpg)
+*Heading for the Namsan Seoul Tower*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhy-nZlEgoeyoqC57dnBe5IaptnA6xoySPgFhr-zYKHi3rbEXRWd3ZmaOMemaodP77zBMBuANEJ7q1eJoZ6sK36d4y4qpgQQ1OYbGumCStLO1JpbhI7XqXfzGMCKha16WQLrlokLiHrErEN_jMaoStYshllWdzgHzMwD1MpQntE9ChXitezdNpvfi4Ydh8/w480-h640/PXL_20230923_052505113.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhy-nZlEgoeyoqC57dnBe5IaptnA6xoySPgFhr-zYKHi3rbEXRWd3ZmaOMemaodP77zBMBuANEJ7q1eJoZ6sK36d4y4qpgQQ1OYbGumCStLO1JpbhI7XqXfzGMCKha16WQLrlokLiHrErEN_jMaoStYshllWdzgHzMwD1MpQntE9ChXitezdNpvfi4Ydh8/s4032/PXL_20230923_052505113.jpg)
+*Namsan Seoul Tower*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiOmceYAYLeG0OiQGYn2lK0eHXgsBC6ofOmKuQfTAAYkKnqfU1rHg8UrQCRop4syl9XY2nQpFLuJHi4iA1w2edMNgdRJMPV-_cfN2RIioGbeNpOdQcBFogOJHwpYFlpfwjORD1we9Tl9z4CgknILXWzjutdFPZ1MUv_m-5jlSAOX5JH6V7IsY3AzPY8ZaQ/w640-h480/PXL_20230923_053935777.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiOmceYAYLeG0OiQGYn2lK0eHXgsBC6ofOmKuQfTAAYkKnqfU1rHg8UrQCRop4syl9XY2nQpFLuJHi4iA1w2edMNgdRJMPV-_cfN2RIioGbeNpOdQcBFogOJHwpYFlpfwjORD1we9Tl9z4CgknILXWzjutdFPZ1MUv_m-5jlSAOX5JH6V7IsY3AzPY8ZaQ/s4032/PXL_20230923_053935777.jpg)
+*North side of Seoul from Namsan Seoul Tower*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg17tPIuaRZzxbgUCj6JZkLsyGkEZIZMA48p-20s1JlFm-ci3Ar_jTWZIx14yGrHm9v7Ha-IZIObddaD_jEiONfUlUeNommYG5VoT0veW8WbwINEYdHAsiZc_hTu6uOt4XP5dQH2XNhJU06O2yk8Z3xCxyZ9LGF2SZGb1pdcIYOlxrKN4yvJ6pSMVtiBWc/w480-h640/PXL_20230923_054557945.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg17tPIuaRZzxbgUCj6JZkLsyGkEZIZMA48p-20s1JlFm-ci3Ar_jTWZIx14yGrHm9v7Ha-IZIObddaD_jEiONfUlUeNommYG5VoT0veW8WbwINEYdHAsiZc_hTu6uOt4XP5dQH2XNhJU06O2yk8Z3xCxyZ9LGF2SZGb1pdcIYOlxrKN4yvJ6pSMVtiBWc/s4032/PXL_20230923_054557945.jpg)
+*Another view from Namsan Seoul Tower*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgD2_5_SvKYO4Y1g-TAGvkCNLlp3tCEgkyO5gN4r0ebAljkyxNNd0wfEw2x43FxZc3HJNyz6SJIC9zuxX2Y4huCAMODzW57rg206-ZaVNYdtK9BV_-vF0xODKjsYY4KYnB2DfptvD2wlfgVfDhWHDi-a7hH629omDn--pjDdQj8G5Frhi_vhSmS57CxV3E/w640-h480/PXL_20230923_055058309.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgD2_5_SvKYO4Y1g-TAGvkCNLlp3tCEgkyO5gN4r0ebAljkyxNNd0wfEw2x43FxZc3HJNyz6SJIC9zuxX2Y4huCAMODzW57rg206-ZaVNYdtK9BV_-vF0xODKjsYY4KYnB2DfptvD2wlfgVfDhWHDi-a7hH629omDn--pjDdQj8G5Frhi_vhSmS57CxV3E/s4032/PXL_20230923_055058309.jpg)
+*Inside the observatory*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhFStYbwKLzZZgNpJDAYRSSI3SL6mEAuMJZCwH2fYA95oNzLwoNcpJUqMP8c9ngW7u1fSm2V9BU_8QjoyE5zjRZjEu96MxAZDX53wna-ujsTyh-18XqajXnQjzCeSj5Cur1j0mg1tnu3EZK3rCo6Rc9u9GG41Yz2W_8YUPf2lzvWeL4ku_Yg1mNJtS3HYs/w640-h480/PXL_20230923_060627409.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhFStYbwKLzZZgNpJDAYRSSI3SL6mEAuMJZCwH2fYA95oNzLwoNcpJUqMP8c9ngW7u1fSm2V9BU_8QjoyE5zjRZjEu96MxAZDX53wna-ujsTyh-18XqajXnQjzCeSj5Cur1j0mg1tnu3EZK3rCo6Rc9u9GG41Yz2W_8YUPf2lzvWeL4ku_Yg1mNJtS3HYs/s4032/PXL_20230923_060627409.jpg)
+*Korean drumming performance*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgjDC7ZiINi9ZJG875qVxv-_hjjQ4jezeDI3zYgH4ZDV5GtLVNvOUSxhvrvlv6PnzBdCuBfBh_6gHLIXEGGrXFTbH29TyojARbcZwc8Zsp2lsGFPmUn6P1DgFzjSBn_bcVjyWZ2Yb2mrFPFdOBHDN65RpBw4eVuIWdSHit2kHTq6n1u46ACeEjziRP6FtQ/w640-h480/PXL_20230923_061455843.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgjDC7ZiINi9ZJG875qVxv-_hjjQ4jezeDI3zYgH4ZDV5GtLVNvOUSxhvrvlv6PnzBdCuBfBh_6gHLIXEGGrXFTbH29TyojARbcZwc8Zsp2lsGFPmUn6P1DgFzjSBn_bcVjyWZ2Yb2mrFPFdOBHDN65RpBw4eVuIWdSHit2kHTq6n1u46ACeEjziRP6FtQ/s4032/PXL_20230923_061455843.jpg)
+*Korean martial arts*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg3S3daE7upWGCSsab6mpRlMkpXmXuACGYPSwUMpxieJhyzEfNaSr6LVmIkqAzwmgPXG5NpzSSgqohLFfe8Hc3RsA6cWXw1MlIzxvolm0I5MV_u2Jz6QyWwyBymcpQSnOpbHuWpSYGUlJtEEuTzq_dKIUFZi6hm85uPzYtm0QEUUcwicB1-xPKWZYNEvpg/w480-h640/PXL_20230923_062439310.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg3S3daE7upWGCSsab6mpRlMkpXmXuACGYPSwUMpxieJhyzEfNaSr6LVmIkqAzwmgPXG5NpzSSgqohLFfe8Hc3RsA6cWXw1MlIzxvolm0I5MV_u2Jz6QyWwyBymcpQSnOpbHuWpSYGUlJtEEuTzq_dKIUFZi6hm85uPzYtm0QEUUcwicB1-xPKWZYNEvpg/s4032/PXL_20230923_062439310.jpg)
+*Love locks along the fence by the Namsan Seoul Tower*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-hdCemrlshU71MgEvSnMmaMWeHiXN6RJGvR1zzDLjgJi0-HQJ2uY0AT2uacZGBNsU9wrNXzrPW0tC5Ko8GNBh6BY7w5v-WiY2h8SaLmss-5p0Bp0wBYFxMFNSENP-k4bxIozz-PGWlpYGAeZJTyLffbN7oI1wBhNr_43mThVz08c2J1dsVqa-vbk_dJc/w640-h480/PXL_20230923_091927457.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg-hdCemrlshU71MgEvSnMmaMWeHiXN6RJGvR1zzDLjgJi0-HQJ2uY0AT2uacZGBNsU9wrNXzrPW0tC5Ko8GNBh6BY7w5v-WiY2h8SaLmss-5p0Bp0wBYFxMFNSENP-k4bxIozz-PGWlpYGAeZJTyLffbN7oI1wBhNr_43mThVz08c2J1dsVqa-vbk_dJc/s4032/PXL_20230923_091927457.jpg)
+*Korean BBQ with Diego*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEglhUOZjK1fkfDEuUKN_WDWJo3wdCSSPZQsN7s2VNDyJSY2TQzen8Ac8qylLKl7IfPKmqyiRcwRBAsWDAgq1dh8KglU3LkL1noaGDFi9g2pkvE9xqxEBoutlZ_ZLA7qNQguvmd3IJCFKvvvLuMc4H7zrHH4mQHAAAa8FnVyaSV9B5Se5s7doFk7v2fbW_0/w640-h480/PXL_20230924_004532732.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEglhUOZjK1fkfDEuUKN_WDWJo3wdCSSPZQsN7s2VNDyJSY2TQzen8Ac8qylLKl7IfPKmqyiRcwRBAsWDAgq1dh8KglU3LkL1noaGDFi9g2pkvE9xqxEBoutlZ_ZLA7qNQguvmd3IJCFKvvvLuMc4H7zrHH4mQHAAAa8FnVyaSV9B5Se5s7doFk7v2fbW_0/s4032/PXL_20230924_004532732.jpg)
+*Lya*

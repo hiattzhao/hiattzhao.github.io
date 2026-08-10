@@ -1,0 +1,78 @@
+---
+title: "Fukuoka: Days 1 and 2"
+layout: post
+date: 2023-09-02
+---
+
+Yesterday, I explored the Tenjin district, Kego Park and Shrine, Daimyo district, Kokoran Ruins Museum, Fukuoka Castle Ruins, Fukuoka Art Museum, and Ohori Park. For the first time, it wasn't ungodly hot. I want to take the time in Fukuoka to relax so I'm staying for a total of four nights before taking the plane to Naha, Okinawa.
+
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh8-YzEwfRf3qXPCi-AEBnkOAqWf8Hp0FPWRvRiZTEyFcUMnkk0oloZGpJNVzOyKELt7pNYJdgjIEepnNWiCkpz63CBBdVB6uMkmQGYmHAdt22mUzfctT88EFohp_r6vUHf4BAeWBQ9EsUQpY_TN9MQOrVXCwnb2FxDcmYmkPfHtf2wQNrSWpdG2fcJB_Q/w480-h640/PXL_20230901_021609753.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh8-YzEwfRf3qXPCi-AEBnkOAqWf8Hp0FPWRvRiZTEyFcUMnkk0oloZGpJNVzOyKELt7pNYJdgjIEepnNWiCkpz63CBBdVB6uMkmQGYmHAdt22mUzfctT88EFohp_r6vUHf4BAeWBQ9EsUQpY_TN9MQOrVXCwnb2FxDcmYmkPfHtf2wQNrSWpdG2fcJB_Q/s4032/PXL_20230901_021609753.jpg)
+*The Millennials Fukuoka is inside The Lively Hotel*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhIsvd4xSy7ZrEQNzypvqP1HqhfBvZCqi826uxmo3gQ21oREtrpn6qiH55t_GlrBxtuM7-LB73UvshLkFTagK9hn6k8uhk8lAQHkrqeuI9WFn4Sj3qkAK6r0cfR96JsMMogOCmrKEYypOrNmt1PyKjEwfOwDTSu_poTIC4AOloHa-yvOcUAn6JY745Tti8/w640-h480/PXL_20230901_062525373.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhIsvd4xSy7ZrEQNzypvqP1HqhfBvZCqi826uxmo3gQ21oREtrpn6qiH55t_GlrBxtuM7-LB73UvshLkFTagK9hn6k8uhk8lAQHkrqeuI9WFn4Sj3qkAK6r0cfR96JsMMogOCmrKEYypOrNmt1PyKjEwfOwDTSu_poTIC4AOloHa-yvOcUAn6JY745Tti8/s4032/PXL_20230901_062525373.jpg)
+*Remote controlled bed*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZNIWorTmyd_xR_ejKfeZg2L45cFAA3XpYw0TXGyn7CXrLaN5QLTnLakgTdfACGGF8HQTJsORFgnrxB-LC8SeTBmhhOVz10r0KVQWO2QgG2XtuqRyISksVwEb72K9fTEDFEhhO8Wzhm5TaS21KuKqXxw_epYDEE-iko2h9GV3ECW1VuF3Mgq3Gba8H8zk/w640-h480/PXL_20230901_070812247.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZNIWorTmyd_xR_ejKfeZg2L45cFAA3XpYw0TXGyn7CXrLaN5QLTnLakgTdfACGGF8HQTJsORFgnrxB-LC8SeTBmhhOVz10r0KVQWO2QgG2XtuqRyISksVwEb72K9fTEDFEhhO8Wzhm5TaS21KuKqXxw_epYDEE-iko2h9GV3ECW1VuF3Mgq3Gba8H8zk/s4032/PXL_20230901_070812247.jpg)
+*The lounge on the second floor*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgUpkOPcAWH_pmkDe97oWJ-Z4DIxXx0UsghAMbCvq7VNyr2tADHsY-2XNkRv-yhJDMgGbEQGSYFpYRuzH7n56MqoZTszERG2-Xmar8mJ2Z3TeOt7-EqXC1BeAzRzGl5DeUHVDxkQ5Fw4RT5vEFKZ-8RNHR5ioFNnr2c51jpcXSACVuujM8c_OUTX3wwrqU/w640-h480/PXL_20230901_043403127.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgUpkOPcAWH_pmkDe97oWJ-Z4DIxXx0UsghAMbCvq7VNyr2tADHsY-2XNkRv-yhJDMgGbEQGSYFpYRuzH7n56MqoZTszERG2-Xmar8mJ2Z3TeOt7-EqXC1BeAzRzGl5DeUHVDxkQ5Fw4RT5vEFKZ-8RNHR5ioFNnr2c51jpcXSACVuujM8c_OUTX3wwrqU/s4032/PXL_20230901_043403127.jpg)
+*I try to buy some snacks at Japanese convenient stores. So far, I've been satisfied with my purchases.*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiRnC7rMxWlELIUC7RxU7_oTFOBsg2MDIvV7CTN_cAkVcQ7_3cGK-MmG1a8nT8kz1ESdrULVGFJm-lVhKBVslm7liqdSSV_z7dVGk5i3-WCkZdgXUfYCWa7ix2tGKIZcGn2o5pwnP56ab87HmyzCWOIHtw4vGgz2Nzjow4AsxjEDOJMADwdZAiA7nhrS0o/w480-h640/PXL_20230901_104733362.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiRnC7rMxWlELIUC7RxU7_oTFOBsg2MDIvV7CTN_cAkVcQ7_3cGK-MmG1a8nT8kz1ESdrULVGFJm-lVhKBVslm7liqdSSV_z7dVGk5i3-WCkZdgXUfYCWa7ix2tGKIZcGn2o5pwnP56ab87HmyzCWOIHtw4vGgz2Nzjow4AsxjEDOJMADwdZAiA7nhrS0o/s4032/PXL_20230901_104733362.jpg)
+*The Hakata district is known for its ramen. I might be ramen'ed out by the time I leave Fukuoka.*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgS-BLnWdT0kR_JrbdPTmiZ__8yOlSaFfnKvXgH-7UMU2fC0J15gwpA6ithSMGMiSUaSBn3-nRURsDAkNYyXBmobK5rGWR_8Y5JpHJJ09TSye_ibFxPKm5JkV4KtNuV8fSUXVrW1VEbsO4Wb86nc9wsFl0lbZtM9G86fI5Sghx0_uU2fAG15G2fKhm9IfE/w640-h480/PXL_20230901_110551713.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgS-BLnWdT0kR_JrbdPTmiZ__8yOlSaFfnKvXgH-7UMU2fC0J15gwpA6ithSMGMiSUaSBn3-nRURsDAkNYyXBmobK5rGWR_8Y5JpHJJ09TSye_ibFxPKm5JkV4KtNuV8fSUXVrW1VEbsO4Wb86nc9wsFl0lbZtM9G86fI5Sghx0_uU2fAG15G2fKhm9IfE/s4032/PXL_20230901_110551713.jpg)
+*Some yatai food stalls on the bank of the river*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1uDlygDw6MAFErnH3iCScEeIPIsDLdtZPWkjZv4jelXaOKr81aDZY0GSvc8l69Z9nml-lUrA8HAZ7IiUzbCsyKSEvCrj7q1wJtp5vjmoKhYqs_ekC8rC5RvvB7e95DBCz2hHkg8jJFtZWkcS4Zf5hpUgYcygqwiDF2q-cOaL1bGCld3x1DWjzkspqCSc/w640-h480/PXL_20230901_110855347.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi1uDlygDw6MAFErnH3iCScEeIPIsDLdtZPWkjZv4jelXaOKr81aDZY0GSvc8l69Z9nml-lUrA8HAZ7IiUzbCsyKSEvCrj7q1wJtp5vjmoKhYqs_ekC8rC5RvvB7e95DBCz2hHkg8jJFtZWkcS4Zf5hpUgYcygqwiDF2q-cOaL1bGCld3x1DWjzkspqCSc/s4032/PXL_20230901_110855347.jpg)
+*Night scene by the river*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEinHYBHfLM59uR_-BSsuryWIg0Icipb5fHE9hX-sXg587g1dQMw7BV7ChT1yi46Gja1xMiJ35cMhHK9jwphfSuuv2KdTdhlzNXSmPf6LYTCr7EE3m5XnVM0_ILCFZ5d1ih2YzZTXSynNniQ-Y4EV4n9wOafi6EO0L6mQBOIHe3IuOS7HJYZALcBKf0BKTE/w640-h480/PXL_20230901_234806443.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEinHYBHfLM59uR_-BSsuryWIg0Icipb5fHE9hX-sXg587g1dQMw7BV7ChT1yi46Gja1xMiJ35cMhHK9jwphfSuuv2KdTdhlzNXSmPf6LYTCr7EE3m5XnVM0_ILCFZ5d1ih2YzZTXSynNniQ-Y4EV4n9wOafi6EO0L6mQBOIHe3IuOS7HJYZALcBKf0BKTE/s4032/PXL_20230901_234806443.jpg)
+*Fukuoka sign in front of Kihinkan Hall*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgKTZMqKc0KgHRX9OrJbJ6-VJ67i4mn2CQTG8FpTwTAXBhgPPKfd11R-05TXxnANmxRC-j58_0qiLoqobsrPEhyN0Ld25_MEGooZbmvukJB8L1iRWFtbF7fCquS9Gj9plRQgb-VAxu7r5hFesx0FXSA0UAr1COmRidAw8RDndi_Foe9Bd6E8MJuxxqSFcA/w480-h640/PXL_20230902_000129962.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgKTZMqKc0KgHRX9OrJbJ6-VJ67i4mn2CQTG8FpTwTAXBhgPPKfd11R-05TXxnANmxRC-j58_0qiLoqobsrPEhyN0Ld25_MEGooZbmvukJB8L1iRWFtbF7fCquS9Gj9plRQgb-VAxu7r5hFesx0FXSA0UAr1COmRidAw8RDndi_Foe9Bd6E8MJuxxqSFcA/s4032/PXL_20230902_000129962.jpg)
+*A cool sculpture in Tenjin, which is a shopping district*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgxh1954xvC2RrYeeiLcMA8t30Ev9chP5tnO7GVGOOLePGzWOnZ6mxwfE0A6CHvJxLOrSn-chF1_1cSyRmztoKewJ2hjXGbezRlLXhh5Iimw73F8az-XGDU0-MVEo5SpTEtUy8AjnS02ZssEqx-jWvJMepFaBduNVlIxHsrpro8Q9632jOZDv6SRzgS5OA/w640-h480/PXL_20230902_000913633.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgxh1954xvC2RrYeeiLcMA8t30Ev9chP5tnO7GVGOOLePGzWOnZ6mxwfE0A6CHvJxLOrSn-chF1_1cSyRmztoKewJ2hjXGbezRlLXhh5Iimw73F8az-XGDU0-MVEo5SpTEtUy8AjnS02ZssEqx-jWvJMepFaBduNVlIxHsrpro8Q9632jOZDv6SRzgS5OA/s4032/PXL_20230902_000913633.jpg)
+*Kego Shrine*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjYbHbEphK95TLlhsco7ccxjkJJNdpk7KY-NoI0DzbTF-fWCM1DPOvjZZ_Ot3xF9GYFYCqng_Dm5X2gpiNONgl8S29SOoHzLiD_8Sp-6UDqTYC_lp_39lSZNSzJwDvd4gaQvzgQar1oAJ7IQ3UMwPFpZCMeClsVVJAFzW1iKMks5OsISf8FIYhQUI4wyIs/w480-h640/PXL_20230902_003803965.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjYbHbEphK95TLlhsco7ccxjkJJNdpk7KY-NoI0DzbTF-fWCM1DPOvjZZ_Ot3xF9GYFYCqng_Dm5X2gpiNONgl8S29SOoHzLiD_8Sp-6UDqTYC_lp_39lSZNSzJwDvd4gaQvzgQar1oAJ7IQ3UMwPFpZCMeClsVVJAFzW1iKMks5OsISf8FIYhQUI4wyIs/s4032/PXL_20230902_003803965.jpg)
+*Inside the Kokoran Ruins Museum. I'm still not sure what the ruin is about.*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjcuGGgeUuNVtNQNvWyLbwmd91gManN_YUgfWpQS67xK_iXdCymKecJx2TJf-56ryl-6qYunWqXp19mq-c9CNsn6lESyXhRVPY2LKzlH0QL-bZtxUa_qz4e3jdUikJfsAqlY9Y5rzTMx98EGK2ZoHhAMvYf-l9-bgxMe93KABgXiKNVmh2TIsFfOlsD57A/w640-h480/PXL_20230902_005430621.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjcuGGgeUuNVtNQNvWyLbwmd91gManN_YUgfWpQS67xK_iXdCymKecJx2TJf-56ryl-6qYunWqXp19mq-c9CNsn6lESyXhRVPY2LKzlH0QL-bZtxUa_qz4e3jdUikJfsAqlY9Y5rzTMx98EGK2ZoHhAMvYf-l9-bgxMe93KABgXiKNVmh2TIsFfOlsD57A/s4032/PXL_20230902_005430621.jpg)
+*Fukuoka Castle Ruins, where they think a castle used to stand here.*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjbTaO4RyF2FZPy8couwdjg0tsMBiTI3yz1KTFbPVwvEE28hp843Ms7Old5yDFytV429db2F9a-Oq1V1DfrEuloaw1DtqfHQIUEy24vUcDIx-E01rN_1uNVqgCIDjbBlsFT1L50Z8C1v-FtaiwSTD4BXLx_P8QIla4qdXumVuf7oZPaCVWnWXCS4ZehLyE/w640-h480/PXL_20230902_013742291.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjbTaO4RyF2FZPy8couwdjg0tsMBiTI3yz1KTFbPVwvEE28hp843Ms7Old5yDFytV429db2F9a-Oq1V1DfrEuloaw1DtqfHQIUEy24vUcDIx-E01rN_1uNVqgCIDjbBlsFT1L50Z8C1v-FtaiwSTD4BXLx_P8QIla4qdXumVuf7oZPaCVWnWXCS4ZehLyE/s4032/PXL_20230902_013742291.jpg)
+*I didn't see any exhibits at the Fukuoka Art Museum, but I did buy a wallet there.*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiEVQyhPK5jQqjq68FqBLUHdZ9ovDr5AkDjZhGs55RMqlRkOi9hdcvTuHGzmA0khvIpkipeIYN8M6aHmHMLKxX0BSlp48XXfqFPnB7gQlMcoh7BfYkvpsgA6ZyW4YXMWOee5V7i_4i1vbv8D_WmFc0AZBhrDjPUSAeHXpKeX4osIm2rAe_3k59cLZImn4w/w640-h480/PXL_20230902_014923610.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiEVQyhPK5jQqjq68FqBLUHdZ9ovDr5AkDjZhGs55RMqlRkOi9hdcvTuHGzmA0khvIpkipeIYN8M6aHmHMLKxX0BSlp48XXfqFPnB7gQlMcoh7BfYkvpsgA6ZyW4YXMWOee5V7i_4i1vbv8D_WmFc0AZBhrDjPUSAeHXpKeX4osIm2rAe_3k59cLZImn4w/s4032/PXL_20230902_014923610.jpg)
+*A bridge at the Ohori Park*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgzXqtiwuAJvQ329RE-engeuhigVFS1ROhzkb-qvLzsd8LLv3iyNGzted9lep7PSRbfpsj-HRCNxXlGmbdlyiBgxEY4MqJITuiGjm3vD7dVV4aahnaAsSoTrJE2RmxF-8WPoCt27I8jcAFm3RqDFmaldT4sbC2L_jS2c1YdElQJvg4tW-ydPaM-NbmDH_g/w640-h480/PXL_20230902_015424858.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgzXqtiwuAJvQ329RE-engeuhigVFS1ROhzkb-qvLzsd8LLv3iyNGzted9lep7PSRbfpsj-HRCNxXlGmbdlyiBgxEY4MqJITuiGjm3vD7dVV4aahnaAsSoTrJE2RmxF-8WPoCt27I8jcAFm3RqDFmaldT4sbC2L_jS2c1YdElQJvg4tW-ydPaM-NbmDH_g/s4032/PXL_20230902_015424858.jpg)
+*Ohori Park*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgNS55vdJwm5kzWcz0AWylHZliDK-A5zO-ePAq9gT1dnUzIZaqcYVWwW1_CeaGfeOjprygFVJ-ZvBTxyvPw_WTwkE2qczy_iQ8lxT41hnhw1mZpr-KaXSfn3d3f1flmFWiScZY1iLDbadT9DZcH3brrN1HkPFEs3J94wPsLsbjoIXl3raJTO-fqhg3dUHQ/w640-h480/PXL_20230902_015937422.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgNS55vdJwm5kzWcz0AWylHZliDK-A5zO-ePAq9gT1dnUzIZaqcYVWwW1_CeaGfeOjprygFVJ-ZvBTxyvPw_WTwkE2qczy_iQ8lxT41hnhw1mZpr-KaXSfn3d3f1flmFWiScZY1iLDbadT9DZcH3brrN1HkPFEs3J94wPsLsbjoIXl3raJTO-fqhg3dUHQ/s4032/PXL_20230902_015937422.jpg)
+*Duck boats at Ohori Park*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjk_aiW8RhKcrrWOV-S5J4zEWRMiWJo9QvqdGpJo2lm2Z9xc8IpPW45W6BZ5cb9EWvgR60aSz8U6eVPAc0Ss5Tkpxr33AnlqbI7YnX5xHa2qNZYNv3W0K9mTG5gNwhf0w0k86CGJtCtByw1s4mY0XS8mQjmnxJ8V7CNLe9V17fRgGZjoq8TpZeVB8mBS-8/w640-h480/PXL_20230902_024224455.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjk_aiW8RhKcrrWOV-S5J4zEWRMiWJo9QvqdGpJo2lm2Z9xc8IpPW45W6BZ5cb9EWvgR60aSz8U6eVPAc0Ss5Tkpxr33AnlqbI7YnX5xHa2qNZYNv3W0K9mTG5gNwhf0w0k86CGJtCtByw1s4mY0XS8mQjmnxJ8V7CNLe9V17fRgGZjoq8TpZeVB8mBS-8/s4032/PXL_20230902_024224455.jpg)
+*This is my favorite dish in Japan, more than ramen and sushi. It's beef and eel rice bowl. My favorite place to buy this is at Sukiya.*
+
+  
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiusvJnBYcVQAJRyaCdfMDVCZUMMcqC-jOCti5vxGZs-jU0ecRRlCRj0e2L_d19SjfjOf0vTcK7TwGnWu7OP_ANLbx5aoXzteriImlE9kuH2dS-TJGzfvlIZYh_T-2TbK808DMTS2cobTvPbsJLxKN6ZUXu4cGDempqT3sbViBpBpb56LIFfyi4_GpxBvI/w480-h640/PXL_20230902_095519006.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiusvJnBYcVQAJRyaCdfMDVCZUMMcqC-jOCti5vxGZs-jU0ecRRlCRj0e2L_d19SjfjOf0vTcK7TwGnWu7OP_ANLbx5aoXzteriImlE9kuH2dS-TJGzfvlIZYh_T-2TbK808DMTS2cobTvPbsJLxKN6ZUXu4cGDempqT3sbViBpBpb56LIFfyi4_GpxBvI/s4032/PXL_20230902_095519006.jpg)
+*More snacks! The one on the right was the snack I ate the most when I lived in New Jersey. It's less than a dollar in Japan, much cheaper than US.*
