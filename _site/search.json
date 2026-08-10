@@ -1,6 +1,15 @@
 [
   
     {
+      "title"    : "Test Images!",
+      "category" : "",
+      "tags"     : "",
+      "url"      : "/2026/08/10/test-images.html",
+      "date"     : "2026-08-10 00:00:00 +0200",
+	  "content"  : "<p>Here’s an image…</p>\n\n<p><img src=\"/assets/blog/2026Florence4%20copy.webp\" alt=\"A photo from Florence\" />\n<em>Caption of Florence</em></p>\n\n<p><img src=\"/assets/blog/2026Rome9%20copy.webp\" alt=\"A second image\" />\n<em>Caption of Rome</em></p>\n\n<p>Something else here…</p>\n"
+    } ,
+  
+    {
       "title"    : "Welcome to My Travelog!",
       "category" : "",
       "tags"     : "",
