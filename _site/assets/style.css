@@ -3,6 +3,15 @@
   --accent-hover: #1d4ed8;
 }
 
+h2, h3, h4 {
+  color: var(--heading-color, #111827);
+  text-align: center;
+}
+
+h4 {
+    font-weight: 700;
+}
+
 #search-input {
   display: block;
   width: min(100%, 480px);
