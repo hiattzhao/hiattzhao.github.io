@@ -207,7 +207,7 @@ img + em {
 #portrait {
   display: block;
   margin: 0 auto;
-  width: 50%;
+  width: 400px;
   border-radius: 50%;
 }
 
