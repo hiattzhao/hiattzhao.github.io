@@ -25,6 +25,8 @@ I'm on a bike tour from Wrocław, Poland, to Athens, Greece. (Updated: August 11
 
 I am open to short-term, contract, consulting opportunities in IT, photography, and finance. Please feel free to contact me using the form below if you have a project idea or just want to reach out. Thanks!
 
+For my professional résumé, see [LinkedIn](https://www.linkedin.com/in/hiattzhao/).
+
 <form action="https://formsubmit.co/e78a3eecd44f450fb81e033a2269a425" method="POST">
   <label for="name">Name</label>
   <input type="text" id="name" name="name" required>
