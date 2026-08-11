@@ -23,7 +23,7 @@ I'm on a bike tour from Wrocław, Poland, to Athens, Greece. (Updated: August 11
 
 # Contact
 
-I am open to short-term, contract, consulting opportunities in IT, photography, and finance. Please feel free to contact me using the form below if you have an idea or just want to reach out. Thanks!
+I am open to short-term, contract, consulting opportunities in IT, photography, and finance. Please feel free to contact me using the form below if you have a project idea or just want to reach out. Thanks!
 
 <form action="https://formsubmit.co/e78a3eecd44f450fb81e033a2269a425" method="POST">
   <label for="name">Name</label>
