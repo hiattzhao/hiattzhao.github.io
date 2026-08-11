@@ -27,6 +27,8 @@ I am open to short-term, contract, consulting opportunities in IT, photography, 
 
 For my professional résumé, see [LinkedIn](https://www.linkedin.com/in/hiattzhao/).
 
+<br>
+
 <form action="https://formsubmit.co/e78a3eecd44f450fb81e033a2269a425" method="POST">
   <label for="name">Name</label>
   <input type="text" id="name" name="name" required>
