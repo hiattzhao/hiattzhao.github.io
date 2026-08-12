@@ -22,7 +22,7 @@ title: Hiatt Zhao
 email: hiattzhao@gmail.com
 description: portfolio of hiatt zhao
 baseurl: "" # the subpath of your site, e.g. /blog
-url: "https://hiattzhao.github.io" # the base hostname & protocol for your site, e.g. http://example.com
+url: "https://hiattzhao.com" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: hiattzhao
 github_username: hiattzhao
 disqus:
