@@ -363,6 +363,47 @@ form button:hover {
     max-height: 700px;
   }
 
+  .site-nav .trigger {
+    display: none;
+    padding: 0.75rem 0 0;
+    width: 100%;
+  }
+
+  .site-nav .nav-trigger:checked~.trigger {
+    display: block;
+  }
+
+  .site-nav .dropdown-wrapper {
+    display: block;
+    margin: 0.25rem 0;
+  }
+
+  .site-nav .page-link,
+  .site-nav .dropdown-toggle {
+    display: block;
+    padding: 0.6rem 0.75rem;
+    text-align: left;
+    border-radius: 6px;
+    margin-left: 0;
+  }
+
+  .site-nav .dropdown-menu {
+    display: block !important;
+    position: static;
+    padding: 0 0 0 2rem;
+    margin: 0.25rem 0 0.5rem;
+    border: 0;
+    box-shadow: none;
+    background: transparent;
+    text-align: left;
+  }
+
+  .site-nav .dropdown-menu a {
+    display: block;
+    padding: 0.45rem 0;
+    text-align: left;
+  }
+
   /* Sublinks on hover */
   .site-nav .page-link:not(:last-child) {
     margin-left: 0;
