@@ -350,6 +350,24 @@ table {
 
       > svg {
         fill: $grey-color-dark;
+        color: $grey-color-dark;
+      }
+
+      .svg-close {
+        display: none;
+      }
+
+      .svg-hamburger {
+        display: inline-block;
+      }
+    }
+
+    input:checked ~ label[for="nav-trigger"] .menu-icon {
+      .svg-hamburger {
+        display: none;
+      }
+      .svg-close {
+        display: inline-block;
       }
     }
 

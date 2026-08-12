@@ -281,6 +281,19 @@ table td {
   }
   .site-nav .menu-icon > svg {
     fill: rgb(25.9803921569%, 25.9803921569%, 25.9803921569%);
+    color: rgb(25.9803921569%, 25.9803921569%, 25.9803921569%);
+  }
+  .site-nav .menu-icon .svg-close {
+    display: none;
+  }
+  .site-nav .menu-icon .svg-hamburger {
+    display: inline-block;
+  }
+  .site-nav input:checked ~ label[for=nav-trigger] .menu-icon .svg-hamburger {
+    display: none;
+  }
+  .site-nav input:checked ~ label[for=nav-trigger] .menu-icon .svg-close {
+    display: inline-block;
   }
   .site-nav input ~ .trigger {
     clear: both;

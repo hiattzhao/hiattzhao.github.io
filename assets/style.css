@@ -359,6 +359,22 @@ form button:hover {
     max-height: 700px;
   }
 
+  .site-nav .menu-icon .svg-close {
+    display: none;
+  }
+
+  .site-nav .menu-icon .svg-hamburger {
+    display: inline-block;
+  }
+
+  .site-nav .nav-trigger:checked ~ label .menu-icon .svg-hamburger {
+    display: none;
+  }
+
+  .site-nav .nav-trigger:checked ~ label .menu-icon .svg-close {
+    display: inline-block;
+  }
+
   .site-nav .trigger {
     display: none;
     padding: 0.75rem 0 0;
