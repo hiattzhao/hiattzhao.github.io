@@ -377,7 +377,7 @@ form button:hover {
   .site-nav .page-link,
   .site-nav .dropdown-toggle {
     display: block;
-    padding: 0.6rem 0.75rem;
+    padding: 0.75rem 0.75rem;
     text-align: left;
     border-radius: 6px;
     margin-left: 0 !important;
@@ -396,7 +396,7 @@ form button:hover {
 
   .site-nav .dropdown-menu a {
     display: block;
-    padding: 0.45rem 0;
+    padding: 0.2rem 0;
     text-align: left;
   }
 
