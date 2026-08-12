@@ -353,7 +353,7 @@ form button:hover {
 
 
 
-@media screen and (max-width: 768px) {
+@media screen and (max-width: 600px) {
   #galleria {
     height: calc(100vh - 120px);
     max-height: 700px;
@@ -380,7 +380,7 @@ form button:hover {
     padding: 0.6rem 0.75rem;
     text-align: left;
     border-radius: 6px;
-    margin-left: 0;
+    margin-left: 0 !important;
   }
 
   .site-nav .dropdown-menu {
@@ -398,11 +398,6 @@ form button:hover {
     display: block;
     padding: 0.45rem 0;
     text-align: left;
-  }
-
-  /* Sublinks on hover */
-  .site-nav .page-link:not(:last-child) {
-    margin-left: 0;
   }
 
   p > img {
