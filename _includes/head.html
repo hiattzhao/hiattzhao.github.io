@@ -10,6 +10,11 @@
     gtag("config", "G-N5DC9BDJFP");
   </script>
 
+  <meta property="og:title" content="{{ page.title }}">
+  <meta property="og:description" content="{{ page.excerpt | strip_html | truncate: 160 }}">
+  <meta property="og:url" content="{{ site.url }}{{ page.url }}">
+  <meta property="og:image" content="{{ page.image | absolute_url }}">
+
   <meta charset="utf-8" />
   <meta http-equiv="X-UA-Compatible" content="IE=edge" />
   <script src="https://kit.fontawesome.com/92225ea11d.js" crossorigin="anonymous"></script>
