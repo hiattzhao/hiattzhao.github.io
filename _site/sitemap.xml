@@ -2003,6 +2003,9 @@
 <loc>http://localhost:4000/abstract</loc>
 </url>
 <url>
+<loc>http://localhost:4000/all</loc>
+</url>
+<url>
 <loc>http://localhost:4000/code</loc>
 </url>
 <url>

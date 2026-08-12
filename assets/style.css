@@ -8,10 +8,6 @@ h2, h3, h4 {
   text-align: center;
 }
 
-h4 {
-    font-weight: 700;
-}
-
 #search-input {
   display: block;
   width: min(100%, 480px);
