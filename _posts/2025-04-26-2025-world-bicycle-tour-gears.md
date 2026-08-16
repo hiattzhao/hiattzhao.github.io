@@ -45,7 +45,7 @@ _Cockpit view_
 
 ## Spreadsheet of all items
 
-| Name                                          | Category         | Cost (TOTAL: $6974) |
+| Item                                          | Category         | Cost (TOTAL: $6974) |
 | --------------------------------------------- | ---------------- | ------------------- |
 | 2022 Priority Apollo bicycle                  | Bike             | $2225               |
 | Bike bell                                     | Bike             | $15                 |
