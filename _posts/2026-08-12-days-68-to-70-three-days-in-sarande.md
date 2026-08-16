@@ -16,14 +16,14 @@ In the dorm room this afternoon I met a new guest named Bajram. I had bought som
 
 Tomorrow morning, I will take the 10 AM ferry from Sarandë to Corfu, Greece. There are only a few hostels on the island and the one that’s available is about 10 miles away from the ferry port. I decided to book an apartment for a whopping $175 near the port and the old town for one night. The following day, I’ll take another ferry to Igoumenitsa on mainland Greece.
 
-![Another beautiful sunrise](/assets/blog/2026/Albania/2026Albania306.webp)
+![Another beautiful sunrise](/assets/blog/2026/08/12/2026Albania306.webp)
 _Another beautiful sunrise_
 
-![The calm Ionian Sea](/assets/blog/2026/Albania/2026Albania307.webp)
+![The calm Ionian Sea](/assets/blog/2026/08/12/2026Albania307.webp)
 _The calm Ionian Sea_
 
-![A secret beach](/assets/blog/2026/Albania/2026Albania308.webp)
+![A secret beach](/assets/blog/2026/08/12/2026Albania308.webp)
 _A secret beach_
 
-![People chilling](/assets/blog/2026/Albania/2026Albania310.webp)
+![People chilling](/assets/blog/2026/08/12/2026Albania310.webp)
 _People chilling_

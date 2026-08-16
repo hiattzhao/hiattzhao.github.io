@@ -43,62 +43,62 @@ _Pastitsada at Ninos_
 ![One of the old town plazas](/assets/blog/2026/Greece/Corfu/2026Corfu12.webp)
 _One of the old town plazas_
 
-![Looking back](/assets/blog/2026/Greece/Corfu/2026Corfu14.webp)
+![Looking back](/assets/blog/2026/08/13/2026Corfu14.webp)
 _Looking back_
 
-![Liston building](/assets/blog/2026/Greece/Corfu/2026Corfu15.webp)
+![Liston building](/assets/blog/2026/08/13/2026Corfu15.webp)
 _Liston building_
 
-![A memorial at Spianada Square](/assets/blog/2026/Greece/Corfu/2026Corfu19.webp)
+![A memorial at Spianada Square](/assets/blog/2026/08/13/2026Corfu19.webp)
 _A memorial at Spianada Square_
 
-![The Old Fortress of Corfu](/assets/blog/2026/Greece/Corfu/2026Corfu20.webp)
+![The Old Fortress of Corfu](/assets/blog/2026/08/13/2026Corfu20.webp)
 _The Old Fortress of Corfu_
 
-![The moat on the outside of the fortress](/assets/blog/2026/Greece/Corfu/2026Corfu24.webp)
+![The moat on the outside of the fortress](/assets/blog/2026/08/13/2026Corfu24.webp)
 _The moat on the outside of the fortress_
 
-![Looking out to the sea from the fortress](/assets/blog/2026/Greece/Corfu/2026Corfu29.webp)
+![Looking out to the sea from the fortress](/assets/blog/2026/08/13/2026Corfu29.webp)
 _Looking out to the sea from the fortress_
 
-![On my way to the top](/assets/blog/2026/Greece/Corfu/2026Corfu34.webp)
+![On my way to the top](/assets/blog/2026/08/13/2026Corfu34.webp)
 _On my way to the top_
 
-![Climbed up some stairs](/assets/blog/2026/Greece/Corfu/2026Corfu36.webp)
+![Climbed up some stairs](/assets/blog/2026/08/13/2026Corfu36.webp)
 _Climbed up some stairs_
 
-![Lighthouse at the top](/assets/blog/2026/Greece/Corfu/2026Corfu37.webp)
+![Lighthouse at the top](/assets/blog/2026/08/13/2026Corfu37.webp)
 _Lighthouse at the top_
 
-![Great view!](/assets/blog/2026/Greece/Corfu/2026Corfu40.webp)
+![Great view!](/assets/blog/2026/08/13/2026Corfu40.webp)
 _Great view!_
 
-![Looking at Corfu town](/assets/blog/2026/Greece/Corfu/2026Corfu41.webp)
+![Looking at Corfu town](/assets/blog/2026/08/13/2026Corfu41.webp)
 _Looking at Corfu town_
 
-![Looks like a barrel of a cannon](/assets/blog/2026/Greece/Corfu/2026Corfu42.webp)
+![Looks like a barrel of a cannon](/assets/blog/2026/08/13/2026Corfu42.webp)
 _Looks like a barrel of a cannon_
 
-![The clock tower](/assets/blog/2026/Greece/Corfu/2026Corfu48.webp)
+![The clock tower](/assets/blog/2026/08/13/2026Corfu48.webp)
 _The clock tower_
 
-![Old cannons](/assets/blog/2026/Greece/Corfu/2026Corfu52.webp)
+![Old cannons](/assets/blog/2026/08/13/2026Corfu52.webp)
 _Old cannons_
 
-![Saint George's Church](/assets/blog/2026/Greece/Corfu/2026Corfu54.webp)
+![Saint George's Church](/assets/blog/2026/08/13/2026Corfu54.webp)
 _Saint George's Church_
 
-![Inside the church](/assets/blog/2026/Greece/Corfu/2026Corfu57.webp)
+![Inside the church](/assets/blog/2026/08/13/2026Corfu57.webp)
 _Inside the church_
 
-![I guess I discovered myself.](/assets/blog/2026/Greece/Corfu/2026Corfu60.webp)
+![I guess I discovered myself.](/assets/blog/2026/08/13/2026Corfu60.webp)
 _I guess I discovered myself._
 
-![Cool old building](/assets/blog/2026/Greece/Corfu/2026Corfu64.webp)
+![Cool old building](/assets/blog/2026/08/13/2026Corfu64.webp)
 _Cool old building_
 
-![Nice fountain](/assets/blog/2026/Greece/Corfu/2026Corfu65.webp)
+![Nice fountain](/assets/blog/2026/08/13/2026Corfu65.webp)
 _Nice fountain_
 
-![On my way back to the apartment](/assets/blog/2026/Greece/Corfu/2026Corfu70.webp)
+![On my way back to the apartment](/assets/blog/2026/08/13/2026Corfu70.webp)
 _On my way back to the apartment_
