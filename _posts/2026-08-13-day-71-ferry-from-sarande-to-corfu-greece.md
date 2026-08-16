@@ -22,25 +22,25 @@ I walked by Spianada Square before paying €10 for the entrance fee to the Old 
 
 When I exited the Old Fortress, I walked on the north shore of Corfu to get back to the apartment. I don't really know what to do in the apartment. I might go for a late dinner if I get hungry. Tomorrow, I'll take the 9 AM ferry to Igoumenitsa and be on mainland Greece.
 
-![Walking toward Corfu old town](/assets/blog/2026/Greece/Corfu/2026Corfu3.webp)
+![Walking toward Corfu old town](/assets/blog/2026/08/13/2026Corfu3.webp)
 _Walking toward Corfu old town_
 
-![The New Venetian Fortress](/assets/blog/2026/Greece/Corfu/2026Corfu5.webp)
+![The New Venetian Fortress](/assets/blog/2026/08/13/2026Corfu5.webp)
 _The New Venetian Fortress_
 
-![Old town street](/assets/blog/2026/Greece/Corfu/2026Corfu8.webp)
+![Old town street](/assets/blog/2026/08/13/2026Corfu8.webp)
 _Old town street_
 
-![First time seeing a statue with this pose](/assets/blog/2026/Greece/Corfu/2026Corfu9.webp)
+![First time seeing a statue with this pose](/assets/blog/2026/08/13/2026Corfu9.webp)
 _First time seeing a statue with this pose_
 
-![Narrow street in old town](/assets/blog/2026/Greece/Corfu/2026Corfu10.webp)
+![Narrow street in old town](/assets/blog/2026/08/13/2026Corfu10.webp)
 _Narrow street in old town_
 
-![Pastitsada at Ninos](/assets/blog/2026/Greece/Corfu/2026Corfu11.webp)
+![Pastitsada at Ninos](/assets/blog/2026/08/13/2026Corfu11.webp)
 _Pastitsada at Ninos_
 
-![One of the old town plazas](/assets/blog/2026/Greece/Corfu/2026Corfu12.webp)
+![One of the old town plazas](/assets/blog/2026/08/13/2026Corfu12.webp)
 _One of the old town plazas_
 
 ![Looking back](/assets/blog/2026/08/13/2026Corfu14.webp)
