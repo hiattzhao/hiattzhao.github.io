@@ -16,18 +16,18 @@ _Part two of my 2025 bicycle route in Europe_
 
 The total cost of my trip is $11,383.43 for over 7 months of traveling. That includes everything: housing, food, transportation, etc. I averaged about $1423 per month. Here's a monthly breakdown of my expenses.
 
-| Months | Month     | Destinations  | Cost      |
-| ------ | --------- | ------------- | --------- |
-| 1      | May       | USA           | $711.72   |
-| 2      | June      | Canada        | $1040.90  |
-| 3      | July      | Canada and UK | $2309.97  |
-| 4      | August    | UK and Europe | $1724.22  |
-| 5      | September | Europe        | $1342.56  |
-| 6      | October   | Europe        | $2112.68  |
-| 7      | November  | Middle East   | $1405.33  |
-| 8      | December  | Middle East   | $736.05   |
-|        |           | SUM           | $11383.43 |
-|        |           | AVG           | $1422.93  |
+| Months | Month     | Destinations  | Cost          |
+| ------ | --------- | ------------- | ------------- |
+| 1      | May       | USA           | $711.72       |
+| 2      | June      | Canada        | $1040.90      |
+| 3      | July      | Canada and UK | $2309.97      |
+| 4      | August    | UK and Europe | $1724.22      |
+| 5      | September | Europe        | $1342.56      |
+| 6      | October   | Europe        | $2112.68      |
+| 7      | November  | Middle East   | $1405.33      |
+| 8      | December  | Middle East   | $736.05       |
+|        |           | **SUM**       | **$11383.43** |
+|        |           | **AVG**       | **$1422.93**  |
 
 The most expensive countries in descending order are the United Kingdom, The Netherlands, Germany, Canada, Poland, Cyprus, Jordan, and Egypt.
 
