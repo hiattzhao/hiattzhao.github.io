@@ -17,7 +17,7 @@ In my spare time, I love to travel, read positive psychology, business, and fina
 
 # NOW
 
-I finished my Europe bike tour in Athens, Greece. I'm selling my bicycle, along with some extra things. If you, or someone you know, are in Athens and interested in a gravel/touring bicycle, please see one of the links below and contact me:
+I finished my Europe bike tour in Athens, Greece. I'm selling my bicycle, along with some extra things. If you, or someone you know, are in Athens and interested in a gravel/touring bicycle, please see one of the links below and contact me. Thanks!
 
 - [Facebook Marketplace](https://www.facebook.com/marketplace/item/1045335755058824)
 - [Buycycle](https://buycycle.com/en-us/product/apollo-gravel-2022-85668)
