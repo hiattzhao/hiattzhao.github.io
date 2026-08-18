@@ -4,22 +4,30 @@ layout: post
 date: 2025-12-15
 ---
 
-
 I've been back home for four days and it's time to do a trip report. I'm also including some websites and apps that have helped me with planning and traveling. I hope they will help others as well.
 
 First is a summary of my trip in terms of the routes I've taken. I started the trip on a bicycle and bike toured to Canada, United Kingdom, The Netherlands, Germany, and Poland. I had to store my bicycle in Wroclaw, Poland, since the weather got cold. Then I backpacked to Prague and Dresden before taking a flight to Cyprus to get out of the Schengen Area. I then went to Jordan and Egypt before coming back to the US.
 
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgpldD5tDK72pX5xKQGN6dB0pCy4xpxsGWPzDsX7gnbX4KcSSGGEFJyGJVTQtE4MVZO-xJlC8o5yiJmB-597euxJklseRJeBNwwpIdEQhVtrfCX8XMVVopqDctN4RfgVvods6LMMAuhUxRF32175eDLQ4Bmq54ymXaFnjq19i1C0wRtFuDKn9R-0UHOYnQ/w640-h418/1Map.jpg)
-*Part one of my 2025 bicycle tour route in North America*
+_Part one of my 2025 bicycle tour route in North America_
 
-  
 ![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhD8IfxHxKugS-RLin4LRjkRtvLor4lyg3IQRWK-HQULmsgO1yN_bhpfyclecAvRt6ti3N-a5wEs37U0G7CWHhzkoz335NFQhPDmQFsmEZrvrvvkrxxJcs1NDXzHiNegBDDs0gR99SQoEOMM5Ute-kUaz3VIBW4shdbusW1ANYQvrTLBcObjUdaLBV_LiI/w640-h310/2Map.jpg)
-*Part two of my 2025 bicycle route in Europe*
+_Part two of my 2025 bicycle route in Europe_
 
-  
 The total cost of my trip is $11,383.43 for over 7 months of traveling. That includes everything: housing, food, transportation, etc. I averaged about $1423 per month. Here's a monthly breakdown of my expenses.
 
-MonthDestinationsCostMayUSA$711.72JuneCanada$1,040.90JulyCanada and UK$2,309.97AugustUK and Europe$1,724.22SeptemberEurope$1,342.56OctoberEurope$2,112.68NovemberMiddle East$1,405.33DecemberMiddle East$736.05SUM$11,383.43AVG$1,422.93
+| Months | Month     | Destinations  | Cost      |
+| ------ | --------- | ------------- | --------- |
+| 1      | May       | USA           | $711.72   |
+| 2      | June      | Canada        | $1040.90  |
+| 3      | July      | Canada and UK | $2309.97  |
+| 4      | August    | UK and Europe | $1724.22  |
+| 5      | September | Europe        | $1342.56  |
+| 6      | October   | Europe        | $2112.68  |
+| 7      | November  | Middle East   | $1405.33  |
+| 8      | December  | Middle East   | $736.05   |
+|        |           | SUM           | $11383.43 |
+|        |           | AVG           | $1422.93  |
 
 The most expensive countries in descending order are the United Kingdom, The Netherlands, Germany, Canada, Poland, Cyprus, Jordan, and Egypt.
 
