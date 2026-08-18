@@ -17,7 +17,12 @@ In my spare time, I love to travel, read positive psychology, business, and fina
 
 # NOW
 
-I'm on a bike tour from Wrocław, Poland, to Athens, Greece. (Updated: August 11, 2026)
+I finished my Europe bike tour in Athens, Greece. I'm selling my bicycle, along with some extra things. If you, or someone you know, are in Athens and interested in a gravel/touring bicycle, please see one of the links below and contact me:
+
+- [Facebook Marketplace](https://www.facebook.com/marketplace/item/1045335755058824)
+- [Buycycle](https://buycycle.com/en-us/product/apollo-gravel-2022-85668)
+
+_- Updated: August 18, 2026_
 
 <br>
 
