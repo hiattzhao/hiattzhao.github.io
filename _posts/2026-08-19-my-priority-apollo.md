@@ -60,4 +60,4 @@ I hope the next owner can take good care of this bicycle. I enjoyed riding this 
 
 ## Contact
 
-For any question regarding this bike, you can contact me via the [About](/about.html) page. You can also [email Priority Bicycles directly](mailto:info@prioritybicycles.nyc). Their customer service is top notch!
+For any questions regarding this bike, you can contact me via the [About](/about.html) page. You can also [email Priority Bicycles directly](mailto:info@prioritybicycles.nyc). Their customer service is top notch!
