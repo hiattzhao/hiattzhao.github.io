@@ -1,4 +1,92 @@
-<?xml version="1.0" encoding="utf-8"?><feed xmlns="http://www.w3.org/2005/Atom" ><generator uri="https://jekyllrb.com/" version="4.4.1">Jekyll</generator><link href="http://localhost:4000/feed.xml" rel="self" type="application/atom+xml" /><link href="http://localhost:4000/" rel="alternate" type="text/html" /><updated>2026-08-18T10:50:35+03:00</updated><id>http://localhost:4000/feed.xml</id><title type="html">Hiatt Zhao</title><subtitle>portfolio of hiatt zhao</subtitle><entry><title type="html">Days 72 and 73: Ferry from Corfu to Igoumenitsa, then Bus to Athens</title><link href="http://localhost:4000/2026/08/16/days-72-and-73-ferry-from-corfu-to-igoumenitsa-then-bus-to-athens.html" rel="alternate" type="text/html" title="Days 72 and 73: Ferry from Corfu to Igoumenitsa, then Bus to Athens" /><published>2026-08-16T00:00:00+03:00</published><updated>2026-08-16T00:00:00+03:00</updated><id>http://localhost:4000/2026/08/16/days-72-and-73-ferry-from-corfu-to-igoumenitsa-then-bus-to-athens</id><content type="html" xml:base="http://localhost:4000/2026/08/16/days-72-and-73-ferry-from-corfu-to-igoumenitsa-then-bus-to-athens.html"><![CDATA[<p>Two days ago, I took the 9 AM ferry from Corfu to Igoumenitsa. The ferry ride was about 1:30 hours and it was very scenic with the mountains on both sides.</p>
+<?xml version="1.0" encoding="utf-8"?><feed xmlns="http://www.w3.org/2005/Atom" ><generator uri="https://jekyllrb.com/" version="4.4.1">Jekyll</generator><link href="http://localhost:4000/feed.xml" rel="self" type="application/atom+xml" /><link href="http://localhost:4000/" rel="alternate" type="text/html" /><updated>2026-08-19T10:02:54+03:00</updated><id>http://localhost:4000/feed.xml</id><title type="html">Hiatt Zhao</title><subtitle>portfolio of hiatt zhao</subtitle><entry><title type="html">My Priority Apollo</title><link href="http://localhost:4000/2026/08/19/my-priority-apollo.html" rel="alternate" type="text/html" title="My Priority Apollo" /><published>2026-08-19T00:00:00+03:00</published><updated>2026-08-19T00:00:00+03:00</updated><id>http://localhost:4000/2026/08/19/my-priority-apollo</id><content type="html" xml:base="http://localhost:4000/2026/08/19/my-priority-apollo.html"><![CDATA[<p>Since I decided to sell my 2022 Priority Apollo bicycle (size: medium), I want to provide the next owner with more information about the bike, and how to maintain it since it’s a belt driven, internal gear hub bicycle.</p>
+
+<h2 id="background">Background</h2>
+
+<p>I purchased this bicycle from <a href="https://www.prioritybicycles.com/">Priority Bicycles</a> in September 2022 for a retail value of $1999, but it was $2225 in total, including shipping to a local bike shop, have it assembled professionally, and taxes.</p>
+
+<p><img src="/assets/blog/2026/08/19/PriorityApollo-WebsiteInfo.png" alt="" />
+<em>2022 Priority Apollo webpage</em></p>
+
+<p>I used this bicycle for two bike tours. One is from King of Prussia, PA, to Gainesville, FL, in 2023 (1968 miles). The other is from King of Prussia, PA, to Athens, Greece, in 2025-26 (5485 miles). The total odometer milage is about 7500 miles, or ~12000 km.</p>
+
+<p>I gave this bike the name: <em>Serendipity</em>.</p>
+
+<h2 id="maintenance">Maintenance</h2>
+
+<p>This bicycle has been great and lives up to the low maintenance reputation that Priority advertises. Once I <a href="/2025/04/23/how-to-install-schwalbe-marathon-almotion-tubeless-tires-on-a-priority-apollo-bicycle.html">installed Schwalbe Marathon Almotion tubeless tires</a>, I had no flats during my Europe bike tour.</p>
+
+<p>The bike is very quiet when ridden, the gears can be changed when the bike is stopped, and the ride is very smooth. Moreover, during rainy days, the bike doesn’t need its chain to be lubed because it doesn’t have a chain, but a belt. You basically get a free bike wash when it rains.</p>
+
+<p>Here’s some more detailed information about the various components and maintenance videos:</p>
+
+<table>
+  <thead>
+    <tr>
+      <th>Component</th>
+      <th>Maintenance/Info</th>
+    </tr>
+  </thead>
+  <tbody>
+    <tr>
+      <td>Shimano Alfine SG-S7001-11 oil</td>
+      <td>- Oil should be changed every 5000 km <br /> - Use only Shimano SG-S700 OIL <br /> - Video: <a href="https://www.youtube.com/watch?v=-zcWWAEuMBM">How to change the oil</a></td>
+    </tr>
+    <tr>
+      <td>Gates carbon belt 118 CDX</td>
+      <td>- Can last 30000 km <br /> - Video: <a href="https://www.youtube.com/watch?v=VgM-qeHGK_4">How to safely coil a belt</a> <br />- Video: <a href="https://www.youtube.com/watch?v=CO1d9pcnRvA">Belt tension adjustment</a> <br /> - Video: <a href="https://www.youtube.com/watch?v=gayFGXRFM28">Apollo gear adjustment</a></td>
+    </tr>
+    <tr>
+      <td>Bottom bracket</td>
+      <td>68mm GXP</td>
+    </tr>
+    <tr>
+      <td>Spokes</td>
+      <td>- Front wheel: 294mm/ 14G <br /> - Rear wheel: 270mm/ 14G</td>
+    </tr>
+    <tr>
+      <td>Rim tape size</td>
+      <td>28 mm X 11 m WTB TCS</td>
+    </tr>
+    <tr>
+      <td>Schwalbe Marathon Almotion (Tubeless) tires</td>
+      <td>- Size: 40-622; 28x1.50; 700x38C <br />- Pressure: 3.5-5.5 bar (50-70 psi) <br /> - Last between 6000 and 10000 km</td>
+    </tr>
+    <tr>
+      <td>Widest tire width</td>
+      <td>45 mm</td>
+    </tr>
+    <tr>
+      <td>Narrowest tire width</td>
+      <td>28 mm</td>
+    </tr>
+  </tbody>
+</table>
+
+<h2 id="conclusion">Conclusion</h2>
+
+<p>I hope the next owner can take good care of this bicycle. I enjoyed riding this bike a lot. It’s been a great bike!</p>
+
+<p><img src="/assets/blog/2026/08/19/2026BikeForSale1.webp" alt="" /></p>
+
+<p><img src="/assets/blog/2026/08/19/2026BikeForSale2.webp" alt="" /></p>
+
+<p><img src="/assets/blog/2026/08/19/2026BikeForSale3.webp" alt="" /></p>
+
+<p><img src="/assets/blog/2026/08/19/2026BikeForSale4.webp" alt="" /></p>
+
+<p><img src="/assets/blog/2026/08/19/2026BikeForSale5.webp" alt="" /></p>
+
+<p><img src="/assets/blog/2026/08/19/2026BikeForSale6.webp" alt="" /></p>
+
+<p><img src="/assets/blog/2026/08/19/2026BikeForSale7.webp" alt="" /></p>
+
+<p><img src="/assets/blog/2026/08/19/2026BikeForSale8.webp" alt="" /></p>
+
+<p><img src="/assets/blog/2026/08/19/2026BikeForSale9.webp" alt="" /></p>
+
+<h2 id="contact">Contact</h2>
+
+<p>For any question regarding this bike, you can contact me via the <a href="/about.html">About</a> page. You can also <a href="mailto:info@prioritybicycles.nyc">email Priority Bicycles directly</a>. Their customer service is top notch!</p>]]></content><author><name></name></author><summary type="html"><![CDATA[Since I decided to sell my 2022 Priority Apollo bicycle (size: medium), I want to provide the next owner with more information about the bike, and how to maintain it since it’s a belt driven, internal gear hub bicycle.]]></summary></entry><entry><title type="html">Days 72 and 73: Ferry from Corfu to Igoumenitsa, then Bus to Athens</title><link href="http://localhost:4000/2026/08/16/days-72-and-73-ferry-from-corfu-to-igoumenitsa-then-bus-to-athens.html" rel="alternate" type="text/html" title="Days 72 and 73: Ferry from Corfu to Igoumenitsa, then Bus to Athens" /><published>2026-08-16T00:00:00+03:00</published><updated>2026-08-16T00:00:00+03:00</updated><id>http://localhost:4000/2026/08/16/days-72-and-73-ferry-from-corfu-to-igoumenitsa-then-bus-to-athens</id><content type="html" xml:base="http://localhost:4000/2026/08/16/days-72-and-73-ferry-from-corfu-to-igoumenitsa-then-bus-to-athens.html"><![CDATA[<p>Two days ago, I took the 9 AM ferry from Corfu to Igoumenitsa. The ferry ride was about 1:30 hours and it was very scenic with the mountains on both sides.</p>
 
 <p>I stayed at Hotel Astoria in Igoumenitsa, which is very close to the ferry terminal. I didn’t do much in town except for getting some meals. Igoumenitsa seems to be just a place for the ferry with nothing special about it.</p>
 
@@ -486,53 +574,4 @@
 <em>Finally, some Asian noodles</em></p>
 
 <p><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjAQ9tCmCgKJH-Ao1a_23fhpkOl59r_sAUum9P4RN73Sl7Od7Nz4_xOiHLe0CZ16w6sD_ox9gqDYoowgOgjHB_rG1vQWHqip99rl2uA2GgXVwaYtF4jV_lS0zbtqGU4T-bOxjG3Pcu2k1GMqlDEupsfdXSsHaEhd04jkw2dWODybXHd-cAnfcqCJ_lGuAE/w480-h640/PXL_20260726_150342805.jpg" alt="" />
-<em>Pope John Paul II statue</em></p>]]></content><author><name></name></author><summary type="html"><![CDATA[This morning, I left Vila Kastriotet-Hotel at 5:30 and rode about 43 miles to Tiranë. It took me about four and half hours with a rest stop for a soft drink at a gas station.]]></summary></entry><entry><title type="html">Day 52: Shkodër to Lezhë</title><link href="http://localhost:4000/2026/07/25/day-52-shkod-r-to-lezh.html" rel="alternate" type="text/html" title="Day 52: Shkodër to Lezhë" /><published>2026-07-25T00:00:00+03:00</published><updated>2026-07-25T00:00:00+03:00</updated><id>http://localhost:4000/2026/07/25/day-52-shkod-r-to-lezh</id><content type="html" xml:base="http://localhost:4000/2026/07/25/day-52-shkod-r-to-lezh.html"><![CDATA[<p>Yesterday afternoon, I had the honor of putting my handprints on the wall at Chuck and Susan’s place. I made my handprints look like little feet as that’s something I didn’t see anyone do. What can I say, I like to be different.</p>
-
-<p>I fell asleep early and didn’t get a chance to properly say goodbye to Chuck and Susan. But I’m so glad that I was hosted by them. They are legends in the Warmshowers community and it’s definitely one of the highlights of my trip.</p>
-
-<p>This morning, I left their apartment at 5:30 to start my ride to Lezhë. The route on Organic Maps took me on the major road, SH1, for most of the time. The morning traffic was light. Then I turned to a gravel path with tall plants on both sides of me. I didn’t like it so much since it felt like I was riding in a jungle. When I reached a more rural road I was glad there was pavement and fewer cars. Eventually, I returned to SH1 and rode into Lezhë. I arrived at Vila Kastriotet-Hotel around 8 AM after riding 26.7 miles.</p>
-
-<p>After checking in at 10 AM, I took a shower then walked around the town. There were only a few things to see, the Skanderbeg Tomb and Lezhë Castle. I opted not to hike up the hill to Lezhë Castle and only walked around the site of the Skanderbeg Tomb. I didn’t think much of it and didn’t pay the 200 LEK to go inside.</p>
-
-<p>Back in the hotel room, I learned that Heinz Stücke passed away three days ago on July 22. He’s the cyclist who bicycled around the world continuously for over 50 years. I met him last year and admired him greatly because he lived a life that he chose, not based on what society determined. He’s a legend who influenced many cyclists. May he rest in peace.</p>
-
-<p>I’ve had a lot of time to think and reflect on my life and life in general. I feel very happy and content right now. I have everything I need. When I get back home I will downsize more. Life on a bicycle made me appreciate all the things I carry. My mind is satisfied and I’m physically healthy. What more can I ask. I also have to remind myself that nothing is as good as it is and nothing is as bad as it is. Follow the Middle Way. And be grateful for what I have and what I’m experiencing.</p>
-
-<p><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgV-BYLfmYwGsEQIiKMON_IUAbWytYWfDnNQczFjducwdI__OotZjr_7KmcbQKgTyqs8jWYfBHWEkzuwkvwwgUaMz2i9ZlwhStbGfavWAx4MZmLzop3Iz57eHKLmuyDenkN-4RX5Nux1be4DHWrLyDIRq9wrYNZZV91EHAHeMcRIuefaiqYoA8QpRi1ArY/w480-h640/PXL_20260724_151555596.jpg" alt="" />
-<em>Left my mark on Chuck and Susan’s wall.</em></p>
-
-<p><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqo-JQa-60OUIPic-wipNN_1YRyx33dTLsYPpl_vjpEpxsvPbAkTUD4vHDXyb0ACCKH0lSWD0mSkGdWbPtt1_jkZWH2Ftg6z0Obd3zIEVO5SkAUy-bWX5lI5r3XazXkiPoQ2ASkxAh6au6gLFCJQKoAvsbRopU6FK4tgjjI9aTyxN0QXRtd8S1HlJtyq0/w640-h480/PXL_20260725_040929766.jpg" alt="" />
-<em>The jungle-like path</em></p>
-
-<p><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEimH2ArGyDcCTy-WE0Z6U3MgO03sZ-xrz5Ue7T4id7PTxGLLrTj0g1NFeFFpObugc_RmTpNVB1jpYUyTUnWIrrj4hfEuieWP96nQYER102WY2A-ujbbCD64laWwMXgaiFZd6-gPZw6w96jdnijPbl4TWQt9sgydDlRWJh4n9Edvp7BylyWwj9LYVC_ktJ4/w640-h480/PXL_20260725_044245690.jpg" alt="" />
-<em>A cool morning for the ride to Lezhë</em></p>
-
-<p><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgbucG9pY3rWFMEHr5BFgs7UZgf6yMcEAr_9y6ToVFWV9IPZV55NP5fu7errSHrGXnyKVpyHsnuLHKHbGVl0UXrMVEgs7BUeauNIF272mqNc3Gn6TIw7qxbJRDi727VHu0TZz0BwbHAz5CbFyVzZQtlkCROfM1UWATKWDgbj75ZQa7wFDmyD6bGWpHPc3g/w480-h640/PXL_20260725_062212548.jpg" alt="" />
-<em>Vila Kastriotet-Hotel</em></p>
-
-<p><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjQe5exkkPTH-SfuO4vbq_Dlp5-1UmzSX7cRJz7mCX_KI_n77PHYBlTDt1DoDEzLlQ7KWbztMu8MWsyYIec8t03UMJK1KZAI_qypIouwrUWJpcU4nQE3A2fM-kVFnopamqoFcVph1PLrpDBhzxK2fp4XF57Q9SZb-AX3R0HOKF9uEhnEAE4W47vOdEImic/w480-h640/PXL_20260725_095033777.jpg" alt="" />
-<em>Interesting sculpture in the middle of the town</em></p>
-
-<p><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiykouXk7_-uEozrTxicezQ4ASJN_kHR2-4gEDNM8jP-yKQ6Xj__jeL9Z1k3EYebip-fEGBjKGmCiMiEGKjzYI6kgNKU6WbMgl2w7OUZSWWkvykutHN5NR9U6Pk7KDTyos9kXeSEWi5fwP1v6EwhPKncYKESDBfP0fhMYoN7gcYiN5uFlI7Px1EagNxI5k/w640-h480/PXL_20260725_095311827.jpg" alt="" />
-<em>The site of Skanderbeg Tomb</em></p>
-
-<p><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgRqMbsuZVjKfEkUFjL7RMo-9xOUCxzh-uXjzANcuTsWarpqcvcWC1YXguaGHgb5o0z9kr4ePf3_DJT2cJBC5acdDCHXVwWZb7jM7As8PC6_U8iXXz9_nwCddSHZiuPOLuRuyBiND2g0fgysCi7VaWstjKG4kPam7yd3oCnyHL07P6vPcgh88fQb9gKSTk/w640-h480/PXL_20260725_095415804.jpg" alt="" />
-<em>This is the Skanderbeg Tomb</em></p>
-
-<p><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhYL3d6PpT8bwLu_NCxMNo1hMrmJ38yIyqB3GEAocKiGIZYSa0xgDHlsXwjuA-xJsAectiWQ3vkSYVo6XGaXBaNbY02ltGUAnvO-D76GQks8ryNL7LDIxwR09hQZY9eEZueNIS7U8_jbXbDZ4ynMz2sqNj37P9OnnMa3_rfEZQT-88hyRNNyhACRkTwa7A/w480-h640/PXL_20260725_095739812.jpg" alt="" />
-<em>Sculpture of a priest</em></p>
-
-<p><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjYhBt0EeJiZlrXcZeZcDkQ_DoCfj0KBgB55vsn6DgxKsekd_ZCTkXrdcpvYNE7O_nxlFMOSMHdoHNVEzzOxnDVrgtvYpiM07Z01dkFzS9aFTfCvZnFiaymsi1_IQtgg9HtAhqX1eq2rQHQFq7HtN5M06u6dwMVvMsL4pPpz_pjuwhGdkYNHxN44qurKaI/w480-h640/PXL_20260725_095802291.jpg" alt="" />
-<em>Another sculpture nearby</em></p>
-
-<p><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi-s4pxk3BtTZbDo6hd7KASQKrVndt61b8jGQVyBY-QXMbl0op7y5k3dbbG9YoXiS0BwWVCspmSb6DPSxJredjKBMldNaV9AuhnlbN19kVUxwrk5t4l7TJMOl4fa0-8j0mZEYdyEYhPCl-OtkPxyBOpC0exmHP0y6WmFaNPWRhtM93SEgTroZc-C3bkxu0/w480-h640/PXL_20260725_100004718.jpg" alt="" />
-<em>Need to pay to go inside</em></p>
-
-<p><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZ4MnhPCrBdjcgTKcDDLHEbFHT8Y2TM8hUDq7faYcKHOuDU_Dy7QEn6SKXewXqhC4sIIHEGxbxNQRLP4giCb6ZppY2vZegT481Tim69urh83RE6-kXeKpomJtp0Hmi93UGutvit46IK4JlNfdPUqh0rYUHihdGPVcsHoCpgQ5IJhyphenhyphenVSnkpB4aN3-knVUo/w640-h480/PXL_20260725_100116525.jpg" alt="" />
-<em>Statue of the Albanian national hero Gjergj Kastrioti Skënderbeu</em></p>
-
-<p><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjIdC3XQE4DVVPd3PYY3bInRNmKXOhw9Rm8yFG_yPCDZ1kdg4wqcVVsRzDhZl2mvFG2iT_G3Ob98RDL9ck6JWghGCE9oyN98Z86VlPJ-s-KYskdEliaEdq4GOX0e2bP0oTMIraq3YMUywJjykLjJCB7iN18SlubkR_bnSdK8VHZZzaA0CBmgqSFTZC98Ts/w640-h480/PXL_20260725_100405573.jpg" alt="" />
-<em>Skanderbeg Tomb from another angle</em></p>
-
-<p><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhONhVKXgs67401lcW4W_VUmJSPzViIpOf2u48Gc005LOK_NgFA1RDm-OQS_IbUChQxnTE9QCbA6ZbEwd1_bflRix1oI093QdmLoPUVl3ywlQvr8RyA48yABtuwxFTY73m4ee3sP6VGHp2qqu3TVc7aZXKWqR8NuVYAFZh_9nLO9WGfOYTnqVZDds2YHhI/w640-h480/PXL_20260725_101025332.jpg" alt="" />
-<em>Street of Lezhë</em></p>]]></content><author><name></name></author><summary type="html"><![CDATA[Yesterday afternoon, I had the honor of putting my handprints on the wall at Chuck and Susan’s place. I made my handprints look like little feet as that’s something I didn’t see anyone do. What can I say, I like to be different.]]></summary></entry></feed>
+<em>Pope John Paul II statue</em></p>]]></content><author><name></name></author><summary type="html"><![CDATA[This morning, I left Vila Kastriotet-Hotel at 5:30 and rode about 43 miles to Tiranë. It took me about four and half hours with a rest stop for a soft drink at a gas station.]]></summary></entry></feed>
