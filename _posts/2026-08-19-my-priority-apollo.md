@@ -4,15 +4,7 @@ layout: post
 date: 2026-08-19
 ---
 
-## Bicycle for Sale!
-
-I finished my Europe bike tour in Athens, Greece. I'm selling my bicycle, along with some extra things. If you, or someone you know, are in Athens and interested in a gravel/touring bicycle, please see the link below and contact me. Thanks!
-
-- [Facebook Marketplace](https://www.facebook.com/marketplace/item/1045335755058824)
-
 ## Background
-
-Since I decided to sell my 2022 Priority Apollo bicycle (size: medium), I want to provide the next owner with more information about the bike, and how to maintain it since it's a belt driven, internal gear hub bicycle.
 
 I purchased this bicycle from [Priority Bicycles](https://www.prioritybicycles.com/) in September 2022 for a retail value of $1999, but it was $2225 in total, including shipping to a local bike shop, have it assembled professionally, and taxes.
 
