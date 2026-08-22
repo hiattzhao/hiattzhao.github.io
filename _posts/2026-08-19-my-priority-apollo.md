@@ -52,10 +52,10 @@ I hope the next owner can take good care of this bicycle. I enjoyed riding this 
 
 ![](/assets/blog/2026/08/19/2026BikeForSale7.webp)
 
-![](/assets/blog/2026/08/19/2026BikeForSale8.webp)
-
-![](/assets/blog/2026/08/19/2026BikeForSale9.webp)
-
 ## Contact
 
 For any questions regarding this bike, you can contact me via the [About](/about.html) page. You can also [email Priority Bicycles directly](mailto:info@prioritybicycles.nyc). Their customer service is top notch!
+
+## Cycling Resources
+
+For more cycling resources and tips, I wrote up [this resource guide](https://hiatt-zhao.blogspot.com/p/resources.html) on my old blog.
