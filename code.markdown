@@ -103,7 +103,7 @@ permalink: /code
         <span>Jekyll</span>
       </div>
       <div class="links">
-        <span><a href="https://photos.hiattzhao.com" title="View Site"><img src="/assets/images/icons/view.svg"
+        <span><a href="https://hiattzhao.com/photos-portfolio" title="View Site"><img src="/assets/images/icons/view.svg"
           alt="View Site" /></a></span>
         <span><a href="https://github.com/hiattzhao/photos-portfolio" title="View Code"><img
           src="/assets/images/icons/code.svg" alt="View Code" /></a></span>
