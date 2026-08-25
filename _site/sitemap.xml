@@ -2017,6 +2017,10 @@
 <lastmod>2026-08-21T00:00:00+03:00</lastmod>
 </url>
 <url>
+<loc>http://localhost:4000/2026/08/25/days-80-to-83-four-more-days-in-athens.html</loc>
+<lastmod>2026-08-25T00:00:00+03:00</lastmod>
+</url>
+<url>
 <loc>http://localhost:4000/about</loc>
 </url>
 <url>
@@ -2168,6 +2172,9 @@
 </url>
 <url>
 <loc>http://localhost:4000/page42/</loc>
+</url>
+<url>
+<loc>http://localhost:4000/page43/</loc>
 </url>
 <url>
 <loc>http://localhost:4000/assets/blog/2026/08/19/Alfine11-Service_Manual.pdf</loc>
