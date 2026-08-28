@@ -17,8 +17,8 @@ In my spare time, I love to travel, read positive psychology, business, and fina
 
 # NOW
 
-Back in the US.
-_- Updated: August 26, 2026_
+Back in the USA.
+_- Updated: August 28, 2026_
 
 <br>
 
