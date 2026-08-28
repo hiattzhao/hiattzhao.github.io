@@ -17,8 +17,8 @@ In my spare time, I love to travel, read positive psychology, business, and fina
 
 # NOW
 
-I finished my Europe bike tour in Athens, Greece, and sold my bicycle. I'm coming back to the US on August 26.
-_- Updated: August 20, 2026_
+Back in the US.
+_- Updated: August 26, 2026_
 
 <br>
 
