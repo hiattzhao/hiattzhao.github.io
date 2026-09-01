@@ -8,7 +8,7 @@ It's been about a week since I came back to the US. I had a great time traveling
 
 First, I backpacked in Italy and Malta, then I picked up my bicycle in Wroclaw, Poland, and biked to Athens, Greece. I took trains, ferries, and a bus to get to my destination because I was tired at the end. Due to the heat dome in Europe, I had to cycle early in the morning. I only averaged about 25 miles per cycling day. In Athens, I sold my bicycle and touring gears to Rodrigo and my camping gears to Sarah.
 
-![2026 Europe bike tour map](assets/blog/2026/09/01/2026BikeTour-labeled.webp)
+![2026 Europe bike tour map](/assets/blog/2026/09/01/2026BikeTour-labeled.webp)
 *2026 Europe bike tour map*
 
 The highlight of the bike tour was the people I met.
