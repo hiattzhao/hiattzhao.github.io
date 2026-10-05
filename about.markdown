@@ -17,8 +17,7 @@ In my spare time, I love to travel, read positive psychology, business, and fina
 
 # NOW
 
-Back in the USA.
-_- Updated: August 28, 2026_
+Going to Miami then Mexico City in mid-October. - _Updated: October 5, 2026_
 
 <br>
 

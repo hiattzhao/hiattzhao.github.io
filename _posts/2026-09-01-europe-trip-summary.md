@@ -11,7 +11,7 @@ First, I backpacked in Italy and Malta, then I picked up my bicycle in Wroclaw, 
 ![2026 Europe bike tour map](/assets/blog/2026/09/01/2026BikeTour-labeled.webp)
 *2026 Europe bike tour map*
 
-The highlight of the bike tour was the people I met.
+The highligd tht of the bike tour was the people I met.
 
 I was very happy to meet Henryk in Bratislava, Slovakia. He was such an interesting person and is living a life that I hope to live one day. He works whenever he wants to and goes on bike tours and hiking trips according to his own will. Henryk also gave me the advice of becoming a project manager if I want to return to a corporate life.
 
