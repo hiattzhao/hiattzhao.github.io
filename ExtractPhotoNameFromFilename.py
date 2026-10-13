@@ -1,17 +1,87 @@
 import re
 
-regex = re.compile(r"(\d{4})([a-zA-Z]+)(\d+)", re.I | re.DOTALL)
+regex = re.compile(r'(\d{4})([a-zA-Z]+)(\d+)', re.I | re.DOTALL)
 
-result = regex.findall(
-    """
-/Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2006Atlanta174copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2006Boston015copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2007NewYorkCity029copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2007NewYorkCity279copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2007NewYorkCity290copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2007Philadelphia089copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2007Philadelphia184copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2008Dallas27copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2011Bethlehem54copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Beijing0156copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Beijing1304copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Beijing2532copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Beijing2562copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Beijing2581copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Beijing2602copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012HongKong093copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012HongKong108copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012HongKong267copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012HongKong273copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012HongKong290copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012HongKong299copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai0200copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai0415copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai0433copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai0541copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai0797copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai0933copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai1181copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai1427copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai1581copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai1598copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai1624copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai2136copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai2389copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai2414copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai2427copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai2454copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai3043copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai3063copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai3202copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai3236copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shanghai3277copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shenzhen329copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shenzhen418copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012Shenzhen453copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012XiAn1151copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012XiAn1164copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012XiAn1176copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2012XiAn1270copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2013Anchorage118copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2013Anchorage202copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2013Beijing0218copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2013Portland085copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2013Portland150copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2013SanDiego047copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2013SanDiego058copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2013Seattle785copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2013Vancouver169copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2013Vancouver176copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2013Vancouver339copy.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2013Vancouver347-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2013Vancouver393-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2013Vancouver627-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2014Orlando144-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2014Richmond75-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2015LasVegas170-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2015NewYorkCity0659-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2016Barcelona156-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2016Barcelona184-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2016Barcelona301-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2016Barcelona313-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2016Cambridge097-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2016Lisbon467-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2016London082-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2016London127-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2016Marseille137-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2016Valencia216-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2018Chicago442-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2019Atlanta42-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2019WinstonSalem27-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2019WinstonSalem36-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2023Busan103-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2023Fukuoka104-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2023Seattle136-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2023Seattle228-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2023Seoul22-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2023Tokyo73-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2024KualaLumpur57-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2024Manila96-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2024Manila188-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2024Manila208-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2024Manila216-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2024Singapore322-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2024Singapore325-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2024Singapore360-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2024Taipei142-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2024Taipei235-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2024Taipei408-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2024Taipei462-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2024Taipei467-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2024Taipei472-edit.jpg /Users/hiattzhao/Documents/Portfolios/2025 Portfolio/architecture-reflections/2024Taipei522-edit.jpg
-"""
-)
+result = regex.findall('''
+2002Tree50copy.jpg
+2003Flagstaff060.jpg
+2003Flagstaff147.jpg
+2003Rochester3172.JPG
+2003Seattle142.jpg
+2004Ottowa109.jpg
+2005NewYorkCity36.jpg
+2005Rochester100copy.jpg
+2006Chicago147.jpg
+2011Birds11copy.jpg
+2011Flowers020copy.jpg
+2011Flowers139copy.jpg
+2011Flowers209copy.jpg
+2011Flowers217copy.jpg
+2011Flowers251copy.jpg
+2011Flowers268copy.jpg
+2011Flowers297copy.jpg
+2011Flowers331copy.jpg
+2011Flowers344copy.jpg
+2011Flowers379copy.jpg
+2011HopeLn003copy.jpg
+2011TrexlerPark22copy.jpg
+2012Wescosville169copy.jpg
+2013Anchorage177copy.jpg
+2013Beijing1136copy.jpg
+2013Carmel386copy.jpg
+2013Carmel390copy.jpg
+2013Carmel394copy.jpg
+2013Juneau564copy.jpg
+2013LosAngeles289copy.jpg
+2013Monterey233copy.jpg
+2013PacificGrove089copy.jpg
+2014LakeGeorge87copy3.jpg
+2014LakePlacid099copy.jpg
+2014LakePlacid155copy2.jpg
+2014Orlando094copy2.jpg
+2014Orlando116copy2.jpg
+2014StPetersburg249copy.jpg
+2015AntelopeCanyon137copy.jpg
+2015GrandCanyon032copy.jpg
+2015NewYorkCity0995copy.jpg
+2015Rochester196copy.jpg
+2015SaltLakeCity014copy.jpg
+2016BlueBell14.JPG
+2016TrexlerNaturePreserve26.JPG
+2017Moon39.jpg
+2017NewYearsDay22copy.jpg
+2017Tree081.jpg
+2017WestOakLane021copy.jpg
+2017WestOakLane029copy.jpg
+2017WestOakLane046copy.jpg
+2017WestOakLane072copy.jpg
+2018Baker1733-edit.jpg
+2018Baker1785-edit.jpg
+2018Boulder2500-edit.jpg
+2018BryceCanyon1472-edit.jpg
+2018Fallon1988-edit.jpg
+2018Fallon1998-edit2.jpg
+2018Gardnerville2082-edit3.jpg
+2018Lancaster0083-edited.jpg
+2018Telluride2253-edit.jpg
+2020Wayne053-edit.jpg
+2021KingOfPrussia131.jpg
+2022Flowers13-edit.jpg
+2022KeyWest36-edit.jpg
+2022Reading25-edit.jpg
+2024Bantayan29-edit.jpg
+2024ElNido87-edit.jpg
+2024Phuket76-edit.jpg
+2024PortBarton29-edit.jpg
+2024PortBarton122-edit.jpg
+2024Taipei305-edit.jpg
+''')
 
 filenamesList = []
 
 for filename in result:
-    filenamesList.append(filename[0] + " " + filename[1] + " " + filename[2])
+    placeName = re.sub(r'(?<!^)(?=[A-Z])', ' ', filename[1])
+    filenamesList.append(filename[0] + ' ' + placeName + ' ' + filename[2])
 
 print(filenamesList)
-print("Total files: " + str(len(filenamesList)))
+print('Total files: ' + str(len(filenamesList)))
