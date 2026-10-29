@@ -10,7 +10,7 @@ I met Philip in room 407. He’s a 71 years old American Canadian who went on th
 
 I also met a 47 years old Chinese woman named Dou Dou who also stayed in room 407. She’s been traveling long term and is very enthusiastic and energetic. I was impressed by the amount of sightseeing that she did.
 
-I hung out with the 29 years old Dutch girl, Tanya, a couple of times. We strolled around in Roma Sur and La Condesa. They are neighborhoods that has a lot of expats living there. At night, I went with her, Mio, and Solal to a couple of bars in Zona Rosa. Mio is a 30 years old Japanese girl who traveled in Africa for over a year. And Solal is 29 years old and is from France.
+I hung out with the 29 years old Dutch girl, Tanja, a couple of times. We strolled around in Roma Sur and La Condesa. They are neighborhoods that has a lot of expats living there. At night, I went with her, Mio, and Solal to a couple of bars in Zona Rosa. Mio is a 30 years old Japanese girl who traveled in Africa for over a year. And Solal is 29 years old and is from France.
 
 I went to several places on my own during the day. They include Biblioteca de México "Jose Vasconcelos", Post Palace Museum, Plaza Garibaldi, La Merced Market, Mercado Sonora, Biblioteca Vasconcelos, and Tlalpexco via the cablebus. They call it cablebus in Mexico City, but they are gondolas.
 
@@ -137,7 +137,7 @@ I will be checking out of Hostel Mundo Joven Catedral today because the hostel i
 *Great view!*
 
 ![](/assets/blog/2026/10/29/2026MX39.webp)
-*Colorful houses*
+*Colorful houses in Tlalpexco*
 
 ![](/assets/blog/2026/10/29/2026MX40.webp)
 *The black tanks on the roofs must be water tanks.*
