@@ -6,7 +6,7 @@ date: 2026-10-23
 
 I arrived in Mexico City International Airport Benito Juárez on the night of October 19th. I had trouble finding the public transit that goes into the city, but when I checked the price on Uber, it was only US$9 for a ride to the hostel. So I took that instead of the metro.
 
-The first thing I noticed in Mexico City was the excessive amount of police presence. Apparently, people felt safer when there are a lot of police around. My hostel is the Hostel Mundo Joven Catedral. It’s right by Zócalo, the city center where the big church is. This hostel also has a rooftop bar where the view is fantastic!
+The first thing I noticed in Mexico City was the excessive amount of police presence. Apparently, people felt safer when there are a lot of police around. My hostel is the Hostel Mundo Joven Catedral. It’s right by Zócalo, the city center where the Mexico City Metropolitan Cathedral is. This hostel also has a rooftop bar where the view is fantastic!
 
 I didn’t know what to do on the first day. I did more research on the Spanish schools. I found a school called Lengua and Cultura that I liked, but couldn’t find decent housing in the nearby La Condesa neighborhood on Airbnb. I decide it’s probably better to take a Spanish class somewhere in Guatemala instead and just enjoy being a tourist in Mexico.
 
