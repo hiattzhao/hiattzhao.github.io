@@ -16,6 +16,8 @@ Photography remains as my primary interest for over 20 years. I am best known fo
 
 Moreover, my photos have been exhibited in galleries since I was 19 years old. Collectors often include leaders of corporations and private institutions have also used my photographs commercially.
 
+I'm also on [500px.com](https://500px.com/p/hiattzhao) where I license my photographs.
+
 # Exhibitions
 
 - 2022, September 4 to October 1: Gryphon Café (Wayne, PA) - "My Last Exhibition" (_Dedicated to My Grandmother_)
@@ -41,8 +43,8 @@ Moreover, my photos have been exhibited in galleries since I was 19 years old. C
 
 # Publications
 
-- 2026: Architecture Perspective: The Ambré Collection (<a href="https://www.blurb.com/b/12839348-architecture-perspective-the-ambr-collection" target="_blank">Blurb hardcover photo book and PDF</a>)
-- 2020: Zhaoism - The Autobiography of Hiatt Zhao: The First 25 Years (<a href="https://www.amazon.com/dp/B08P2S9S26" target="_blank">Kindle ebook</a> and <a href="https://www.amazon.com/dp/B08P1HM3BD" target="_blank">paperback from Amazon</a>)
+- 2026: Architecture Perspective: The Ambré Collection ([Blurb hardcover photo book and PDF](https://www.blurb.com/b/12839348-architecture-perspective-the-ambr-collection))
+- 2020: Zhaoism - The Autobiography of Hiatt Zhao: The First 25 Years ([Kindle ebook](https://www.amazon.com/dp/B08P2S9S26) and [paperback from Amazon](https://www.amazon.com/dp/B08P1HM3BD))
 - 2009: The Artistic Portfolio of Hiatt Zhao (out of print)
 - 2007: Teenage American Travel: Around the US in 45 Days (out of print)
 - 2005-2006, Spring 2005, Fall 2004, Spring 2004: LOGOS (archived at the University of Rochester libraries)
@@ -56,4 +58,4 @@ Moreover, my photos have been exhibited in galleries since I was 19 years old. C
 
 # Press
 
-- 2007, March 15: “Young Traveler’s Camera Clicks Cleverly Mix Science and Art” – by Geoff Gehman ([The Morning Call](https://www.mcall.com/news/mc-xpm-2007-03-15-3711499-story.html){:target="\_blank"})
+- 2007, March 15: “Young Traveler’s Camera Clicks Cleverly Mix Science and Art” – by Geoff Gehman ([The Morning Call](https://www.mcall.com/news/mc-xpm-2007-03-15-3711499-story.html))
