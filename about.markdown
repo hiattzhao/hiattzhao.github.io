@@ -17,8 +17,8 @@ In my spare time, I love to travel, read positive psychology, business, and fina
 
 # NOW
 
-Currently in Mexico.
--- _Updated: October 29, 2026_
+Currently in Mexico City.
+-- _Updated: November 8, 2026_
 
 <br>
 
