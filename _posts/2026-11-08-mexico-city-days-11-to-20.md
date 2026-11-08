@@ -22,7 +22,7 @@ After checking out of Viajero CDMX I checked into Casa Eufemia Hostel that’s f
 
 Here, the people tend to keep to themselves and the hostel is quieter because of it. I ended up chatting with a Canadian man named Matthew. I mistakenly thought that he was in his 50s or 60s due to his white hair. As it turned out, he was only 46 years old.
 
-I also chatting with Ali, who works as an astrologist. I thought about doing a reading, but ended up doing my own research and learning to read an astrology chart.
+I also chatting with Ally, who works as an astrologist. I thought about doing a reading, but ended up doing my own research and learning to read an astrology chart.
 
 I ended up staying in Casa Eufemia Hostel for four nights before transferring to an Airbnb in the Roma Sur neighborhood since I signed up for a three weeks long Spanish course at L&C Spanish School after all.
 
