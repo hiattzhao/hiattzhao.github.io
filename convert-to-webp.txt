@@ -1,0 +1,1 @@
+mogrify -format webp -resize '1200x1200>' *.jpg
